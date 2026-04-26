@@ -97,7 +97,7 @@ Un proyectil de hierro, arrastrando una nube de humo, voló más de cuatrociento
 
 "Todo está en orden."
 
-"No te confíes, revisa bien si hay grietas o algo así", advirtió Zhan Wuyaya. "Los cañones de hierro fundido no son como los cañones fabricados en las fábricas modernas. Por cierto, tengo un equipo de inspección no destructiva, ¿quieres que lo traigamos para revisarlo?".
+"No te confíes, revisa bien si hay grietas o algo así", advirtió Zhan Wuya. "Los cañones de hierro fundido no son como los cañones fabricados en las fábricas modernas. Por cierto, tengo un equipo de inspección no destructiva, ¿quieres que lo traigamos para revisarlo?".
 
 "Esto no es necesario, ¿verdad?", pensó Lin Shenhe, considerando que era demasiado lujoso. "El equipo de inspección por ultrasonido es mejor usarlo cuando se fabriquen cañones de acero en el futuro."
 

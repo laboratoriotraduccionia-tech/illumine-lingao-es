@@ -78,6 +78,6 @@ Sin embargo, no mucho después, piratas como Zheng Zhilong, Zhong Lingxiu y Li K
 
 "Aquí, en Guangzhou, la situación es relativamente tranquila después de la campaña conjunta del año pasado, liderada por el almirante Yu de Fujian y la flota naval de esta provincia. Los portugueses también patrullan en Jiangkou, ya que sus intereses están en Aomen."
 
-Según esto, durante este período, la actividad de los piratas se centraba principalmente en la costa de Fujian. Esta situación aumentó considerablemente su confianza, ya que, al menos al principio, no se enfrentarían a figuras de la talla de Zheng Zhiblong o Li Kuiqi, que eran como "jefes" (BOSS).
+Según esto, durante este período, la actividad de los piratas se centraba principalmente en la costa de Fujian. Esta situación aumentó considerablemente su confianza, ya que, al menos al principio, no se enfrentarían a figuras de nivel importante como Zheng Zhiblong o Li Kuiqi.
 
 "Sin embargo, es mejor ser precavido", dijo Gao Ju, recordándoles que, aunque en la costa de Guangdong no hay grandes piratas, hay muchos grupos pequeños de piratas y bandidos. Como han viajado desde lejos y no conocen la zona, deben tener especial cuidado al abordar y desembarcar de la embarcación.

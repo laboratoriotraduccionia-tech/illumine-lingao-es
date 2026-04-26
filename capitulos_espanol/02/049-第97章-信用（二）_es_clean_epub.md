@@ -80,9 +80,9 @@ Pensaba en cómo detener el desarrollo de la situación. Zhan Wúyá se levantó
 
 "¿Cuál es el límite? Todos vinimos aquí para hacer qué, ¿para ayudar a los pobres...?"
 
-"¡Estás mintiendo!", exclamó Zhan Wuyaya, furioso. "Hace solo dos días, si no hubiera corrido para desconectar la electricidad, ¡hoy te quedarías con una mano! ¡Según lo que dices, cuántas manos tienes tú para preocuparte por mis asuntos?".
+"¡Estás mintiendo!", exclamó Zhan Wuya, furioso. "Hace solo dos días, si no hubiera corrido para desconectar la electricidad, ¡hoy te quedarías con una mano! ¡Según lo que dices, cuántas manos tienes tú para preocuparte por mis asuntos?".
 
-Xiao Zishan se encogió un poco, Wen Desi pensó para sus adentros que era afortunado, y dijo: "La verdad es que, si esta discusión continuara así, sería difícil predecir las consecuencias. Aunque sé que las propuestas extremas de Xiao Zishan no serán aprobadas, las divisiones que deja el debate son difíciles de reparar. Afortunadamente, Zhan Wuyaya intervino... él no tenía idea de este pequeño incidente... pero ya no hay tiempo para eso. Aprovechando este momento, él rápidamente se puso de pie:
+Xiao Zishan se encogió un poco, Wen Desi pensó para sus adentros que era afortunado, y dijo: "La verdad es que, si esta discusión continuara así, sería difícil predecir las consecuencias. Aunque sé que las propuestas extremas de Xiao Zishan no serán aprobadas, las divisiones que deja el debate son difíciles de reparar. Afortunadamente, Zhan Wuya intervino... él no tenía idea de este pequeño incidente... pero ya no hay tiempo para eso. Aprovechando este momento, él rápidamente se puso de pie:
 
 "Por favor, no discutan más. Les pido que centren la discusión en el tema en cuestión. ¿Cómo podemos actuar para maximizar nuestros beneficios y, al mismo tiempo, garantizar un entorno de vida estable y duradero?"
 

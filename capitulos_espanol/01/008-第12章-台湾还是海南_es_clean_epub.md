@@ -72,9 +72,7 @@ Finalmente, en la historia de Hainan, la piratería marítima era extremadamente
 
 "Si insistes en decir eso, incluso en la península de Leizhou no se podría cultivar caucho, y de todas formas, no se podría cultivar."
 
-"¡Estoy hablando de Taiwan! ¿La península de Leizhou y Taiwan están en la misma dimensión?!"
-
-  ……
+"¡Estoy hablando de Taiwan! ¿La península de Leizhou y Taiwan están en la misma latitud?!"
 
 Cuando la conversación comenzó a desviarse hacia temas como si el barco "Bao" era un buque de madera de diez mil toneladas, si la artemisinina podía prevenir la malaria, y si la medicina tradicional china era una pseudociencia, Wen Desi rápidamente interrumpió el entusiasmo de todos, y Xiao Zishan propuso hablar.
 

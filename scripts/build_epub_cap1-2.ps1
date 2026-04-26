@@ -1,6 +1,6 @@
 param(
     [string]$RootDir = "$PSScriptRoot\..\capitulos_espanol",
-    [string]$Title = "Illuminar Lingao 0.1.3",
+    [string]$Title = "Illuminar Lingao 0.1.4",
     [string]$Lang = "es",
     [string]$OutputDir = "$PSScriptRoot\..\epub",
     [string]$OutputFile = "illuminelingao_parte1y2.epub",

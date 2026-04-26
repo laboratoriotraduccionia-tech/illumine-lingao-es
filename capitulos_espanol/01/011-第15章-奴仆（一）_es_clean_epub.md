@@ -34,7 +34,7 @@ Originalmente, solo querían comprar una casa, como punto de partida en Guangzho
 
 Sin embargo, el rechazo no es la mejor opción. Xiao Zishan pensó un momento; de todos modos, las actividades de comercio entre dimensiones no durarían mucho más. Siempre y cuando tuviera cuidado en cada ocasión, no habría problemas. Una vez que cruzara, podría decidir cómo llevar a cabo las actividades en esta ciudad de Guangzhou. Por ahora, lo importante es mantener contento al señor Gao y que este les ayude a comerciar.
 
-  Se intercambiaron miradas. Wen Desi hizo una reverencia y agradeció, tomando el documento. Luego, sacó una moneda de plata y la ofreció como una recompensa por la ceremonia de sumisión.
+Se intercambiaron miradas. Wen Desi hizo una reverencia y agradeció, tomando el documento. Luego, sacó una moneda de plata y la ofreció como una recompensa por la ceremonia de sumisión.
 
 El señor Gao, al ver que no tenían objeciones, se alegró mucho. Ordenó a los sirvientes que transportaran todo su dinero a la nueva casa. Además, mandó que llevaran muchos alimentos y ropa, mostrando gran hospitalidad.
 
@@ -50,7 +50,7 @@ En cuanto a su edad, en realidad no tenía más de cuarenta años. No estaba seg
 
 "¿Es mejor cuidar esta casa que ser un sirviente en la mansión?", se preguntó.
 
-"Gao Qing, con una sonrisa amarga, respondió: "Respetuosamente, señor Gao, aquí la vida es tranquila y sin restricciones, pero las dificultades económicas son grandes"."
+Gao Qing, con una sonrisa amarga, respondió: "Respetuosamente, señor, aquí la vida es tranquila y sin restricciones, pero las dificultades económicas son grandes".
 
 Originalmente, él y su esposa trabajaban en la residencia, y aunque cada uno solo recibía dos "qian" de plata al mes (una pequeña cantidad), la comida estaba incluida y se cubría con los recursos de la institución. Esto les permitía no pasar hambre, e incluso mantener a sus hijos. Cuando cambiaron de trabajo, su salario aumentó a cinco "qian" al mes, pero ahora tenían que cubrir sus propios gastos de comida, leña, aceite, sal y verduras, y los niños ya no tenían derecho a la comida gratuita. Con niños de trece o catorce años que aún necesitaban comer, y con un ingreso familiar de solo siete "qian" al mes, la situación era realmente difícil.
 

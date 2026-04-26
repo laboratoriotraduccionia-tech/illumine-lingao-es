@@ -72,6 +72,7 @@ FIXED_REPLACEMENTS = {
     "玻璃管注射器": "jeringas de vidrio",
     "纱布": "gasa",
     "防风打火机": "encendedor a prueba de viento",
+    "...": "…",
 }
 
 BAD_LINES_PATTERNS = [

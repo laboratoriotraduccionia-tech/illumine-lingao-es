@@ -1,23 +1,22 @@
 ## Capítulo 24: Las preocupaciones de Gao Ju
 
-
 El clima no estaba nada caluroso, y ahora era temprano en la mañana, pero Gao Ju estaba sudando.
 
-"No se equivoque, aunque el señor Gao ya ha alcanzado la mediana edad y su figura inevitablemente ha aumentado un poco, sigue siendo un hombre muy robusto. No es uno de esos hombres ricos y débiles que necesitan tomar suplementos para poder atender a sus concubinas."
+No hay que confundirse, aunque el señor Gao ya había alcanzado la mediana edad y su figura inevitablemente había aumentado un poco, sigue siendo un hombre muy robusto. No es uno de esos hombres ricos y débiles que necesitaban tomar suplementos para poder atender a sus concubinas.
 
-  Puede que no haya visto pasar caballos por sus brazos, pero sí ha enfrentado a docenas de espadas, dagas y armas de fuego sin inmutarse. Sin embargo, este tipo de persona, se encontró sudando frío en una tarde fresca de finales de la primavera.
+Puede que no haya visto pasar caballos por sus brazos, pero sí ha enfrentado a docenas de espadas, dagas y armas de fuego sin inmutarse. Sin embargo, este tipo de persona, se encontró sudando frío en una tarde fresca de finales de la primavera.
 
-Hace aproximadamente un mes, recibí una carta de Yang Gonggong, en la que me informaba que había enviado a su hijo adoptivo, Yang Tianliang, a Guangzhou para discutir asuntos importantes conmigo. Gao Ju realmente no estaba seguro de qué trataba este asunto, y estaba muy inquieto.
+Hace aproximadamente un mes, había recibido una carta del eunuco Yang, en la que le informaba que había enviado a su hijo adoptivo, Yang Tianliang, a Guangzhou para discutir asuntos importantes conmigo. Gao Ju realmente no estaba seguro de qué trataba este asunto, y estaba muy inquieto.
 
-Bai Bai le quitarle a ese eunuco parte de su vitalidad, lo cual le causaba mucho sufrimiento, pero durante estos años, también ha contado con la protección de Yang Gonggong, y ha llegado hasta aquí sin mayores contratiempos. Por lo tanto, cada año, la parte de los intereses que le corresponde, la envía sin falta a la capital o la deposita en la casa de empeño de Guangzhou, según sus instrucciones.
+Que el eunuco le quitara la mitad de sus ganancias le causaba mucho sufrimiento, pero durante estos años, también había contado con la protección del eunuco Yang, y había llegado hasta aquí sin mayores contratiempos. Por lo tanto, cada año, la parte de los intereses que le corresponde, la envía sin falta a la capital o la deposita en la casa de empeño de Guangzhou, según sus instrucciones.
 
 Cada año, él le enviaba lichis en verano y manjares en invierno, y nunca se había atrevido a descuidar a este gran eunuco. ¿Cómo podía ser que, de repente, enviaran a un pequeño eunuco llamado Gong para hablar con él sobre asuntos importantes?
 
 ¿Asuntos importantes? Gao Ju sonrió con amargura. Él era solo un comerciante, ¿qué asuntos importantes podía discutir con un "gran señor" de la corte? No era más que pedirle que entregara una gran suma de dinero para "uso temporal" o para "contribuir". Además, la cantidad era enorme; de lo contrario, bastaría con una carta. Enviar a un "hijo" personalmente... parece que el eunuco Yang está muy preocupado. Suspiró. Hace unos meses, encontró una fortuna inesperada, y ahora tendría que devolverla.
 
-Lo que más temía no era perder dinero. Desde que Jiuzhou Sui se hizo poderoso con la llegada de la dinastía Tianqi, los asuntos del palacio se volvieron cada vez más profundos e incomprensibles. Su protector, Yang Gonggong, provenía de la escuela de Gao Shiming. Este eunuco Gao, en el primer año de la dinastía Tianqi, renunció voluntariamente para protegerse. Yang Gonggong, actualmente, ocupa una posición marginal en el palacio.
+Lo que más temía no era perder dinero. Desde que Jiuzhou Sui se hizo poderoso con la llegada de la dinastía Tianqi, los asuntos del palacio se volvieron cada vez más profundos e incomprensibles. Su protector,el eunuco Yang, provenía de la escuela de Gao Shiming. Este eunuco Gao, en el primer año de la dinastía Tianqi, renunció voluntariamente para protegerse.el eunuco Yang, actualmente, ocupa una posición marginal en el palacio.
 
-"¿Y si el Emperador, con sus nueve mil años de reinado, no aprueba a Yang Gonggong? Gao Ju no pudo evitar sentir un escalofrío. Él no sentía ninguna simpatía por Yang Gonggong; sin embargo, la relación de beneficio mutuo que habían mantenido durante tantos años los había atado, como dos saltamontes en la misma cuerda. Si Yang Gonggong cae hoy, mañana los soldados de Dongchang irán a golpear la puerta de su casa, y una desgracia que puede llevar a la ruina total de su familia es inminente."
+"¿Y si el Emperador, con sus nueve mil años de reinado, no aprueba ael eunuco Yang? Gao Ju no pudo evitar sentir un escalofrío. Él no sentía ninguna simpatía porel eunuco Yang; sin embargo, la relación de beneficio mutuo que habían mantenido durante tantos años los había atado, como dos saltamontes en la misma cuerda. Siel eunuco Yang cae hoy, mañana los soldados de Dongchang irán a golpear la puerta de su casa, y una desgracia que puede llevar a la ruina total de su familia es inminente."
 
 ¿Será que esto tiene algo que ver con ese asunto? Gao Ju comenzó a sudar y, sin poder evitarlo, gritó:
   "¡Abaniquear!"
@@ -59,7 +58,7 @@ Ahora mismo no hay tiempo para preocuparse por eso. Con un gruñido, preguntó:
 
 "No. El señor Xiao Yang salió de la ciudad de Beijing el 2 de marzo, así que probablemente aún no ha llegado a la provincia de Nan'an. En cualquier caso, llegará en unos diez días."
 
-"Quiero que los funcionarios encargados de revisar documentos busquen todas las cartas y comunicaciones relacionadas con Yang Gonggong, que las revisen cuidadosamente y que investiguen a fondo a Xiao Yang Gonggong: su edad, el año en que fue adoptado, sus aficiones, y que me proporcionen toda esa información."
+"Quiero que los funcionarios encargados de revisar documentos busquen todas las cartas y comunicaciones relacionadas conel eunuco Yang, que las revisen cuidadosamente y que investiguen a fondo a Xiaoel eunuco Yang: su edad, el año en que fue adoptado, sus aficiones, y que me proporcionen toda esa información."
 
 "Sí, señor Gao."
 
@@ -95,7 +94,7 @@ Esto es solo una parte. Bei Wei notó, desde que entró a este patio, que había
 
   No se sabe exactamente cuán poderosos eran estos expertos marciales de la dinastía Ming. Bei Wei sentía mucha curiosidad y, si tuviera la oportunidad de enfrentarlos, no la desperdiciaría. Tenía mucho interés en las artes marciales chinas tradicionales, pero en el ejército, el entrenamiento de combate se centraba principalmente en técnicas modernas, y sus conocimientos de artes marciales tradicionales eran limitados. También había presenciado algunas demostraciones de artes marciales, pero siempre le parecían insatisfactorias: contenían demasiados movimientos superficiales y no mostraban las técnicas de combate reales.
 
-El señor Gao y Wen Desi continuaban con sus asuntos comerciales, y ambos estaban un poco distraídos. Uno pensaba en los asuntos de Yang Gonggong, y el otro, en la expansión de la sucursal de Guangzhou.
+El señor Gao y Wen Desi continuaban con sus asuntos comerciales, y ambos estaban un poco distraídos. Uno pensaba en los asuntos del eunuco Yang, y el otro, en la expansión de la sucursal de Guangzhou.
 
 Wen Desi vino principalmente esta vez con el objetivo de expandir esta sucursal de Guangzhou.
 

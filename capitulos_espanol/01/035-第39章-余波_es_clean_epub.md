@@ -56,13 +56,13 @@ Gao Ju se sobresaltó y rápidamente miró a su alrededor, pero no vio a nadie m
 
 Gao Ju, como era de esperar, aceptó la propuesta: "Sabes, hermano, a qué me dedico", suspiró. "Que este negocio haya podido prosperar hasta ahora se debe al favor de un eunuco llamado Yang, que trabaja en la corte."
 
-"Entonces, le expliqué a Yang Gonggong la relación que teníamos, aunque de forma general. Básicamente, le dije que Yang Gonggong era mi apoyo. Por supuesto, no mencioné los detalles de cómo se repartirían las cosas, pero Xiao Zishan seguramente lo entendió: este tipo de relación es algo que cualquier persona en China podría imaginar, y no importa si insistes en que es una relación de pura amistad, no serviría de nada."
+"Entonces, le expliqué ael eunuco Yang la relación que teníamos, aunque de forma general. Básicamente, le dije queel eunuco Yang era mi apoyo. Por supuesto, no mencioné los detalles de cómo se repartirían las cosas, pero Xiao Zishan seguramente lo entendió: este tipo de relación es algo que cualquier persona en China podría imaginar, y no importa si insistes en que es una relación de pura amistad, no serviría de nada."
 
 "Sin embargo, actualmente, Yang Gong ya no tiene tanta influencia en el palacio", dijo Gao Ju en voz baja, casi como un susurro. "No es bien visto por el gerente de la fábrica."
 
 "¿Estos objetos son para intentar ganarse el favor de alguien?"
 
-"¿Quién se atrevería a decir que esto es un buen augurio? Con altares en todas direcciones, simplemente pedir un poco de tranquilidad ya es lo mejor que se puede esperar", dijo Gao Ju, secándose el sudor de la frente. "Yo y Yang Gonggong somos uno solo; sin importar cuánto cueste, debemos hacer todo lo posible para servir".
+"¿Quién se atrevería a decir que esto es un buen augurio? Con altares en todas direcciones, simplemente pedir un poco de tranquilidad ya es lo mejor que se puede esperar", dijo Gao Ju, secándose el sudor de la frente. "Yo yel eunuco Yang somos uno solo; sin importar cuánto cueste, debemos hacer todo lo posible para servir".
 
 "No te preocupes, hermano", dijo.
 

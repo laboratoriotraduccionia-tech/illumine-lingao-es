@@ -1,10 +1,10 @@
 ## Capítulo 16: Reunión – Mecánica y Química
 
-  La discusión se centró en la fabricación de maquinaria, un campo en el que Wen Zong tiene experiencia. El tema principal fue el debate sobre qué tipo de equipos se deberían llevar. Zhan Wuyaya ya había ofrecido una pequeña fábrica de maquinaria y comunicó los tipos de equipos disponibles.
+  La discusión se centró en la fabricación de maquinaria, un campo en el que Wen Zong tiene experiencia. El tema principal fue el debate sobre qué tipo de equipos se deberían llevar. Zhan Wuya ya había ofrecido una pequeña fábrica de maquinaria y comunicó los tipos de equipos disponibles.
 
 "¿Estos equipos son capaces de producir los diversos tipos de maquinaria especializada que necesitamos? Hmm, por ejemplo, ¿calderas?"
 
-"En teoría, es completamente posible. Tomemos mi pequeña fábrica como ejemplo: no tiene muchos equipos, pero con los materiales adecuados, se puede fabricar casi cualquier equipo mecánico. Por supuesto, mi fábrica se dedica principalmente a fabricar piezas de todo tipo, y no ha realizado proyectos de maquinaria compleja. Además, hay algunas piezas pequeñas que generalmente no fabricamos", dijo Zhan Wuyaya, rascándose la cabeza. No estaba muy acostumbrado a estar de pie en el escenario y responder preguntas. "Por ejemplo, las piezas estándar, eh..." Se dio cuenta de que muchas personas no sabían qué eran las piezas estándar, así que explicó: "Son piezas mecánicas utilizadas para conexiones de fijación, como tornillos, pernos y arandelas. Es mejor fabricarlas con equipos especializados."
+"En teoría, es completamente posible. Tomemos mi pequeña fábrica como ejemplo: no tiene muchos equipos, pero con los materiales adecuados, se puede fabricar casi cualquier equipo mecánico. Por supuesto, mi fábrica se dedica principalmente a fabricar piezas de todo tipo, y no ha realizado proyectos de maquinaria compleja. Además, hay algunas piezas pequeñas que generalmente no fabricamos", dijo Zhan Wuya, rascándose la cabeza. No estaba muy acostumbrado a estar de pie en el escenario y responder preguntas. "Por ejemplo, las piezas estándar, eh..." Se dio cuenta de que muchas personas no sabían qué eran las piezas estándar, así que explicó: "Son piezas mecánicas utilizadas para conexiones de fijación, como tornillos, pernos y arandelas. Es mejor fabricarlas con equipos especializados."
 
 "Por supuesto, también se pueden fabricar estos elementos, aunque requiere un poco más de esfuerzo. Podemos construir máquinas especializadas para fabricar estos componentes estándar."
 
@@ -74,7 +74,7 @@ Esta vez, fueron los especialistas en mecánica quienes bostezaron, aunque la ma
 
 "¿Un horno de coque?"
 
-"No, para decirlo de forma sencilla, se trata de un equipo de fabricación conjunta que utiliza alquitrán de carbón para producir diversos productos químicos. Puede fabricar ácido sulfúrico, fenol, * (se omite la traducción de este término), colorantes y, por supuesto, sulfonamidas."
+"No, para decirlo de forma sencilla, se trata de un equipo de fabricación conjunta que utiliza alquitrán de carbón para producir diversos productos químicos. Puede fabricar ácido sulfúrico, fenol, anilinas y, por supuesto, sulfonamidas."
 
 "Las sulfamidas son muy útiles; así, tendremos antibióticos."
 
@@ -82,13 +82,9 @@ Esta vez, fueron los especialistas en mecánica quienes bostezaron, aunque la ma
 
 "¿Es amoniaco sintético? ¿Se utiliza para fabricar fertilizantes?"
 
-"Es de gran utilidad para nosotros. En resumen, sin amoniaco sintético, no podríamos producir nitrato."
+"Es de gran utilidad para nosotros. En resumen, sin amoniaco sintético, no podríamos producir nitrato. Sin nitrato, no podremos producir explosivos. Y por supuesto, también está la industria de fertilizantes, que depende aún más del amoníaco sintético."
 
-"Sin nitrato, no podremos producir el medicamento zha."
-
-"Por supuesto, también está la industria de fertilizantes, que depende aún más del amoníaco sintético."
-
-"Además de los equipos completos, también es necesario preparar algunos equipos químicos de repuesto: como torres de proceso, torres de absorción, torres de descarbonatación, torres de fraccionamiento, torres de agua saturada, diversos reactores, tuberías resistentes a la presión, bombas de ácido, calentadores... Creo que se necesitarán entre 500 y 600 toneladas de materiales en total."
+"Además de los equipos completos, también es necesario preparar algunos equipos químicos de respaldo, como torres de proceso, torres de absorción, torres de descarbonatación, torres de fraccionamiento, torres de agua saturada, diversos reactores, tuberías resistentes a la presión, bombas de ácido, calentadores... Creo que se necesitarán entre 500 y 600 toneladas de materiales en total."
 
 "Estas cosas, eh, ¿no se pueden producir aquí? Nuestra industria mecánica todavía está bastante desarrollada."
 
@@ -106,7 +102,7 @@ Esta vez, fueron los especialistas en mecánica quienes bostezaron, aunque la ma
 
 "¿Qué vas a hacer con el nailon, ¿medias largas?", bromeó alguien.
 
-"Fideos negros, fideos de carne... ni uno solo puede faltar."
+"Lencería negra, lencería transparente... ni una sola puede faltar."
 
 Xiao Zishan tuvo que interrumpir la atmósfera, que comenzaba a volverse cómica, y redirigir la atención de todos hacia el tema principal.
 
@@ -114,7 +110,7 @@ Xiao Zishan tuvo que interrumpir la atmósfera, que comenzaba a volverse cómica
 
 "Nosotros tampoco queremos fabricar condones, ¿por qué es absolutamente necesario usar caucho?"
 
-"Estas palabras provocaron una nueva ola de risas, y la reunión volvió a sumergirse en la discusión sobre los viajes en el tiempo."
+Estas palabras provocaron una nueva ola de risas, y la reunión volvió a sumergirse en la discusión sobre los viajes en el tiempo.
 
 Xiao Zishan apenas logró calmar a todos.
 

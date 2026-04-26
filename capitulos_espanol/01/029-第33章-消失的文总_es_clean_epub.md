@@ -52,7 +52,7 @@ Tres personas estuvieron en la habitación de Wen Zong durante la mitad del día
 
 Después de discutirlo, se decidió que Wang Gong llevara primero el dinero y los bienes de vuelta, informaría al Comité Ejecutivo sobre el asunto, y luego convocaría a varios profesionales para que examinaran las huellas. Xiao Zishan y Bei Wei permanecerían aquí para continuar investigando.
 
-Xiao Zishan llamó a la familia Gao Qing y a Zhao Chang, y les interrogó sobre cualquier evento inusual que hubiera ocurrido recientemente, incluyendo lo que sucedía en la casa de los Gao. Después de mucho preguntar, solo pudo averiguar de la boca de Zhao Chang que, recientemente, un tal "pequeño Yang Gonggong" iba a visitar al señor Gao, y que este último parecía tener algo en mente.
+Xiao Zishan llamó a la familia Gao Qing y a Zhao Chang, y les interrogó sobre cualquier evento inusual que hubiera ocurrido recientemente, incluyendo lo que sucedía en la casa de los Gao. Después de mucho preguntar, solo pudo averiguar de la boca de Zhao Chang que, recientemente, un tal "pequeñoel eunuco Yang" iba a visitar al señor Gao, y que este último parecía tener algo en mente.
 
 Gao Qing se enteró de esto y se puso aún más preocupado, con el ceño fruncido, y se escondió en el patio delantero para barrer. Sun Chang, en cambio, estaba mucho más tranquilo y dijo: "No es necesario preocuparse por esto de inmediato. Aunque los ladrones hayan secuestrado al señor Wen, seguramente enviarán una carta. Entonces, ya sea informando a las autoridades o negociando la liberación, los señores podrán tomar medidas".
 

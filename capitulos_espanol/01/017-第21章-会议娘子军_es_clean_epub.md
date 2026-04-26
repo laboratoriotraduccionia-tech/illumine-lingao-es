@@ -1,67 +1,79 @@
-## Capítulo 17: La reunión – La compañía de mujeres
+## Capítulo 17: La reunión – La brigada femenina
 
+Durante la reunión hicieron una breve pausa. Xiao Zishan salió un momento y vio a sus “muchachas” reunidas en la sala de descanso, riéndose y charlando animadamente. La mayoría se había escabullido poco después de que empezara la reunión. Como no había nada interesante que hacer allí, solo podían conversar.
 
-  Durante el trayecto hacia la reunión, se detuvieron un poco para descansar. Xiao Zishan vio a sus compañeras, la "nǚjū jūn", reunidas en la sala de descanso, riendo y conversando. La mayoría había salido poco después de que comenzara la reunión, ya que no había nada interesante allí, solo podían charlar. Algunas de las más jóvenes, al verlo acercarse, corrieron hacia él y lo llamaron "zǔzhǎng", "líder", como si les pareciera muy divertido.
+Las más jóvenes, al verlo, incluso se acercaron corriendo a llamarlo “¡jefe de grupo! ¡jefe de grupo!”, como si les resultara divertido.
 
-Xiao Zishan reunió a las "niñas soldado" y dijo: "Reúnanse aquí dentro, el grupo de logística organizará una pequeña reunión."
+Xiao Zishan reunió a las chicas: "Adentro hicieron un receso. Aprovechemos para que el grupo de logística tenga una pequeña reunión."
 
-"Está bien", dijo una de las mujeres. "Diga lo que quiera, Chang. Jajajajaja". La reunión de las mujeres había despertado su espíritu juguetón.
+"Bueno."
 
-Xiao Zishan estaba sentado allí, esperando a que la risa y la alegría de ellas disminuyeran gradualmente. Notó que se volvían más silenciosas cuando su entusiasmo no encontraba respuesta en los hombres.
+"Ahora, hable, jefe de grupo, jajajaja."
 
-"Nuestro departamento de asuntos generales, para decirlo de manera sencilla, se encarga de la logística." Él miró a las chicas del departamento: había un total de ocho personas, y aparte de la señora de más de cincuenta años, la mayoría tenían entre veintitrés y treinta años, solo una tenía poco más de veinte, pero parecía bastante normal.
+Al juntarse, el entusiasmo desbordado de las mujeres salió a la superficie.
 
-Él había revisado los formularios de registro personal que ellas habían completado. Excepto por la señora de más de cincuenta años que había indicado "ama de casa", las otras seis habían trabajado anteriormente. Li Yuanyuan era asistente administrativa, y las otras cinco también tenían trabajos similares en el área administrativa. Las mujeres que desempeñaban trabajos técnicos habían sido asignadas a otros grupos especializados, mientras que las que estaban en el grupo de administración general, obviamente, eran estudiantes sin habilidades especiales.
+Xiao Zishan se sentó y esperó a que se les pasara un poco la risa… cuando ese entusiasmo no recibe mucha respuesta por parte de los hombres, suele apagarse solo.
 
-No es de extrañar que nadie le prestara importancia al puesto de jefe del departamento de asuntos generales; esto no es más que un "grupo sin importancia", o, para decirlo de una manera más agradable, la "segunda sección de asuntos generales".
+"Nuestro grupo de logística, dicho en pocas palabras, se encarga de todo lo relacionado con el apoyo y los suministros."
 
-"Dado que se encarga de la logística, seguramente tendrá que hacer muchas tareas pequeñas y rutinarias. Empecemos por el problema más básico: la comida. La primera tarea del departamento de administración es encargarse del suministro de alimentos."
+Miró a las integrantes: eran ocho en total. Excepto una señora de más de cincuenta años, la mayoría tenía entre veintitrés y treinta, y solo una rondaba los veinte. En general, eran bastante “normales”.
 
-"Nunca he cocinado, y lo que más detesto es cocinar". Efectivamente, fue muy efectivo; una sola bofetada fue suficiente para aturdir a un hombre inexperto.
+Había leído sus fichas: salvo la señora mayor, que figuraba como ama de casa, las demás habían trabajado antes. Li Yuanyuan era secretaria, y las otras tenían empleos administrativos similares. Las mujeres con formación técnica habían sido asignadas a otros grupos; las que quedaron en logística eran, claramente, chicas sin habilidades especializadas.
 
-"Yo tampoco", dijo una chica tímidamente, "pero se puede aprender".
+No era raro que nadie valorara mucho el puesto de jefe de este grupo: en el fondo era como una “clase de los rezagados”… o, si se quería decir bonito, “segunda sección de asuntos generales”.
 
-"A mí no me importa cocinar, ¡solo importa que ustedes se atrevan a comer! Jajaja." Esta persona adoptó una actitud desafiante, como diciendo: "Si no tienen miedo a morir, entonces déjenme cocinar para ustedes".
+"Si nos encargamos de la logística, seguro tendremos que hacer muchas tareas pequeñas y tediosas. Empecemos por lo más básico: la comida. La primera tarea del grupo será encargarse de la alimentación."
 
-"Yo puedo cocinar para todos, arroz, pan plano, fideos, todo eso. Pero con tanta gente, hay que preparar ollas grandes. Nunca he trabajado en una cocina, no sé si podré hacerlo bien", dijo la señora Cao, con las manos entrelazadas, un poco indecisa.
+"Yo nunca cociné, y encima odio cocinar", dijo una sin rodeos.
 
-Xiao Zishan sabía que el nombre completo de la señora Cao era Cao Shunhua. Después de graduarse de la escuela secundaria, se fue al campo y regresó a la ciudad mucho tiempo después. Además de haber trabajado temporalmente durante varios años en una gran empresa colectiva de un distrito, básicamente ha sido ama de casa toda su vida. Su esposo falleció hace mucho tiempo, su hija trabaja en el sector de la construcción y se divorció recientemente. Ha tenido una vida difícil, pero es una persona sencilla y resiliente, una mujer que, para usar una expresión antigua, posee las "virtudes tradicionales de las mujeres trabajadoras chinas".
+"Yo tampoco", dijo otra tímidamente, "pero puedo aprender."
 
-"Comidamos algo de la comida para llevar que hemos pedido", sugirió una mujer de mayor edad. "Hay mucha gente aquí, y habrá aún más en el futuro. No seríamos suficientes para cocinar para todos".
+"A mí no me importa cocinar… ¡si se animan a comerlo!", dijo otra, con actitud desafiante.
 
-"La calidad de las comidas preparadas no es buena, eso todos lo saben", dijo Xiao Zishan, sacudiendo la cabeza con una sonrisa. "Se puede tolerar una comida ocasional, pero vamos a estar aquí durante seis meses o un año, ¿comeremos comidas preparadas todos los días?". Hizo una pausa y, con una sonrisa sugestiva, añadió: "Todos queremos que nuestros novios, familiares, coman bien, ¿verdad?".
+"Yo sí puedo cocinar para todos: arroz, panes planos, fideos hechos a mano…", intervino la señora Cao. "Pero con tanta gente haría falta una olla grande. Nunca trabajé en un comedor, no sé si me saldrá bien…"
 
-Si estuviéramos en otro lugar, este discurso sería prácticamente lo mismo que hablar con la pared. Pero aquí es diferente; estas mujeres están dispuestas a viajar a otra dimensión por amor, lo que indica que valoran a sus parejas mucho más que las parejas comunes.
+Xiao Zishan sabía que su nombre era Cao Shunhua. Había terminado la secundaria básica y luego fue enviada al campo, regresando a la ciudad bastante tarde. Salvo unos años como trabajadora temporal en una pequeña empresa comunitaria, había pasado toda su vida como ama de casa. Su marido había fallecido temprano, y su hija trabajaba en construcción y estaba recientemente divorciada. Había tenido una vida difícil, pero era una mujer sencilla y fuerte: lo que se diría una mujer con las “virtudes tradicionales de la trabajadora china”.
 
-En cuanto a por qué se esforzó tanto en mantener el comedor, principalmente fue para adquirir experiencia en el suministro de alimentos después de viajar en el tiempo. En el siglo XVII, Hainan no tenía empresas de comida rápida.
+"Podríamos pedir comida preparada", sugirió una mujer algo mayor. "Somos muchos, y después seremos más. Cocinar nosotras no va a alcanzar."
 
-Las mujeres se miraron y guardaron silencio.
+"La calidad de esa comida no es buena, eso lo sabemos todos", dijo Xiao Zishan sonriendo. "Para un almuerzo ocasional puede servir, pero vamos a estar acá medio año, o un año… ¿vamos a comer eso todos los días?"
 
-"Zhao Xiaoqin, ¿usted trabaja en el departamento de compras de una empresa de alimentos y bebidas?"
+Hizo una pausa y, con una sonrisa persuasiva, añadió:
+"A todas les gustaría que sus novios o familiares coman bien, ¿no?"
 
-"Sí, tengo cinco años de experiencia en compras", suspiró esta mujer, que aparentaba tener cerca de treinta años.
+En otro contexto, ese argumento no habría funcionado. Pero aquí era distinto: estas mujeres estaban dispuestas a ir a otro tiempo por sus parejas, así que el peso que le daban a sus relaciones era mucho mayor que el de una pareja común.
 
-"Entonces, puedes encargarte de la adquisición", sugirió Xiao Zishan. "Puedes tratar directamente con los proveedores, seguramente tienes experiencia en este ámbito."
+Además, Xiao Zishan insistía en montar un comedor propio por otra razón: necesitaban experiencia para cuando cruzaran al otro mundo. En la Hainan del siglo XVII no existían empresas de comida rápida.
 
-"Zhao Xiaoqin dudó un momento: "No estoy familiarizada con los proveedores de esta zona".
+Las mujeres se miraron entre sí, sin decir nada.
 
-"No hay problema, ya que es tu profesión, cambiar de lugar debe ser algo muy fácil para un profesional como tú". Xiao Zishan sabía que, para motivar a alguien a trabajar, además de ofrecer incentivos económicos, lo más efectivo es reconocer su valor como profesional.
+"Zhao Xiaoqin, trabajabas en compras para una empresa de alimentos, ¿no?"
 
-"Está bien, lo intentaré. Pero tengo una condición."
+"Sí, cinco años de experiencia", respondió ella, suspirando.
 
-"Dime."
+"Entonces podrías encargarte de las compras", propuso Xiao Zishan. "Tratar directamente con proveedores es tu especialidad."
 
-"Necesito una oficina. Ya tengo mi propia computadora, pero necesito que tenga un teléfono y, además, una máquina de fax. Si es posible, sería ideal que también tuviera conexión a internet."
+Zhao Xiaoqin dudó un momento: "Pero no conozco a los proveedores de acá…"
 
-Xiao Zishan rápidamente anotó sus requisitos en el cuaderno.
+"No importa. Es tu profesión; cambiar de lugar para alguien como vos debería ser pan comido."
 
-"Hay algunos problemas con la red, y aún no se ha podido solicitar el servicio. El teléfono y la oficina funcionan correctamente. Los resolveré uno por uno."
+Xiao Zishan sabía que, para motivar a alguien, además de incentivos económicos, lo más eficaz era reconocer su valor profesional.
 
-"Necesito que elaboren un menú... una lista de recetas, para que pueda estimar la cantidad de suministros que necesito", dijo ella, aparentemente pensando en voz alta. "Verduras, carne, aves de corral..."
+"Bueno, lo intentaré. Pero tengo una condición."
 
-"Bien, así sí se crea un ambiente de trabajo. Así es como debe ser."
+"Dilo."
 
-"Xieqin, ¿es necesario comprar todo esto? Podemos pedir verduras ya cortadas."
+"Necesito una oficina. Computadora tengo, pero necesito una línea telefónica… y también fax. Y si se puede, conexión a internet."
+
+Xiao Zishan anotó rápidamente sus requerimientos.
+
+"Lo de internet está complicado por ahora. Pero la oficina y el teléfono no son problema. Te lo voy resolviendo."
+
+"Necesito que definan un menú… así puedo estimar las cantidades a comprar", empezó a murmurar, pensando. "Verduras, carne, huevos…"
+
+Bien. Ahora sí empezaba a parecer trabajo de verdad.
+
+"Xiaoqin, ¿no convendría comprar ingredientes ya preparados?", preguntó otra. "Así evitamos procesarlos nosotras."
 
 Sí, verduras prelavadas. Xiao Zishan pensó: "Yo también tenía esa idea, así que es bueno que alguien la haya mencionado, demuestra que la gente es bastante inteligente". La ventaja de las verduras prelavadas es que no requieren mucha preparación; se pueden cocinar directamente y se evita el proceso tedioso de clasificación, lavado y procesamiento. Esto es perfecto para las personas modernas que buscan comodidad.
 
@@ -73,8 +85,7 @@ Si realmente se compraran ingredientes como si fueran para un comedor de empresa
 
 "Entonces, ¿necesito ayuda de alguien más? ¿Está bien?", preguntó Zhao Xiaoqin, dudando un momento. "No sería apropiado que yo fuera la única persona encargada de esto."
 
-Como era de esperar, era un profesional experimentado, que sabía cómo actuar. Dado que entendió la situación, Xiao Zishan también quiso expresar su total respeto hacia la otra persona:
-  "Elige uno tú."
+Como era de esperar, era un profesional experimentado, que sabía cómo actuar. Dado que entendió la situación, Xiao Zishan también quiso expresar su total respeto hacia la otra persona: "Elige uno tú."
 
 "Déjame ayudarte", dijo la niña que había sugerido preparar los ingredientes. "Sé hablar cantonés".
 

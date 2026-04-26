@@ -2,11 +2,11 @@
 
 "¡Comienza ahora la primera reunión del grupo de liderazgo para la producción de cañones!"
 
-En la oficina, pequeña pero espaciosa de la fábrica de maquinaria, se colocó una pizarra. Los entusiastas de las armas, liderados por Zhan Wuyaya, jefe del departamento de maquinaria, se reunieron. La atmósfera era extremadamente animada, y todos discutían apasionadamente sobre qué tipo de cañón utilizar.
+En la oficina, pequeña pero espaciosa de la fábrica de maquinaria, se colocó una pizarra. Los entusiastas de las armas, liderados por Zhan Wuya, jefe del departamento de maquinaria, se reunieron. La atmósfera era extremadamente animada, y todos discutían apasionadamente sobre qué tipo de cañón utilizar.
 
 Esta reunión no tenía como objetivo organizar la producción, sino determinar la dirección técnica, por lo que debería llamarse "Taller sobre la dirección técnica".
 
-"Por favor, no se preocupen todavía por decidir si es mejor construir cañones de montaña de 12 libras o cañones de infantería de 92. Comencemos la discusión desde una perspectiva práctica y considerando el nivel de fabricación." Zhan Wuyaya estableció el tono de la discusión.
+"Por favor, no se preocupen todavía por decidir si es mejor construir cañones de montaña de 12 libras o cañones de infantería de 92. Comencemos la discusión desde una perspectiva práctica y considerando el nivel de fabricación." Zhan Wuya estableció el tono de la discusión.
 
   En cuanto a las capacidades de mecanizado que poseen los viajeros temporales, su nivel de procesamiento supera a todas las civilizaciones de este mundo. Ahora que han logrado producir acero, la fabricación de cañones de ánima lisa y retrocarga ya no presenta grandes desafíos técnicos. Por supuesto, existe un problema con los resortes en los cañones de retrocarga que es difícil de resolver, pero los cañones de avancarga no presentan ningún problema.
 

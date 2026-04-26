@@ -16,7 +16,7 @@ Muchas personas llegaron con muchas dudas, y algunas incluso pensaron que era un
 
 Cuando vieron las grandes cantidades de yuanes, la porcelana de la dinastía Ming y ese agujero de gusano que emitía una luz extraña, entonces se dieron cuenta de que todo era real.
 
-"Muchos huyeron inmediatamente, incapaces de aceptar algo tan increíble."
+Muchos huyeron inmediatamente, incapaces de aceptar algo tan increíble.
 
 Algunos reflexionaron durante varios días, pero finalmente se marcharon.
 
@@ -24,11 +24,11 @@ Algunos, en cambio, sintieron una emoción incontrolable y se entregaron por com
 
 Algunos, sin inmutarse ante los cambios, simplemente se registraron, se acomodaron y se unieron al trabajo.
 
-Un equipo, que es la base de una organización de viajeros temporales, se ha formado de manera preliminar.
+El equipo, que sería la base de una organización de viajeros temporales, se había formado de manera preliminar.
 
 Para facilitar la gestión y la colaboración, el comité decidió convocar a una reunión de todas las personas que ya se habían registrado, con el fin de reorganizar la organización de los viajeros temporales.
 
-  Aún no es posible discutir qué tipo de sistema político se adoptará después de los viajes en el tiempo, ya que los participantes aún no están completos. Antes de convocar una asamblea general para discutirlo, no es conveniente establecer una estructura de poder. Por lo tanto, el propósito de la reunión se limita a establecer una estructura equivalente a un departamento administrativo.
+Aún no era posible discutir qué tipo de sistema político se adoptará después de los viajes en el tiempo, ya que los participantes aún no estaban completos. Antes de convocar una asamblea general para discutirlo, no era conveniente establecer una estructura de poder. Por lo tanto, el propósito de la reunión se limitó a establecer una estructura equivalente a un departamento administrativo.
 
 La reunión se llevó a cabo en la sala de conferencias principal de la base. La sala era lo suficientemente grande para albergar a los casi cincuenta asistentes. Los muebles, aunque antiguos, eran utilizables. Xiao Zishan encontró muchos vasos de té de porcelana en un armario, así que no fue necesario usar vasos de papel desechables. Lo único que se añadió fue una pizarra blanca.
 
@@ -76,7 +76,7 @@ Wen Desi explicó brevemente la situación actual de los agujeros de gusano, las
 
 "Me llamo Jin Keshou. Le sugiero al Jefe Wen que no venda más porcelana. Sé algo sobre el mundo de los objetos antiguos: es un círculo bastante cerrado y conocido. Vender algunas piezas ahora no es un problema, pero si se siguen vendiendo constantemente, en pocos días todo el círculo de la provincia e incluso del país entero se dará cuenta. Esto es muy perjudicial para nuestro secreto. Temo que eso podría alertar a las autoridades de protección del patrimonio."
 
-"Wen Desi se inclinó hacia adelante, mostrando interés. Aunque no estaba muy familiarizado con los asuntos del mundo de los objetos antiguos, preguntó: "¿Cuál es tu sugerencia?"
+Wen Desi se inclinó hacia adelante, mostrando interés. Aunque no estaba muy familiarizado con los asuntos del mundo de los objetos antiguos, preguntó: "¿Cuál es tu sugerencia?"
 
 "Son ingredientes medicinales", dijo. "Muchos de los ingredientes medicinales tradicionales son ahora muy escasos y tienen precios muy altos. Por ejemplo, el cuerno de rinoceronte, el óxido de boro natural y el almizcle."
 

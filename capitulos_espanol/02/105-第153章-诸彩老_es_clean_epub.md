@@ -55,4 +55,4 @@ Aunque los "duan mao" (un término despectivo) tenían armas de fuego poderosas,
 
 "Es mejor no romper las reglas", dijo Hé Míng. "Mañana, el comité ejecutivo convocará una reunión para discutir las medidas a tomar. Los jefes de todos los grupos especializados deben asistir. El grupo de artillería debería enviar a más personas. El objetivo principal en este momento es la construcción de defensas en Bópǔ y el armamento de los buques de la marina".
 
-"El problema de la producción de cañones no es grave, pero el suministro de materias primas es bastante limitado", dijo Zhan Wuyaya. "Hay una gran escasez de carbón."
+"El problema de la producción de cañones no es grave, pero el suministro de materias primas es bastante limitado", dijo Zhan Wuya. "Hay una gran escasez de carbón."

@@ -26,48 +26,53 @@ Xiao Zishan sonrió y dijo: "Wang, en esta lista de regalos, solo el arroz ascie
 
 "¿No lo has oído decir? Lo enviaron aquí hace menos de medio mes. Además, las personas realmente de confianza, el señor Gao no nos las enviaría."
 
-"Quizás lo dijo a propósito. Es posible que todo lo que dijo sea una invención."
+"Quizás lo dijo a propósito. ¿Y si todo lo que contó es inventado?"
 
-"Esto también es posible. Pero después de observarlo, no me parece. Gao Qing tiene una expresión de tristeza en el rostro, es de pocas palabras, su mirada es distraída, no es una persona astuta y eficiente". Xiao Zishan miró hacia afuera y dijo: "Incluso si consideramos que el señor Gao tiene una actitud hacia nosotros que consiste principalmente en precaución y aprovechamiento, es poco probable que dedique muchos recursos a vigilarnos".
+"También es posible. Pero por lo que pude observar, no lo parece. Gao Qing tiene una cara llena de preocupaciones, es torpe en sus gestos y su mirada está apagada; no parece alguien astuto ni resolutivo." Xiao Zishan miró hacia afuera. "Dicho de otro modo, la actitud del señor Gao hacia nosotros no pasa de la desconfianza y el aprovechamiento, siendo esto último lo principal. Así que tampoco es probable que invierta demasiado en vigilarnos."
 
-"¿Y qué piensas hacer?"
+"Entonces, ¿qué pensás hacer?"
 
-"Un pequeño favor siempre debe corresponderse, ¿qué les parece esta propuesta...?".
+"Algún pequeño favor hay que darle. A ver qué les parece este plan…"
 
-Justo cuando estaban hablando, la señora de la familia Gao vino a preguntar cómo se iba a organizar la cena. Xiao Zishan miró su reloj y se dio cuenta de que ya eran las cuatro de la tarde.
+Mientras hablaban, la señora Gao vino a preguntar cómo organizar la cena. Xiao Zishan miró su reloj y se dio cuenta de que ya eran las cuatro de la tarde.
 
-"No es necesario que cenen, los invito a todos, a toda su familia."
+"No hace falta preparar la cena. Que venga toda la familia."
 
-"En realidad, me gustaría probar la comida de la dinastía Ming y ver cómo es", dijo Wang Luobin con entusiasmo.
+"La verdad, me gustaría probar cómo sabe la comida de la dinastía Ming", dijo Wang Luobin con entusiasmo.
 
-"Se dice que tiene un sabor muy intenso a especias..."
+"Dicen que usan muchas especias…"
 
-Mientras hablaba, toda la familia llegó. La señora de la familia Gao tenía una apariencia bastante correcta, aunque estaba muy delgada y morena, y permanecía callada, con la cabeza gacha, dando la impresión de ser alguien poco hábil en la conversación. Luego, miré a los dos niños: el niño tenía un aspecto común, pero sus ojos aún conservaban un brillo vivaz. Aunque intentaba mantener una apariencia seria, constantemente los observaba en secreto. La niña, en cambio, era muy diferente al resto de la familia; su piel era mucho más clara, tenía unos ojos grandes, una nariz pequeña y elegante, y era más alta que su hermano. Xiao Zishan estimó que debía tener alrededor de un metro sesenta y seis, y en secreto se preguntó por qué. Preguntó:
-  "¿Cómo os llamáis?"
+Mientras conversaban, toda la familia llegó. La señora Gao tenía rasgos correctos, pero era oscura de piel y muy delgada; mantenía la cabeza baja y no hablaba, claramente poco dada a expresarse. Luego miraron a los hijos: el chico tenía un aspecto común, aunque en sus ojos todavía brillaba cierta vivacidad. Aunque intentaba mostrarse serio, no dejaba de mirarlos de reojo.
 
-La joven no esperaba que alguien le hablara primero, así que la miró sorprendida a Xiao Zishan y, nerviosa, no pudo decir nada.
+La chica, en cambio, era distinta al resto de la familia: tenía la piel mucho más clara, ojos grandes, una nariz pequeña y bien definida, y era incluso más alta que el chico. Xiao Zishan calculó que medía más de un metro sesenta, lo que le resultó extraño.
 
-"¡El señor quiere hablar contigo!", gritó Gao Qing, y luego, haciendo una reverencia, explicó: "La joven no ha visto mucho del mundo, y no tiene un nombre formal..."
+"¿Cómo te llamás?"
 
-"Déjala que lo diga ella misma. Eres su padre, puedes ayudarla por un tiempo, pero no puedes ayudarla para siempre."
+La chica no esperaba que le hablaran primero. Miró a Xiao Zishan con sorpresa y, nerviosa, no pudo decir nada.
 
-"Yo... eh... me llamo Gao Dajie..."
+"¡El señor te está preguntando!", gritó Gao Qing, y luego añadió con una reverencia: "La chica no ha visto mundo… no tiene nombre formal…"
 
-Xiao Zishan casi escupe el té que tenía en la boca, y los señores Wang y Wen también parecían contener la risa. "Señorita Gao", este nombre es realmente muy elegante. Al mencionarlo así, observando más de cerca, la joven tiene un aspecto que recuerda un poco a Yang Ziqiong, con su figura delgada y sus largas piernas.
+"Que responda ella misma. Eres sos su padre, puedes hablar por ella un rato, pero no toda la vida."
 
-La familia Gao, con los ojos muy abiertos, observaba a los nuevos dueños, sin poder entender qué era lo gracioso de ese nombre.
+"Esta… servidora… se llama Gao Dajie…" (N. del T.: “Dajie” significa literalmente “hermana mayor”, un nombre muy poco formal y casi genérico, lo que genera el efecto humorístico.)
 
-"Con permiso de los señores...", dijo Gao Qing con una sonrisa avergonzada. "Son chicas del campo, no tienen nombres formales..."
+Xiao Zishan casi escupe el té. Wang Gong y Wen Zong también estaban a punto de estallar de risa. "Gao Dajie"… el nombre era realmente imponente. Mirándola bien, la chica tenía algo de la figura esbelta y de piernas largas de Yang Ziqiong. (N. del T.: actriz conocida internacionalmente como Michelle Yeoh.)
 
-"No, no, no hay problema", Xiao Zishan se rió a carcajadas. "Si no tiene nombre, entonces podemos elegir uno". Su peculiar sentido del humor afloró: "Podemos llamarla Gao Lujie".
+Los miembros de la familia Gao miraban atónitos a sus nuevos señores, incapaces de entender qué tenía de gracioso ese nombre.
 
-"¿Cuál es nuestro objetivo?", preguntó Wen Desi.
+Gao Qing sonrió con torpeza: "Disculpen que se rían… es una chica de campo, nunca se le dio un nombre formal…"
 
-Wang Luobin: "¡No tiene caries!"
+"No pasa nada, no pasa nada", rió Xiao Zishan. "Si no tiene nombre, le ponemos uno."
 
-Tres personas, sin preocuparse por su apariencia, comenzaron a reír a carcajadas.
+Se le escapó su humor algo retorcido: "Que se llame Gao Lujie." (N. del T.: “Gao Lujie” es la transliteración china de “Colgate”, la marca de pasta dental.)
 
-La familia Gao Qing vio que estas tres personas, desde que supieron el nombre de la hija, no paraban de reír de forma extraña, lo que les causó temor, y simplemente sonreían tímidamente a un lado.
+Wen Desi: "¿Nuestro objetivo?"
+
+Wang Luobin: "¡Cero caries!" (N. del T.: es el eslogan publicitario de Colgate, de ahí el chiste.)
+
+Los tres ya no pudieron contenerse y estallaron en carcajadas.
+
+La familia Gao, viendo a los tres hombres reír sin parar desde que supieron el nombre de la chica, empezó a sentirse incómoda y hasta algo asustada, limitándose a sonreír con timidez a un lado.
 
 Wen Desi pensó que, según los estándares modernos, esta joven era una belleza en potencia. Sin embargo, a las mujeres de este tipo no les gustaba a las personas de la dinastía Ming. Lamentablemente, su figura era un poco delgada, y con los recursos limitados disponibles, no sabía si un buen cuidado podría mejorarla aún más.
 
@@ -87,7 +92,7 @@ Xiao Zishan, cuando era niño, practicó caligrafía durante unos días y no hab
 
 "Tu vida es difícil y no es fácil. Así que, cada mes, te daré media piedra de arroz para toda tu familia. Esto cubrirá los gastos de comida de tu familia."
 
-"¡Señor Gao es muy generoso!", exclamó Gao Qing, con lágrimas de gratitud, casi arrodillándose. Media piedra de arroz era suficiente para alimentar a toda su familia durante un mes. Con una sola palabra, este señor le había aumentado cinco qian de plata.
+"¡El señor es muy generoso!", exclamó Gao Qing, con lágrimas de gratitud, casi arrodillándose. Media piedra de arroz era suficiente para alimentar a toda su familia durante un mes. Con una sola palabra, este señor le había aumentado cinco qian de plata.
 
 "Aquí tiene veinte taels de plata. Nosotros nos movemos en el mar, y el viaje es difícil. Le adelantamos un año de salario. El resto se destinará a los gastos de mantenimiento de este lugar, y usted puede recoger el arroz que necesite." Xiao Zishan hizo una pausa y preguntó: "¿Sabe leer?"
 

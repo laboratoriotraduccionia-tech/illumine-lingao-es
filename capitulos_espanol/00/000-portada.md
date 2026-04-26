@@ -1,0 +1,5 @@
+# Illumine Lingao
+
+## Traducción no oficial al español
+
+Autor original: 吹牛者 (Chuī Niú Zhě)

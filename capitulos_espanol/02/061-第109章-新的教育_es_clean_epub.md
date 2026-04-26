@@ -1,0 +1,67 @@
+## Capítulo 105: Una nueva forma de educación
+
+  "¿No podemos mezclar a los adultos y a los niños?"
+
+"Se puede dividir en dos grupos, uno para el turno de día y otro para el turno de noche", propuso Du Wen. "Los niños trabajarán durante el día, y por la noche se cambiará al grupo de adultos."
+
+"No puedes hacer eso", Wang Luobin negó con la cabeza repetidamente. "No has vivido en el campo... incluso los niños en el campo son una fuente de mano de obra. Durante el día, van a la escuela, y los aldeanos seguramente no estarán de acuerdo".
+
+"Du Wen pensó que también tenía razón, y comparado con otras opciones, ella estaba más interesada en los cursos nocturnos para adultos: 'Entonces, hagamos que sean clases de medio día, y concentrémonos en mejorar la calidad de los cursos nocturnos...'"
+
+"Es aún más absurdo", dijo Chen Haiyang, negando con la cabeza, antes de que Wang Luobin pudiera hablar. "Mi familia tenía familiares que fueron a trabajar en el campo. En esa época, también era común organizar escuelas nocturnas, pero siempre se suspendían durante las temporadas de trabajo agrícola, porque los agricultores tienen un trabajo muy duro y necesitan descansar después de un día de trabajo. ¿Quién querría asistir a una escuela nocturna en esas condiciones?"
+
+"Es correcto", Wang Luobin asintió repetidamente. "Además, antes de que las personas comprendan los beneficios de la cultura, es muy difícil atraerlas para que estudien."
+
+"Du Wen vio que todos se oponían y se sintió un poco impaciente: "¿Así que no se hará?"
+
+"Sí, primero podríamos organizar un programa de capacitación, algo así como una educación de élite", dijo Xi Yazhou, medio en broma.
+
+"La llamada educación de élite, de la que hablaba Xi Yajiang, en realidad es un programa de capacitación para cuadros. Este tipo de curso de formación intensiva y temporal se utilizaba con frecuencia en el trabajo local: para cultivar a activistas que se acercan a la organización, aunque sus objetivos sean diferentes. A través de la capacitación, se busca elevar su conciencia, fortalecer su disciplina y organización, enseñarles métodos de trabajo, y finalmente convertirlos en los engranajes que impulsan a las masas en innumerables organizaciones de base."
+
+Por supuesto, es fácil decirlo, pero difícil de lograr; abrir una situación en un lugar es lo más difícil. Especialmente en una sociedad rural tradicional, bastante cerrada y conservadora. La crisis que enfrentaba la salinera le brindó a los viajeros temporales una excelente oportunidad para integrarse en la sociedad local, y, en este sentido, Gou Dahu fue un gran contribuyente.
+
+Entonces, ¿quiénes son los participantes activos? Incluyen a la familia Tan, la hija del jefe de la aldea Tan, y algunos jóvenes que son amigos de Tan Chenqing. Las mujeres solteras, naturalmente, no pueden asistir a clases nocturnas con un grupo de hombres, por lo que, al principio, esta escuela nocturna solo estaba compuesta por hombres.
+
+Wang Luobin no se apresuró a convocar a todos, sino que primero buscó a Tan Guihuang, quien le dijo que quería establecer una escuela para los niños, para enseñarles a leer y a usar el ábaco. Tan Guihuang mostró cierta reticencia, diciendo que los niños del pueblo normalmente ayudaban con las tareas agrícolas, y que si los enviaban a la escuela, sus padres probablemente no estarían de acuerdo. Wang Luobin aseguró que las clases serían solo la mitad del día, garantizando que no interferiría con el trabajo agrícola. Tan Guihuang accedió a medias y prometió hablar con ellos. Para mayor seguridad, Wang Luobin también envió a Zhang Xingjiao para que persuadiera a la gente. Xi Yazhou inicialmente quería prometer que a los niños que vinieran a estudiar se les proporcionaría comida gratis, pero esto era demasiado difícil considerando las cada vez menores reservas de alimentos.
+
+Al final, muchos niños llegaron. La mayoría de la gente, aunque consideraba que la educación de sus hijos no era muy útil, pensaba que aprender algunas letras y saber hacer cuentas era algo bueno para las familias campesinas. Además, la escuela solo duraba la mitad del día, lo que no afectaba el trabajo en el campo.
+
+  Las clases en la escuela duraban cuatro horas cada tarde, desde las 12 del mediodía hasta las 4 de la tarde. Sin embargo, como la mayoría de los habitantes de la antigüedad, los mineros de sal tenían poca conciencia del tiempo. Para ayudar a establecer este concepto, se instaló un altavoz eléctrico en el campamento del templo de Gé Hong, que reproducía automáticamente una señal cada hora: "Ahora es la hora de Lingao, son las X en punto". Xi Yajian pensó que, en lugar de intentar explicarles conceptos de horas y minutos, era más útil utilizar este método sutil.
+
+El equipo de trabajo demostró un gran entusiasmo por este programa educativo, y el curso se diseñó para ser sencillo y práctico. El contenido principal en esta etapa es la alfabetización y la aritmética.
+
+  En general, la lectura en chino requiere dominar al menos 500 caracteres básicos, por lo que el plan de alfabetización de Wang Luobin se basa en estos 500 caracteres fundamentales. Para esta escuela, él regresó especialmente a Bairencheng y consultó en la base de datos de computadoras del grupo de inteligencia, donde encontró dos libros de texto adecuados: la edición de 1959 de "Material de alfabetización rural" y la edición de 1971 de "Matemáticas prácticas rurales". Ambos fueron materiales educativos especialmente editados para la educación rural en aquella época, y son fáciles de entender y muy específicos. En particular, las "Matemáticas prácticas rurales" incluyen no solo operaciones aritméticas básicas, sino también cálculos de rendimiento por mu, cálculos de volumen y mediciones geométricas simples, todo con un enfoque práctico.
+
+  Sin embargo, estos dos libros de texto contienen muchas expresiones con un marcado carácter de la época, como la frase "el gran líder Mao Zedong" que aparece con frecuencia, y "entre la gran clase trabajadora...". Wang Luobin copió y reescribió el texto durante toda la noche, y buscó a Zhou Dongtian en la sala de impresión para que imprimiera 30 copias.
+
+"¿30 copias?", pensó Zhou Dongtian, quien ahora mismo se estaba volviendo un poco tacaño; sus reservas de papel aún no se habían reabastecido. Además, se trataba de dos libros, no de unos pocos folios o un periódico de gran formato.
+
+"Sí, 30 conjuntos, material didáctico para principiantes. ¡Cuanto antes, mejor!"
+
+"Zhou Dongtian revisó las pruebas y vio que aún había muchas ilustraciones. Se quedó pensando, ya que solo el trabajo de creación de los mapas era considerable. Sin embargo, aceptó la solicitud y prometió entregar la versión final lo antes posible."
+
+  Sin embargo, en el material didáctico, Wang Luobin también incluyó contenido de enseñanza de pinyin en chino, utilizado en la enseñanza de lengua materna en la escuela primaria. Wang Luobin siempre ha creído que los caracteres simplificados y el pinyin son dos herramientas fundamentales para la expansión de la educación básica en la nueva China.
+
+  Él le mostró este conjunto de materiales didácticos a Zhang Xingjiao, y como era de esperar, recibió la oposición de este estudiante de mediana edad. Desde la perspectiva de Zhang Xingjiao, estos "caracteres vernáculos" no eran tan impactantes, pero se opuso a que se incluyeran en los materiales didácticos, argumentando: "Esto perjudica la educación de los niños". Comentó.
+
+Wang Luobin dijo que esto era principalmente para simplificar la educación y facilitar la lectura y escritura de los niños. Además, el propósito de educar a estos niños no era prepararlos para los exámenes imperiales ni para la poesía, sino simplemente enseñarles a escribir sus nombres, a redactar cartas y a leer libros sencillos.
+
+"Sin embargo, Zhang Xingjiao todavía se sentía incómodo. En realidad, él reconocía casi todos esos caracteres simplificados. En su opinión, los caracteres simplificados solo podían usarse como herramienta, no como base: 'Si enseñas a tus estudiantes de esta manera, los harás morir de risa. Los artículos que escriban estarán llenos de caracteres simplificados, y aunque la gente no se ría de ellos, nosotros nos sentiríamos avergonzados de ser maestros'". Al decir esto, su emoción se intensificó, y parecía que estaba dispuesto a defender los caracteres tradicionales a toda costa.
+
+Zhang Xing, que impartía las clases de alfabetización, no estaba muy convencido. A su parecer, para la educación infantil, el "Qianziwen" y el "Baijiaxing" eran suficientes, y los nuevos libros eran innecesarios. Al ver ese libro de alfabetización, impreso con gran cuidado, exclamó con pesar, y además, tachó muchas frases y expresiones del libro como "incomprensibles".
+
+Wang Luobin, después de soportar durante más de una hora las críticas de Zhang Xingjiao, le propuso una competencia justa: ambos llevarían un grupo de estudiantes y verían quién lograba que sus alumnos aprendieran a reconocer y escribir los caracteres primero. Esto sorprendió a Zhang Xingjiao. Él revisó cuidadosamente el libro de texto de reconocimiento de caracteres y, después de un rato, dijo: "Sus caracteres simplificados son más fáciles de reconocer y escribir, así que naturalmente tienen una ventaja...".
+
+"Es cierto, nuestro sistema de caracteres simplificados tiene la ventaja de ser fácil de aprender y recordar. La gente no necesita tener conocimientos muy profundos; aprender a leer es simplemente para facilitar la vida", explicó Wang Luobin con paciencia. Zhang Xingjiao fue el primer intelectual con el que entraron en contacto, y su actitud da una idea general de cómo los intelectuales de la dinastía Ming veían la cultura de los viajeros temporales.
+
+Wang Luobin, después de un esfuerzo de persuasión, cedió un poco más: propuso enseñar tanto los caracteres simplificados como los tradicionales, pero Zhang Xing todavía no estaba muy dispuesto. Sin embargo, el hecho de que estas personas de ultramar pudieran ofrecer educación a niños pobres ya era algo muy admirable. Además, él mismo estaba trabajando para ellos, así que no podía crear una situación demasiado tensa. Pensando en esto, finalmente aceptó ayudar a Wang Luobin con la enseñanza. Los eruditos de la antigüedad, en cierta medida, aún tenían un sentido de responsabilidad hacia la sociedad, a diferencia de la actualidad, donde la mayoría de los profesores buscan simplemente un trabajo seguro con vacaciones pagadas.
+
+Sin embargo, para Wang Luobin, esto no fue suficiente. No logró convencer realmente a un intelectual de la época Ming de sus argumentos.
+
+Para evitar interferencias, en la etapa inicial, él comenzó la enseñanza con el alfabeto pinyin, enseñando a los niños la pronunciación de las letras pinyin. Al aprender el pinyin, también dominan la pronunciación correcta del mandarín. Después de todo, los viajeros temporales deben usar el mandarín para la educación. La capacidad de aprendizaje del lenguaje de los niños es mucho mayor que la de los adultos, lo que hace que la educación sea mucho más efectiva.
+
+  Desde el punto de vista de Zhang Xingjiao, el método de enseñanza de Wang Luobin era completamente incomprensible. Para un erudito confuciano como Zhang Xingjiao, el método de educación inicial siempre había sido de tipo impositivo: al ingresar, los estudiantes comenzaban leyendo el "Sanzi Jing", el "Qianzi Wen", el "Baijia Xing" y poemas de niños prodigio, y aprendían a escribir copiando caracteres con pincel y tinta roja. Los profesores apenas explicaban, simplemente hacían que los niños leyeran en voz alta y memorizaran repetidamente. Este tipo de enseñanza generalmente continuaba hasta que se completaba el estudio de los "Cuatro Libros". Los estudiantes generalmente podían recitar los "Cuatro Libros" de memoria y reconocían la mayoría de los caracteres.
+
+  Sin embargo, cuando Wang Luobin daba clase, comenzaba enseñando desde cosas que parecían a sus alumnos un conjunto de símbolos extraños y complicados. Utilizaba, por ejemplo, imágenes como "e" representando una cabeza de ganso, una forma muy intuitiva de enseñar la pronunciación, y los estudiantes memorizaban estas imágenes como si estuvieran cantando. Luego, utilizaba estos símbolos para indicar la pronunciación de cada carácter. Al ver esto, Zhang Xing教 comprendió que las letras del alfabeto pinyin, de las que el comandante Wang hablaba constantemente, se utilizaban para indicar la pronunciación, de manera similar a los métodos de pronunciación 正切反切 (zhèngqiē fǎnqiē) que estudiaban los eruditos. (Nota: existen varios métodos que utilizaban los antiguos para indicar la pronunciación de los caracteres, siendo 正切反切 uno de los más comunes, y un contenido obligatorio en los estudios de lengua china).
+
+Sin embargo, Zhang Xingjiao también reconoció que, después de aprender este sistema de "letras en pinyin", era mucho más rápido reconocer caracteres nuevos. Incluso algunos niños más inteligentes podían reconocer los caracteres directamente basándose en la transcripción fonética proporcionada en el libro de texto. Este método rápido despertó gran interés en él, y continuó preguntando a Wang Luobin quién había ideado este sistema. Wang Luobin dijo que este sistema de pinyin y los caracteres simplificados fueron el resultado del esfuerzo de toda una vida del erudito "Wen Kaivei", cuyo propósito era permitir que todos los ciudadanos de China pudieran leer y escribir. Este ideal tan grandioso impresionó profundamente a Zhang Xingjiao.

@@ -1,0 +1,72 @@
+## Capítulo 158: Atacar el corazón es lo primero (I)
+
+
+"La nueva unidad ha estado en entrenamiento durante medio mes. Ma Qianzhu notó que Wei Aiwen no mostraba ninguna intención de comenzar el entrenamiento político, y se preocupó: "Oye, Wei, ¿cuándo vas a dar el entrenamiento político a todos? Llevas dos semanas, y otras unidades ya han comenzado sus actividades. Tú eres la unidad modelo del batallón de instrucción, ¡tienes que dar el ejemplo!"
+
+"Wei Aiwen sonrió levemente, mostrando confianza: "Ma Zongchang, por favor, tranquilízate. Tendremos una reunión esta noche, y te aseguro que quedarás satisfecho".
+
+"¿De verdad? ¡Tienes que asegurarte de que todo salga bien!", dijo Ma Qianzhu, con una mezcla de incredulidad y sin hacer más preguntas.
+
+De hecho, durante estos días, Wei Aiwen no ha estado inactivo. Para llevar a cabo su trabajo de la mejor manera, ha dedicado toda su energía. No solo se ha sumergido en la unidad, para comprender la situación de los soldados, sino que también ha realizado un trabajo de "reconocimiento", observando cómo otras unidades realizan entrenamiento político. Descubrió que el entrenamiento político en las nuevas unidades se limita a unos pocos métodos: discursos, discursos de los líderes, informes políticos; clases, campañas de alfabetización... A Wei Aiwen se le ocurrió una idea: ¿por qué no implementar algo que combine lo antiguo con la innovación?
+
+  Poco a poco, la noche se acercaba, y las estrellas brillaban en la oscuridad. Aquí, a diferencia de las ciudades del siglo XXI, incluso de noche, las farolas están encendidas, y en los edificios altos, cada hogar tiene luces eléctricas encendidas, televisores, lo que hace que el cielo se vea blanquecino, y solo se pueden ver las estrellas más brillantes; la contaminación atmosférica también es muy grave, el cielo siempre está brumoso, lo que hace que la gente se sienta oprimida. A veces, por la noche, al mirar hacia la zona industrial, el cielo parece ligeramente rojizo. En la base, nadie se atreve a encender las luces, ya que consumiría una cantidad costosa de energía eléctrica, y no hay mucho más que hacer, excepto ver contenido audiovisual. Los campesinos se acostaban temprano. Alrededor, todo estaba en completa oscuridad. Una fina luna apenas había aparecido por el este, emitiendo un brillo plateado. Arriba, la Vía Láctea, que se extiende de este a oeste, brillaba intensamente, con innumerables estrellas densamente agrupadas, la mayoría concentradas en la Vía Láctea, y se podía apreciar una sensación de profundidad. Wei Aiwen miró hacia el cielo estrellado, muy sorprendido. Los niños que crecieron en la ciudad nunca habían visto un paisaje así.
+
+Los nuevos reclutas ya se habían reunido, sentados nerviosamente en círculo al aire libre. Lingao se encuentra en una zona de clima subtropical, y la temperatura en invierno supera los veinte grados Celsius. Encender una fogata era un poco demasiado caloroso, así que colocaron una lámpara de aceite en el centro. Las llamas rojas danzaban sobre el algodón, y el humo grisáceo se elevaba, oscureciendo aún más el cobre de los cucharones.
+
+La luz del fuego se reflejaba en los rostros de los soldados, y todos estaban muy curiosos: ¿qué contenido tendría la instrucción política que el nuevo "líder" debía impartir a todos?
+
+Wei Aiwen se levantó, miró a su alrededor y dijo: "Hoy he reunido a todos aquí para realizar un entrenamiento político y celebrar una reunión temática. El tema es 'ayer, hoy y mañana'. Les pido que sean honestos, que expresen libremente sus opiniones, que hablen de sus experiencias pasadas, que describan la situación actual y que compartan sus visiones sobre el futuro."
+
+"Todos se miraron unos a otros, preguntándose qué era eso. Nadie sabía qué hacer, y nadie se atrevió a hablar. El ambiente se volvió repentinamente frío y silencioso."
+
+Wei Aiwen comprendió esta situación; la aceptación de nuevas ideas siempre requiere un proceso. Inmediatamente, dijo: "Entonces, empecemos conmigo". Wei Aiwen ya había planeado esto: aprovecharía la oportunidad para inventar una historia sobre su pasado y difundirla, con el fin de eliminar la distancia entre él y los soldados.
+
+"¡Primero, les cantaré una canción!", dijo Wei Aiwen, levantando ligeramente la cabeza y mirando la luna en el horizonte oriental. Respiró hondo, acumuló emociones y comenzó a cantar suavemente:
+
+"El cielo está lleno de estrellas, la luna brilla intensamente. Estamos reunidos en nuestra comunidad para expresar nuestras penas y denunciar injusticias. Los malvados terratenientes deben pagar por el sufrimiento y las lágrimas de los pobres. Miles de pensamientos y emociones me inundan el corazón. Las lágrimas de tristeza son interminables y pesan en mi corazón. No olvidaré aquel año, cuando el viento del norte era frío y penetrante. El terrateniente irrumpió en mi casa, rodeado de secuaces. Dijeron que le debíamos dinero y comida. El terrateniente exigía el pago, como un demonio viviente. No olvidaré aquel año, cuando mi padre estaba enfermo en la cama. El terrateniente lo obligó a trabajar como jornalero, y sus lágrimas eran de sangre. Estaba tan delgado que solo se veían sus huesos, y su rostro estaba amarillento por la enfermedad. El terrateniente, con su corazón oscuro, llevó a mi padre y a mi madre a la muerte. No olvidaré aquel año, cuando la miseria no tenía fin. Sin salida, me vi obligado a trabajar para el terrateniente. Me levantaba a medianoche y regresaba al atardecer. Pobre de mí, este huérfano, ¿a quién puedo pedir ayuda?"
+
+La voz grave, combinada con el canto tembloroso y lleno de quejidos, era verdaderamente conmovedora. Los soldados sintieron una profunda empatía, algunos recordaron sus propias historias y sus ojos se enrojecieron, e incluso algunos comenzaron a sollozar en voz baja.
+
+Wei Aiwen también sintió un impacto en su interior. Esta situación, esta escena, le llenaban de una sensación de opresión y pesadez. Recordaba que, hace tiempo, cuando vio esta canción en internet, pensó que la letra era divertida y la cantó, sin imaginar que ahora sería útil. Ay, en aquel momento, no había percibido la tristeza, el sufrimiento y la ira que se expresaban en la canción, pero al ver las reacciones de los demás, supo que sus estudios de mandarín no habían sido en vano.
+
+Alguien tomó la mano de Wei Aiwen. Era Wang Tao, uno de los *viajeros temporales* que venían juntos. Era de la región norte, alto y fuerte, y parecía imponente entre los nativos de baja estatura. Este hombre, al ser un instructor, era especialmente bueno contando historias y exagerando. Fue especialmente asignado al grupo para brindar apoyo. Dijo en voz baja: "Comandante, no se entristezca. Nuestra compañía es su hogar. Todos somos sus hermanos, todos somos su familia."
+
+王涛, con la voz entrecortada, no pudo continuar. Se frotó la nariz y comenzó a relatar el pasado: "Mi familia originalmente tenía alrededor de diez acres de tierra, tierra fértil que era suficiente para mantener a mi familia de cuatro personas durante un año. El señor Gao Ju se fijó en nuestra tierra y insistió en comprarla. Mi padre se negó rotundamente; era la base de la vida de toda la familia. Ese terrateniente siempre buscaba oportunidades para apoderarse de nuestros campos. Un año, nuestra vaca se escapó y mordisqueó un poco de hierba en la tumba del terrateniente. El terrateniente alegó que había arruinado su feng shui y arrestó a mi padre, dándole una paliza terrible. Mi padre era mayor y no pudo soportarlo; fue llevado a casa y murió tres días después". Wang Tao se quedó sin aliento, como si algo se le hubiera atorado en la garganta, y su rostro estaba lleno de tristeza, con los ojos a punto de llenarse de lágrimas. Después de un largo silencio, recuperó el aliento y dijo: "Mi madre ya no estaba muy bien de salud, y ese susto la mató dos días después". Finalmente, no pudo contenerse y las lágrimas comenzaron a rodar por sus mejillas, dejando a Wei Aiwen boquiabierto. "¿Cómo es posible que no seas de la Escuela Nacional de Cine o de la Academia Central de Teatro?"
+
+"No mucho después, un día, la casa de su familia se incendió y lo acusaron de haber sido el responsable, intentando arrestarlo y llevarlo ante las autoridades. ¿Cómo podría una familia pobre ganar una demanda contra un terrateniente? Asustado, huyó durante la noche. Llegó a la ciudad del condado y, a través de contactos, supo que la tierra de su familia había sido tomada por el señor Gao Ju, que su hermana menor había sido capturada y convertida en sirvienta, supuestamente como compensación por sus pérdidas, y que luego, nadie sabía a dónde la había vendido esa bestia". Wang Tao estaba llorando desconsoladamente.
+
+Wei Aiwen observaba la actuación de Wang Tao y, en secreto, la admiraba.
+
+Un joven soldado ya no pudo contenerse y, lleno de indignación, exclamó: "¡Esto es realmente una atrocidad!".
+
+"Antes, trabajaba como jornalero para la familia Chen Yun en nuestro pueblo, cuidando de los patos. ¡Este tipo sin escrúpulos! Una vez, una pequeña pata fue llevada por una comadreja, y él me azotó con un látigo de cuero y me acusó de haber perdido un pato grande. Normalmente, comía las sobras y el arroz rancio de su casa, y apenas podía saciarme, pero él lo registraba todo como comida de buena calidad. Cuando hacía frío, si me enfermaba, no podía seguir trabajando, así que fingía darme dos prendas viejas y rotas para que me vistiera, pero luego me acusaba de haber recibido ropa nueva. A veces, cuando estaba muy enfermo y tenía fiebre, me obligaba a cuidar de los patos, y él me acusaba de faltar al trabajo por enfermedad. Cuando llegaba el Año Nuevo, mostraba el libro de cuentas, y al final, ¡resultaba que yo le debía dinero! Intenté hablar con él, pero no me escuchó; me enfadé tanto que lloré, y él, con falsa compasión, dijo: "¿Te duele dejarme?". Entonces, dijo: "Continúa trabajando el año que viene". ¡Eso me enfureció!," dijo el pequeño soldado, apretando los dientes, con los ojos brillando a la luz de la lámpara, como si estuviera a punto de explotar.
+
+Una vez que alguien comenzó, los soldados se relajaron y, uno tras otro, se pusieron de pie, ansiosos por expresar sus frustraciones. Cada uno superaba al otro.
+
+"Soy un campesino al servicio del ejército, y para ser honesto, mis antepasados eran incluso de origen manchú. Pero durante generaciones, mi familia ha sido una fuerza laboral barata para los oficiales. ¿Dónde está la camaradería? No se trata de ser descuidado en el trabajo; incluso si uno es un poco lento, es golpeado hasta la muerte. Si alguien muere, es arrastrado y nadie pregunta ni se atreve a preguntar. Incluso si alguien muere afuera, se debe informar a las autoridades. Aquí, en la guarnición, es como morir como un perro. La gente dice que los funcionarios de los condados y prefecturas son corruptos, pero no saben cuánto más corrupto es aquí, en la guarnición."
+
+"Wei Aiwen sabía que él era originario de una familia de soldados reclutados, y para disminuir el temor que la gente común sentía hacia el ejército, preguntó intencionalmente: "¿Qué tal si hubiera una guerra?"
+
+"¿Guerra?", dijo con amargura uno de los soldados reclutados. "Nosotros, estos soldados reclutados, apenas podemos cubrirnos, ¿y vamos a ir a la guerra? Estamos peor que la gente común. Cuando la ciudad recluta soldados, la gente común puede recibir algo de dinero y arroz, pero nosotros, estos soldados reclutados, ni siquiera recibimos lo suficiente para establecer un hogar; todo se lo comen los oficiales de rango medio y alto. Si vamos a la ciudad, solo recibiremos una comida, no podremos entrar en la guardia personal, y algunos incluso mueren de hambre". Escupió y dijo: "¡Que los hijos de los demonios sean los que sirvan al gobierno!".
+
+"Cuanto más hablaba, más entusiasmo mostraba: 'Los soldados del gobierno, aunque se les llame así, son peores que los bandidos. Son más perjudiciales para el pueblo que cualquiera, y en la batalla, son más despiadados que nadie'".
+
+"Sí, sí, soy de la zona norte, escapé de allí". Wang Tao rápidamente se frotó los ojos. "He oído que hay una guerra entre Liaodong y los tártaros, y que miles de personas no pudieron derrotar a unos pocos cientos de tártaros. Lo peor es que incluso unos quince tártaros persiguieron a cientos de soldados, y las personas que huían fueron perseguidas hasta morir de agotamiento. Con esta situación, ¿de qué sirve seguir luchando? Un hermano mío, hace unos años, no pudo seguir viviendo allí y fue a unirse a Liaozhen, pero no sé si está vivo o muerto". Dicho esto, se secó algunas lágrimas.
+
+"Ay, todas las familias son así. Si no fuera porque el gobierno nos presiona tanto, empujándonos a los pobres a un punto sin salida, ¿quién se arriesgaría? Nuestra familia viajó miles de kilómetros hasta Hainan. Creíamos que habría muchas tierras baldías y que podríamos sobrevivir, pero resultó que incluso la tierra aquí es difícil de cultivar, no hay agua para regar, así que los terratenientes compran el agua, y es mucho más difícil que cultivar en nuestra tierra natal. Literalmente, toda una familia ha sido arruinada. ¡Ahora soy un solterón!"
+
+"Aún así, el señor Gao es mejor aquí", dijo Wang Tao, aprovechando la oportunidad para seguir hablando. "Vine a este lugar para ayudar a los señores, tengo suficiente comida y ropa. Los señores también nos pagan por el trabajo. ¡Nuestros compañeros de la cooperativa que lo hacen bien ya viven en casas!"
+
+"¿Edificios? ¿Esas construcciones de ladrillo donde viven los señores de pelo corto? No digas tonterías", dijo alguien, expresando su incredulidad.
+
+"¿Estás diciendo tonterías? ¡Ven conmigo mañana a la comuna para que lo veas!"
+
+"Si fuera verdad, estaría bien. No necesito una casa grande, solo una pequeña cabaña para protegerme del viento y la lluvia, y eso sería suficiente", dijo un joven soldado con admiración.
+
+"Es verdad". Era un soldado que había ingresado al ejército desde la comuna. "Pero es necesario tener la cualificación de trabajador. Yo vine al ejército precisamente por eso, porque al ser soldado, automáticamente se obtiene la cualificación de trabajador."
+
+"Todavía se puede cultivar en la parcela personal", dijo un soldado de la cooperativa, mostrando un gran interés en las parcelas personales.
+
+"¿Podemos nosotros también tener algo así?", preguntó alguien en voz baja.
+
+  Nota: La trama de este capítulo fue proporcionada por Wei Aiwen del foro SB, y se han realizado algunas ampliaciones y modificaciones.

@@ -17,7 +17,7 @@ Justo en ese momento, una lancha de desembarco emitió un fuerte y vibrante soni
 
 Las personas que no tenían tareas asignadas se dirigieron juntas hacia la playa, y detrás de ellas, un grupo de decenas de niños y aldeanos curiosos los seguía.
 
-  La lancha de desembarco tenía un calado muy profundo, por lo que no podía acercarse demasiado. Xi Yazhou abrió el walkie-talkie y, después de establecer contacto con la embarcación, descubrió que, además de los alimentos, telas y armas que el equipo de trabajo había solicitado el día anterior, también se habían transportado una serie de artículos de uso cotidiano y materiales de construcción.
+La lancha de desembarco tenía un calado muy profundo, por lo que no podía acercarse demasiado. Xi Yazhou abrió el walkie-talkie y, después de establecer contacto con la embarcación, descubrió que, además de los alimentos, telas y armas que el equipo de trabajo había solicitado el día anterior, también se habían transportado una serie de artículos de uso cotidiano y materiales de construcción.
 
 "Encuentren un lugar para anclar con una profundidad de agua de 1.2 a 1.5 metros, donde podamos desembarcar y descargar mercancías", Chen Haiyang dijo por el comunicador.
 
@@ -25,11 +25,11 @@ Las personas que no tenían tareas asignadas se dirigieron juntas hacia la playa
 
 La costa occidental de la isla de Hainan está principalmente formada por acantilados rocosos. Además de las zonas de arena y lodo que se forman dentro de las bahías, hay pequeñas calas rocosas por todas partes. Pronto, no muy lejos, se encontró una pequeña cala, con una superficie de agua muy pequeña, apenas capaz de albergar dos o tres barcos de pesca.
 
-  La lancha de desembarco avanzaba lentamente, adentrándose poco a poco en el puerto. Esta lancha, que había sido renovada antes del viaje en el tiempo, parecía ahora hermosa y imponente. En el barco se había instalado una nueva grúa de carga. En las dos posiciones de ametralladoras en la cubierta, había soldados con rifles SKS, cascos de acero modelo 80 y chalecos salvavidas de color naranja, que parecían vigorosos y recordaban a los soldados del Ejército Popular de otro período de tiempo; sería ideal si tuvieran una ametralladora en cada posición. Xi Yazhou estaba distraído en sus pensamientos. Al ver a todos venir a recibirlos, sonreían y saludaban a la multitud en la orilla.
+La lancha de desembarco avanzaba lentamente, adentrándose poco a poco en el puerto. Esta lancha, que había sido renovada antes del viaje en el tiempo, parecía ahora hermosa y imponente. En el barco se había instalado una nueva grúa de carga. En las dos posiciones de ametralladoras en la cubierta, había soldados con rifles Tipo 56, cascos de acero modelo 80 y chalecos salvavidas de color naranja, que parecían vigorosos y recordaban a los soldados del Ejército Popular de otro período de tiempo; sería ideal si tuvieran una ametralladora en cada posición. Xi Yazhou estaba distraído en sus pensamientos. Al ver a todos venir a recibirlos, sonreían y saludaban a la multitud en la orilla.
 
 El motor emitió un último rugido, exhaló un largo suspiro y se detuvo.
 
-  La lancha de desembarco se acercó a la playa, bajó una rampa y de la embarcación descendió un hombre corpulento, de rostro redondo y ojos grandes, alto y robusto. Asustó a los niños que lo acompañaban. Con una altura de 190 cm y un peso de 110 kg, era un gigante para la gente de esa época. Este hombre fuerte era Chen Haiyang, del equipo militar, y vestía un uniforme de entrenamiento azul marino. Tenía una apariencia vigorosa.
+La lancha de desembarco se acercó a la playa, bajó una rampa y de la embarcación descendió un hombre corpulento, de rostro redondo y ojos grandes, alto y robusto. Asustó a los niños que lo acompañaban. Con una altura de 190 cm y un peso de 110 kg, era un gigante para la gente de esa época. Este hombre fuerte era Chen Haiyang, del equipo militar, y vestía un uniforme de entrenamiento azul marino. Tenía una apariencia vigorosa.
 
 Chen Haiyang, acompañado de cuatro miembros del equipo militar, se acercó a Xi Yajian, formando una fila, y rindió los honores militares:
 
@@ -44,10 +44,10 @@ Xi Yazhou estrechó la mano de Chen Haiyang y de los demás, agradeciéndoles, y
 
 "¡Está muy emocionado y le dice a Zhang Xingjiao: 'Que el señor Tan reúna a los aldeanos para que preparen la descarga'!"
 
-  A medida que los aldeanos se acercaban lentamente, Xi Yazhou subió a la cubierta del barco y se paró en un lugar alto, donde cientos de ojos lo observaban:
-  "¡Vecinos!", Xi Yazhou sonrió ampliamente y agitó la mano que sostenía los documentos. "Nos han traído comida y ropa desde Bairencheng. Por ahora, asignaremos mil kilogramos de arroz al pueblo. Este arroz es gratis para todos".
+A medida que los aldeanos se acercaban lentamente, Xi Yazhou subió a la cubierta del barco y se paró en un lugar alto, donde cientos de ojos lo observaban:
+"¡Vecinos!", Xi Yazhou sonrió ampliamente y agitó la mano que sostenía los documentos. "Nos han traído comida y ropa desde Bairencheng. Por ahora, asignaremos mil kilogramos de arroz al pueblo. Este arroz es gratis para todos".
 
-  Al comenzar, reinó un silencio increíble en todo el lugar, seguido de un estallido de vítores. Zhang Xingjiao, la noche anterior, había reunido a algunos jóvenes a través de la familia Tan y les había enseñado a vitorear con un código secreto. Algunos ancianos y mujeres, al ver la gran cantidad de grano en el barco, derramaron lágrimas. Los gritos gradualmente se apagaron, reemplazados por lágrimas de gratitud de la multitud.
+Al comenzar, reinó un silencio increíble en todo el lugar, seguido de un estallido de vítores. Zhang Xingjiao, la noche anterior, había reunido a algunos jóvenes a través de la familia Tan y les había enseñado a vitorear con un código secreto. Algunos ancianos y mujeres, al ver la gran cantidad de grano en el barco, derramaron lágrimas. Los gritos gradualmente se apagaron, reemplazados por lágrimas de gratitud de la multitud.
 
 "Además, tenemos cincuenta rollos de tela, que serán para hacer ropa para todos. Para esto, necesitaremos la ayuda de las mujeres del pueblo. Sin embargo, la tela no es suficiente, y tal vez solo podamos hacer una prenda por familia, pero habrá más tela disponible más adelante", continuó Xi Yazhou, tras una breve pausa.
 
@@ -69,7 +69,7 @@ Zhang Xingjiao notó que el ambiente era muy animado, y siguiendo las instruccio
 
 En medio del bullicio de la multitud, Xi Yajian descendió satisfecho de la cubierta de la lancha de desembarco. Montones de armas ya habían sido descargadas en el suelo. Todas estas eran armas capturadas durante la batalla de Bairen. Ahora, estaban completamente restauradas.
 
-  Además de alimentos y telas, los barcos de desembarco transportaron ladrillos rojos, cemento y algunos muebles de madera, como mesas y bancos, recién producidos por la fábrica de procesamiento de madera. Los miembros del grupo de maquinaria, al no tener tareas inmediatas, utilizaron los equipos de procesamiento de madera de la fábrica para fabricar algunos muebles de estilo moderno, que fueron puestos a disposición de todos.
+Además de alimentos y telas, los barcos de desembarco transportaron ladrillos rojos, cemento y algunos muebles de madera, como mesas y bancos, recién producidos por la fábrica de procesamiento de madera. Los miembros del grupo de maquinaria, al no tener tareas inmediatas, utilizaron los equipos de procesamiento de madera de la fábrica para fabricar algunos muebles de estilo moderno, que fueron puestos a disposición de todos.
 
 El campamento del equipo de trabajo también fue renovado. Con los materiales de construcción disponibles, y bajo la guía de los profesionales del grupo de construcción que llegaron en el barco, todos trabajaron juntos y rápidamente construyeron un edificio con forma de torre de artillería. Alrededor, había algunas casas de tejas bastante cómodas. La estación de radio de 15 kHz también incorporó una nueva torre de transmisión. Fuera de la muralla, Xi Yaji ordenó al grupo de construcción que construyera un muro decorativo, que serviría como tablón de anuncios.
 
@@ -77,7 +77,7 @@ Ese día, bajo la dirección de Xi Yaji, se formó el comité de aldeanos, que i
 
 El equipo de milicias estaba dirigido por Tan Chenqing, y Zhang Xingjiao redactó un informe para el condado, que básicamente explicaba que, debido a las repetidas incursiones de piratas en el pueblo, se estaba formando una fuerza de defensa local para proteger a la comunidad. Este proceso legal era necesario.
 
-  La milicia estaba compuesta por sesenta jóvenes y adultos. Los trabajadores de la sal tenían cierta habilidad en el combate, y después de recibir armas, el entusiasmo de todos era muy alto, y dedicaban tiempo por la mañana y por la tarde a los entrenamientos. Había bailes con cuchillos y disparos con armas, era muy animado. Xi Yazhou observaba desde un lado, pero pensaba que, aunque estas armas tenían cierto poder en combates individuales, probablemente no serían suficientes en un enfrentamiento cuerpo a cuerpo. Xi Yazhou había visto el ataque de los guerreros rurales de Huangjiazhai durante la batalla en Bairen Tan: eran feroces y tenían mucha disciplina. Si un grupo así atacaba, la milicia, que carecía de organización y disciplina, probablemente se desmoronaría al primer contacto.
+La milicia estaba compuesta por sesenta jóvenes y adultos. Los trabajadores de la sal tenían cierta habilidad en el combate, y después de recibir armas, el entusiasmo de todos era muy alto, y dedicaban tiempo por la mañana y por la tarde a los entrenamientos. Había bailes con cuchillos y disparos con armas, era muy animado. Xi Yazhou observaba desde un lado, pero pensaba que, aunque estas armas tenían cierto poder en combates individuales, probablemente no serían suficientes en un enfrentamiento cuerpo a cuerpo. Xi Yazhou había visto el ataque de los guerreros rurales de Huangjiazhai durante la batalla en Bairen Tan: eran feroces y tenían mucha disciplina. Si un grupo así atacaba, la milicia, que carecía de organización y disciplina, probablemente se desmoronaría al primer contacto.
 
 Xi Yazhou tenía una metodología para la instrucción de reclutas, pero no estaba seguro de si esa misma metodología era adecuada para los milicianos, quienes utilizaban espadas y lanzas, o si era apropiada para la instrucción de reclutas en la era de las armas de fuego.
 

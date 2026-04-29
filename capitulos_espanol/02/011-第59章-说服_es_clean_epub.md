@@ -1,6 +1,6 @@
 ## Capítulo 55: Persuasión
 
-  Ambas partes permanecieron en silencio, y Ran Yao observó cuidadosamente a esa persona. De repente, se dio cuenta de que había un ligero rastro de un color rojo discreto en la manga de la persona. Rápidamente, tiró de su brazo. Guo Yi se sobresaltó y, justo cuando estaba a punto de forcejear, fue empujado hacia abajo por alguien a su lado.
+Ambas partes permanecieron en silencio, y Ran Yao observó cuidadosamente a esa persona. De repente, se dio cuenta de que había un ligero rastro de un color rojo discreto en la manga de la persona. Rápidamente, tiró de su brazo. Guo Yi se sobresaltó y, justo cuando estaba a punto de forcejear, fue empujado hacia abajo por alguien a su lado.
 
 Ran Yao用 sus uñas para raspar la marca, la acercó a su nariz y olió, mostrando una sonrisa enigmática en su rostro:
 
@@ -12,7 +12,7 @@ Ran Yao用 sus uñas para raspar la marca, la acercó a su nariz y olió, mostra
 
 "Notifiquen a Hé Míng y Zhao Dé que realicen una inspección exhaustiva en todo el campamento y en las embarcaciones. Revisen las tarjetas de identificación de todas las personas; aquellos que no tengan tarjeta deben ser detenidos y trasladados al buque Fengcheng para su identificación."
 
-La situación se aclaró rápidamente gracias a una exhaustiva investigación. Los equipos militares de la nave "Fengcheng" revisaron cada compartimento. Como resultado de la búsqueda minuciosa, dos agentes de la ATF fueron descubiertos en un almacén de suministros cerca de la parte inferior de la nave. Los agentes, que no habían comido en un día, no mostraron ninguna valentía bajo la luz visible de los bayonetas de los rifles SKS, sino que se rindieron pacíficamente.
+La situación se aclaró rápidamente gracias a una exhaustiva investigación. Los equipos militares de la nave "Fengcheng" revisaron cada compartimento. Como resultado de la búsqueda minuciosa, dos agentes de la ATF fueron descubiertos en un almacén de suministros cerca de la parte inferior de la nave. Los agentes, que no habían comido en un día, no mostraron ninguna valentía bajo la luz visible de los bayonetas de los rifles Tipo 56, sino que se rindieron pacíficamente.
 
 Dos agentes de la ATF colaboraron plenamente y rápidamente relataron todo lo que habían investigado, desde la compra y el transporte de armas por parte de la sucursal norteamericana, hasta su rastro en territorio nacional. Xue Ziliang intentó negociar con Ran Yao, proponiendo que, si él podía ayudar a contactar con la embajada estadounidense u ofrecer otras soluciones para que ellos pudieran salir libres, se le pagaría una gran suma de dinero.
 
@@ -26,7 +26,7 @@ Ran Yao sonrió y negó con la cabeza: "El precio es muy bueno, pero nadie tiene
 
 "¿Sabes qué día es hoy?"
 
-  “20XX年X月X号。”
+“20XX年X月X号。”
 
 "Estás equivocado. Hoy es el 1 de septiembre de 1628 según el calendario gregoriano, y es el primer día del noveno mes lunar en China." Ran Yao negó con la cabeza. "Has llegado a otra dimensión temporal."
 
@@ -130,7 +130,7 @@ Parece que, incluso para los "ABC" (americanos de ascendencia china), todavía e
 
 "Ya veo, ya veo, su política de trato a los prisioneros es muy humana, muy humana...", Guo Yi ya no estaba interesado en este tema. Lo que le preocupaba era cómo estos bandidos los tratarían.
 
-  Ya no lo interrogaron más, posiblemente porque estaban satisfechos con las declaraciones de Xueziliang y los demás, o quizás porque consideraron que ya no tenían más información que ofrecer... Guo Yi sintió un escalofrío recorrerle la espalda. Al ver a Xueziliang, que parecía estar disfrutando de su comida, pensó que realmente vivía sin preocupaciones.
+Ya no lo interrogaron más, posiblemente porque estaban satisfechos con las declaraciones de Xueziliang y los demás, o quizás porque consideraron que ya no tenían más información que ofrecer... Guo Yi sintió un escalofrío recorrerle la espalda. Al ver a Xueziliang, que parecía estar disfrutando de su comida, pensó que realmente vivía sin preocupaciones.
 
 "¿Guo, estás asustado?", preguntó Xue Ziliang, acercándose.
 
@@ -138,7 +138,7 @@ Guo Yi realmente quería mantener el espíritu y la valentía del pueblo chino, 
 
 Xue Ziliang sacó una cigarrillo de su bolsillo interior. El encendedor había sido confiscado, así que tuvo que acercarlo a su nariz para olerlo mientras hablaba: "Creo que no tienen malas intenciones".
 
-  “？”
+“？”
 
 "Hay una cosa muy extraña", dijo Xue Ziliang, ocultando su expresión alegre. "La persona que nos interrogó hace un momento, siempre quiso hacernos creer..." Bajó la voz, "que ahora es el año 1628."
 

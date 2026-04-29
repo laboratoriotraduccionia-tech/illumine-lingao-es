@@ -3,7 +3,7 @@
 
 Wu Nanhai, al recibir la llamada, rápidamente ordenó que se reavivara el fuego de la cocina para preparar la comida. En otoño en Hainan, la temperatura rara vez baja de los veinticinco o veintiséis grados, y durante el día a menudo se acerca a los treinta. Para evitar que los alimentos se echaran a perder, el servicio de alimentación preparaba la comida diariamente en las cantidades asignadas, dejando solo un poco de excedente. En la cafetería había algunos alimentos preparados para el turno de noche, pero no eran suficientes para satisfacer esta gran demanda. Rápidamente llamó a todos los que ya se habían ido a descansar. Mientras cocinaba, pidió a Hu Yicheng que hiciera un cálculo de los alimentos necesarios.
 
-  Se preparó una gran cantidad de arroz, que se envió inmediatamente al campamento. La ración de arroz para treinta personas se agotó rápidamente, y muchas personas, al ver que realmente se podía comprar arroz con ese papel, dejaron de comprar gachas y acudieron en masa a comprar arroz. Hu Yicheng observaba con incredulidad cómo devoraban el arroz blanco sin ningún acompañamiento. Recordaba las historias de pobreza que escuchaba de niño, donde los protagonistas "mezclaban salsa de soja con el arroz", lo cual ya le parecía algo inhumano. Ahora, estas personas no tenían ni siquiera sal.
+Se preparó una gran cantidad de arroz, que se envió inmediatamente al campamento. La ración de arroz para treinta personas se agotó rápidamente, y muchas personas, al ver que realmente se podía comprar arroz con ese papel, dejaron de comprar gachas y acudieron en masa a comprar arroz. Hu Yicheng observaba con incredulidad cómo devoraban el arroz blanco sin ningún acompañamiento. Recordaba las historias de pobreza que escuchaba de niño, donde los protagonistas "mezclaban salsa de soja con el arroz", lo cual ya le parecía algo inhumano. Ahora, estas personas no tenían ni siquiera sal.
 
 Al ver a otro individuo acercarse, empujando un cuenco de madera grande que le llegó al rostro, y sosteniendo un cupón de puntos en la mano, aunque las palabras que decía eran difíciles de entender, se podía adivinar que estaba pidiendo "un plato de comida". Hu Yichenh negó con la cabeza y le sirvió otro plato; parecía que este individuo ya iba por su cuarto plato. Realmente es alguien excepcional.
 
@@ -27,7 +27,7 @@ Muchas personas, al enterarse de que "Xián yú" había desaparecido, mostraron 
 
 "Cuando sacaron el pez, ustedes lo mataron una vez, y luego, al cocinarlo, lo mataron otra vez", dijo Xiong Buyou con seriedad.
 
-  Observando a la multitud que se dispersaba lentamente, Wu De吩咐 a Lin Xing: "Digan a todos que no se vayan. Si alguien quiere comprar algo, cálculo la cantidad y entréguenle la mercancía de inmediato."
+Observando a la multitud que se dispersaba lentamente, Wu De吩咐 a Lin Xing: "Digan a todos que no se vayan. Si alguien quiere comprar algo, cálculo la cantidad y entréguenle la mercancía de inmediato."
 
 "Hu Yicheng dijo rápidamente: "Esto no es posible. Ya casi es de noche, ¿cómo vamos a ir a 博铺 a recoger la mercancía?"
 
@@ -61,7 +61,7 @@ Wu Nanhai, mientras viajaba en el coche, solicitó que se asignaran algunos de l
 
 "Jaja, por supuesto, la mayoría de la gente de Lingao son agricultores, aparte de Zhang Xingjiao."
 
-"En realidad, preferiría tener algunos hijos, para poder educarlos personalmente", dijo Wu Nanhai, girando el arma SKS que tenía en sus brazos. Era un poco apretado en el pequeño espacio del toldo del jeep.
+"En realidad, preferiría tener algunos hijos, para poder educarlos personalmente", dijo Wu Nanhai, girando el arma Tipo 56 que tenía en sus brazos. Era un poco apretado en el pequeño espacio del toldo del jeep.
 
 "No hay problema, te contaré información confidencial", dijo Wu De, fingiendo misterio. "Pronto se enviará gente a Guangzhou".
 

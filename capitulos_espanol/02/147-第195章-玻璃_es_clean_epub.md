@@ -1,6 +1,6 @@
 ## Capítulo 191: El vidrio
 
-  "Esto se parece un poco a una 'tulou'", comentó Wu De.
+"Esto se parece un poco a una 'tulou'", comentó Wu De.
 
 "Sí, es cierto que este diseño se inspiró en las *tulou*. Si este tipo de construcción tiene éxito en el proyecto piloto de Baidi, en el futuro, todos nuestros asentamientos adoptarán esta estructura". Wen Desi estaba muy entusiasmado con su diseño.
 
@@ -46,7 +46,7 @@ El primer requisito para fabricar vidrio es tener crisoles resistentes a altas t
 
 El crisol utilizado para fabricar vidrio es cerrado, y la razón para que esté cerrado es para evitar que el vidrio líquido se contamine con hollín durante el proceso de fundición. Los materiales utilizados son arena de cuarzo, cal viva y carbonato de sodio.
 
-  La arena de cuarzo es un recurso mineral abundante en Lingao, y es fácil obtener grandes cantidades de materia prima de alta calidad. Después de una simple selección y lavado, está lista para su uso.
+La arena de cuarzo es un recurso mineral abundante en Lingao, y es fácil obtener grandes cantidades de materia prima de alta calidad. Después de una simple selección y lavado, está lista para su uso.
 
 En cuanto al carbonato de sodio, los viajeros temporales aún no tienen la capacidad de producirlo, pero tienen dos métodos que pueden utilizar temporalmente. Uno es usar cenizas vegetales como sustituto. Este es un proceso bastante antiguo, y los países europeos lo utilizaron durante mucho tiempo. Las cenizas vegetales utilizadas para fabricar vidrio son mejores si son de algas marinas. En Lingao, obviamente, no hay escasez de productos marinos.
 
@@ -78,5 +78,5 @@ Después de completar esta versión mejorada del horno de vidrio, los grupos de 
 
 "Está bien, en realidad no es necesario el dióxido de manganeso", dijo Ji Situi. "Su función es la de un agente oxidante, y no es necesario que sea dióxido de manganeso; el nitrato de potasio también es un agente oxidante, y se puede usar este último".
 
-  Lo que se conoce como nitrato de potasio, o nitrato, es algo de lo que aún disponían en abundancia. Después de varios intentos, el grupo de pruebas con vidrio finalmente logró producir un vidrio incoloro el día anterior a la víspera de Año Nuevo. Este logro provocó celebraciones en muchos miembros del departamento industrial: ¡el "objeto mágico" para los viajeros temporales, el vidrio, había nacido!
-  (Fin del capítulo)
+Lo que se conoce como nitrato de potasio, o nitrato, es algo de lo que aún disponían en abundancia. Después de varios intentos, el grupo de pruebas con vidrio finalmente logró producir un vidrio incoloro el día anterior a la víspera de Año Nuevo. Este logro provocó celebraciones en muchos miembros del departamento industrial: ¡el "objeto mágico" para los viajeros temporales, el vidrio, había nacido!
+(Fin del capítulo)

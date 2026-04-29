@@ -1,7 +1,7 @@
 ## Capítulo 25: Equilibrio entre la benevolencia y la autoridad
 
 
-  El resto del día, las cuatro personas que habían llegado lo pasaron de manera muy productiva. El señor Gao envió una mesa llena de comida y bebida, con la famosa "gran selección", que incluía doce platos.
+El resto del día, las cuatro personas que habían llegado lo pasaron de manera muy productiva. El señor Gao envió una mesa llena de comida y bebida, con la famosa "gran selección", que incluía doce platos.
 
 Los platos no son muy diferentes de la cocina cantonesa moderna, pero destacan por utilizar ingredientes naturales y estar cuidadosamente preparados, resultando en sabores dulces, frescos y untuosos. En particular, una sopa llamada "Xishi Tan" fue tan deliciosa que hizo asentir la cabeza a varias personas.
 
@@ -38,9 +38,9 @@ Wen Desi tomó primero una cuchara y se la ofreció, ella la llevó a la boca y,
 
 "Sí, todo fue preparado por mí. Actualmente, solo tengo arroz y hojas de perilla. Si los señores no se sienten incómodos, por favor, prueben primero."
 
-  Al servirlo, se reveló que era un líquido de esencia aromática obtenido mediante la destilación de flores y hojas vegetales. La tecnología de destilación de alcohol ya estaba bien desarrollada en la dinastía Ming, y los pequeños alambiques, además de usarse para hacer aguardiente, también eran importantes para la producción de agua de flores.
+Al servirlo, se reveló que era un líquido de esencia aromática obtenido mediante la destilación de flores y hojas vegetales. La tecnología de destilación de alcohol ya estaba bien desarrollada en la dinastía Ming, y los pequeños alambiques, además de usarse para hacer aguardiente, también eran importantes para la producción de agua de flores.
 
-  Cuando se bebe diluido con agua limpia, realmente tiene un aroma y un sabor delicados y agradables.
+Cuando se bebe diluido con agua limpia, realmente tiene un aroma y un sabor delicados y agradables.
 
 Xiao Zishan sintió una duda. Gao Qian, que claramente era la esposa de un campesino y una sirvienta en la casa de los Gao, sabía hacer lociones y también conocía recetas de cocina... Involuntariamente, comenzó a observar cuidadosamente a esta mujer, y descubrió que en sus movimientos y gestos, había una elegancia que no se veía en su esposo.
 
@@ -58,8 +58,8 @@ Xiao Zishan sintió una duda. Gao Qian, que claramente era la esposa de un campe
 
 Xiao Zishan observó su rostro, que aunque ahora estaba oscurecido, aún conservaba rastros de la belleza juvenil. Al compararlo con la apariencia de Gao Lujie, y considerando la diferencia de edad entre esta pareja, ya comprendía la situación en gran medida, aunque en ese momento no era necesario hablarlo.
 
-  Después de una breve reflexión, miró hacia el exterior del salón. No había nadie más presente; probablemente Gao Qing estaba trabajando en el patio trasero. Entonces preguntó:
-  "¿Gao Qing ha estado visitando a señor Gao con frecuencia últimamente?"
+Después de una breve reflexión, miró hacia el exterior del salón. No había nadie más presente; probablemente Gao Qing estaba trabajando en el patio trasero. Entonces preguntó:
+"¿Gao Qing ha estado visitando a señor Gao con frecuencia últimamente?"
 
 "..." Gao Qian se sorprendió mucho, pero no dijo nada. Xiao Zishan tenía razón: el señor Gao seguramente preguntaba a Gao Qing sobre ellos con frecuencia.
 
@@ -87,10 +87,10 @@ Běi Wěi había sido un soldado revolucionario bajo la bandera, y no podía ace
 
 "Este siervo es un hombre de buen oído y corazón amable, no debe escuchar los comentarios infundados de otros", dijo Gao Qian, con la voz ya entrecortada por el llanto. "Le ruego, señor, que, considerando su edad avanzada y su enfermedad en las piernas, le perdone la falta y que esta sierva se encargue de pagar la doble compensación."
 
-  Todos escucharon y la información coincidía bastante con lo que se había previsto. Al verla suplicar amargamente por su esposo, incluso sintieron compasión. Uno no sabe lo dulce que es la nueva sociedad hasta que no ha experimentado la antigua.
+Todos escucharon y la información coincidía bastante con lo que se había previsto. Al verla suplicar amargamente por su esposo, incluso sintieron compasión. Uno no sabe lo dulce que es la nueva sociedad hasta que no ha experimentado la antigua.
 
-  Xiao Zishan esperó pacientemente durante mucho tiempo, y finalmente suspiró deliberadamente:
-  "Señora Gao, ¿hemos hecho algo que haya ofendido a su familia, ahora que toda su familia ha pasado a estar bajo nuestra protección?".
+Xiao Zishan esperó pacientemente durante mucho tiempo, y finalmente suspiró deliberadamente:
+"Señora Gao, ¿hemos hecho algo que haya ofendido a su familia, ahora que toda su familia ha pasado a estar bajo nuestra protección?".
 
 "Me han perdonado la vida. La bondad de los señores es algo que mi familia y yo agradeceremos eternamente."
 
@@ -120,7 +120,7 @@ Xiao Zishan pensó: "Esta mujer realmente tiene un estilo muy particular, parece
 
 "La esclava agradece...", Xiao Zishan intentó arrodillarse para agradecer, pero fue detenido por Gao Ju: "Es mejor no mostrar tanta deferencia frente a todos". Luego, dijo: "Vayan a buscar a Gao Di".
 
-  Después de que Gao Qian se fuera, Xiao Zishan finalmente giró la cabeza y les dijo a todos: "¿Cómo les pareció mi actuación?". Estaba ansioso por cambiar el ambiente en la sala. No quería que la gente lo percibiera como alguien autoritario, la actuación, sí, solo era una actuación.
+Después de que Gao Qian se fuera, Xiao Zishan finalmente giró la cabeza y les dijo a todos: "¿Cómo les pareció mi actuación?". Estaba ansioso por cambiar el ambiente en la sala. No quería que la gente lo percibiera como alguien autoritario, la actuación, sí, solo era una actuación.
 
 "Wen Desi abrió mucho la boca: "¿Xiao Zishan, tus antepasados eran realmente campesinos pobres?"
 
@@ -152,8 +152,8 @@ La atmósfera en la mesa volvió a animarse, y Xiao Zishan suspiró aliviado. En
 
 Después de hablar un rato, llegó Gao Di. Aunque era pequeño, era muy inteligente. Al ver que su madre tenía los ojos rojos, supo que algo andaba mal, así que rápidamente trajo el libro de cuentas para presentarle.
 
-  Wen Desi preguntó casualmente sobre la situación en casa y revisó los libros de contabilidad, que no eran más que registros de transacciones. La administración de la casa era sencilla, por lo que pronto pudo entenderlos. Luego, elogió un poco y, al ver que la inquietud de la otra persona disminuía gradualmente, preguntó:
-  "¿La gente de la familia Gao viene con frecuencia últimamente?"
+Wen Desi preguntó casualmente sobre la situación en casa y revisó los libros de contabilidad, que no eran más que registros de transacciones. La administración de la casa era sencilla, por lo que pronto pudo entenderlos. Luego, elogió un poco y, al ver que la inquietud de la otra persona disminuía gradualmente, preguntó:
+"¿La gente de la familia Gao viene con frecuencia últimamente?"
 
 "¡Chang lai!", exclamó el niño, sin mostrar ninguna vergüenza, y asintió con la cabeza. "Yan Xiaomaof viene a menudo, y cada vez habla en voz baja con mi padre."
 

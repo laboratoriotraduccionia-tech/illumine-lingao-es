@@ -2,7 +2,7 @@
 
 **Estadísticas de la batalla:**
 
-  Resultados de la batalla: 102 enemigos fueron eliminados en el acto, 70 sufrieron heridas graves que resultaron fatales, y 213 fueron capturados, de los cuales 35 sufrieron heridas leves. Se capturaron más de 400 armas de asta y espada, 7 rifles de tres cañones y 7 caballos de guerra. Esta noche comeremos el octavo caballo; se lastimó una pata.
+Resultados de la batalla: 102 enemigos fueron eliminados en el acto, 70 sufrieron heridas graves que resultaron fatales, y 213 fueron capturados, de los cuales 35 sufrieron heridas leves. Se capturaron más de 400 armas de asta y espada, 7 rifles de tres cañones y 7 caballos de guerra. Esta noche comeremos el octavo caballo; se lastimó una pata.
 
 De nuestro bando, 11 personas sufrieron heridas leves, y 10 resultaron lesionadas o sufrieron caídas durante la persecución; correr en los campos de arroz recién cosechados es, sin duda, una actividad peligrosa. Una persona se lastimó el pie mientras transportaba munición.
 
@@ -16,17 +16,17 @@ Según la primera ronda de interrogatorios, los piratas confesaron ser parte de 
 
 Lo más absurdo es que, de entre ellos, decenas eran antiguos habitantes de la zona de Lingao, reclutados para el servicio militar. Originalmente, el capitán Liu, encargado de esa zona, para ganar más dinero, alquilaba armas, barcos y a los reclutas militares a piratas para que los usaran en sus conflictos. No era raro que el capitán Liu tuviera tratos con piratas; en esta región costera, tanto los oficiales del gobierno como los marineros de diversas facciones tenían cierta relación.
 
-  Sin embargo, ninguno de los prisioneros era de un nivel de liderazgo importante. La última vez, al menos capturaron a un capitán, Shi Shide. Esta vez, no había ni siquiera un líder de cierta categoría entre ellos. Fueron transportados a la costa de Shipa en cinco barcos grandes durante la madrugada y, después de desembarcar, avanzaron hacia aquí bajo el mando de un "administrador". En cuanto a ese administrador, no se sabe si murió o huyó, pero no estaba entre los prisioneros, y tampoco se encontró su cuerpo entre los cadáveres destrozados por las balas.
+Sin embargo, ninguno de los prisioneros era de un nivel de liderazgo importante. La última vez, al menos capturaron a un capitán, Shi Shide. Esta vez, no había ni siquiera un líder de cierta categoría entre ellos. Fueron transportados a la costa de Shipa en cinco barcos grandes durante la madrugada y, después de desembarcar, avanzaron hacia aquí bajo el mando de un "administrador". En cuanto a ese administrador, no se sabe si murió o huyó, pero no estaba entre los prisioneros, y tampoco se encontró su cuerpo entre los cadáveres destrozados por las balas.
 
 La mayoría de la gente sabía que habían venido a atacar a los llamados "rebeldes". Quienes los reclutaron les dijeron que los "rebeldes" habían robado muchas riquezas a Zhoulai, y que había mercancías en la zona de Bairen, y que Zhoulai había ido a atacar para desahogar su ira, y que, si ganaban, todo sería para ellos.
 
-  Entre los objetos incautados, muchos de los armamentos llevaban la marca y el logotipo de Zhexu Lao. Además, se encontraron documentos y estandartes pertenecientes a la organización de Zhexu Lao en algunos de los cadáveres. Al observar los testimonios de los prisioneros y la gran cantidad de pruebas, Ran Yao frunció el ceño.
+Entre los objetos incautados, muchos de los armamentos llevaban la marca y el logotipo de Zhexu Lao. Además, se encontraron documentos y estandartes pertenecientes a la organización de Zhexu Lao en algunos de los cadáveres. Al observar los testimonios de los prisioneros y la gran cantidad de pruebas, Ran Yao frunció el ceño.
 
 El crepúsculo comenzó a caer, y en los diferentes campamentos del grupo de "viajeros temporales" se escuchaban risas y alegría. Para "Zhucai Lao", esto no era nada especial. "Zhang Bolin" casi se reía hasta que le dolían las mejillas. En esta batalla, se dispararon 80 proyectiles, y eso fue suficiente para derrotar a más de 400 piratas, lo cual fue un gran honor para el jefe de artillería.
 
-  La cafetería preparó un festín con la carne de los caballos sacrificados, ofreciendo una variedad de platos a base de carne de caballo y despojos, para variar la dieta de la unidad de entrenamiento. Aunque era carne de caballo, la cafetería tenía salsa de pescado, especias y sal en abundancia, lo que la hacía completamente diferente a la carne de caballo hervida y sin sabor que se comía habitualmente. Wu Nanhai también preparó aceite de caballo, que tenía un olor desagradable, pero que al freír, daba un aroma delicioso. Un famoso plato de Beijing, el "jian guanchang", se prepara con este aceite. Como no había "guanchang", Wu Nanhai simplemente freyó rodajas de calabaza seca, que son muy comunes en la zona, y luego las roció con ajo picado. Esto fue recibido con gran entusiasmo por los soldados, quienes prefirieron esta opción abundante y con aceite en lugar de las pequeñas porciones de carne de caballo y despojos que se ofrecían habitualmente.
+La cafetería preparó un festín con la carne de los caballos sacrificados, ofreciendo una variedad de platos a base de carne de caballo y despojos, para variar la dieta de la unidad de entrenamiento. Aunque era carne de caballo, la cafetería tenía salsa de pescado, especias y sal en abundancia, lo que la hacía completamente diferente a la carne de caballo hervida y sin sabor que se comía habitualmente. Wu Nanhai también preparó aceite de caballo, que tenía un olor desagradable, pero que al freír, daba un aroma delicioso. Un famoso plato de Beijing, el "jian guanchang", se prepara con este aceite. Como no había "guanchang", Wu Nanhai simplemente freyó rodajas de calabaza seca, que son muy comunes en la zona, y luego las roció con ajo picado. Esto fue recibido con gran entusiasmo por los soldados, quienes prefirieron esta opción abundante y con aceite en lugar de las pequeñas porciones de carne de caballo y despojos que se ofrecían habitualmente.
 
-  Huang Xiong recibió un pequeño plato de carne de caballo y acompañamientos. Con sus palillos, removió el contenido: algunas rebanadas de carne, algunas piezas de intestinos y pulmones, que desprendían un aroma intenso a especias mezcladas con carne. La carne, aunque un poco dura, era increíblemente sabrosa. Como antiguo oficial del ejército Ming, Huang Xiong había comido carne de mulas y caballos muertos, pero nunca había probado algo tan bien sazonado. Levantó la vista y observó a los soldados de su compañía, quienes estaban comiendo y bebiendo tranquilamente, emitiendo ocasionalmente sonidos de satisfacción. Después de dos victorias, estos oficiales son realmente tacaños, ¡solo nos dieron un plato de carne de caballo! Huang Xiong esperaba recibir alguna recompensa en plata, pero luego pensó que, en esas dos batallas, él solo había estado de pie en formación con su rifle; la victoria se había logrado gracias a los cañones.
+Huang Xiong recibió un pequeño plato de carne de caballo y acompañamientos. Con sus palillos, removió el contenido: algunas rebanadas de carne, algunas piezas de intestinos y pulmones, que desprendían un aroma intenso a especias mezcladas con carne. La carne, aunque un poco dura, era increíblemente sabrosa. Como antiguo oficial del ejército Ming, Huang Xiong había comido carne de mulas y caballos muertos, pero nunca había probado algo tan bien sazonado. Levantó la vista y observó a los soldados de su compañía, quienes estaban comiendo y bebiendo tranquilamente, emitiendo ocasionalmente sonidos de satisfacción. Después de dos victorias, estos oficiales son realmente tacaños, ¡solo nos dieron un plato de carne de caballo! Huang Xiong esperaba recibir alguna recompensa en plata, pero luego pensó que, en esas dos batallas, él solo había estado de pie en formación con su rifle; la victoria se había logrado gracias a los cañones.
 
 Mirando a su alrededor, el sargento You Hu y los jefes de pelotón también estaban allí, comiendo carne de caballo y rebanadas de calabaza fritas, y en sus cuencos había arroz integral. En este aspecto, Huang Xiong realmente admiraba la unidad entre los oficiales de estos líderes: los oficiales, además de tener más equipo, no tenían ningún trato especial; comían lo mismo que ellos, vestían igual y, aunque tenían una habitación individual, era solo una barraca del cuartel. A excepción de tener que ir a Bairencheng cada semana para pasar un "fin de semana", no había ningún otro lujo; ni siquiera tenían a alguien que les hiciera la cama.
 
@@ -50,10 +50,10 @@ Estaba comiendo cuando escuché a los soldados de la novela hablar sobre las dos
 
 "Este muchacho ya es delgado, ¡imagínate lo que le harían diez o más esposas, podrías terminar hecho pedazos!"
 
-  ……
+……
 
-  Huang Xiong escuchó esto y sintió una punzada de interés. Él mismo había venido a unirse al ejército, simplemente buscando un refugio para su vida criminal. Por el momento, parecía que este grupo de "rebeldes" tenía ambiciones importantes; incluso si no planeaban una rebelión, probablemente tenían la intención de establecer su propio dominio. Justo cuando estaba reflexionando sobre esto, un soldado preguntó de repente:
-  "Huang, el sargento, ¿cree que los superiores tienen esa intención?"
+Huang Xiong escuchó esto y sintió una punzada de interés. Él mismo había venido a unirse al ejército, simplemente buscando un refugio para su vida criminal. Por el momento, parecía que este grupo de "rebeldes" tenía ambiciones importantes; incluso si no planeaban una rebelión, probablemente tenían la intención de establecer su propio dominio. Justo cuando estaba reflexionando sobre esto, un soldado preguntó de repente:
+"Huang, el sargento, ¿cree que los superiores tienen esa intención?"
 
 "Huang Xiong dejó el plato y dijo: 'No tengo idea de eso, pero estos oponentes han sido demasiado débiles. Si fueran tropas regulares, probablemente sería mucho más difícil vencerlos'".
 
@@ -63,8 +63,8 @@ Estaba comiendo cuando escuché a los soldados de la novela hablar sobre las dos
 
 "Además, ¿qué importa si la ciudad de Liao tiene cañones "hongyi"? De todos modos, fueron utilizados fuera de la muralla y derrotados por los "donglu". ¿Pueden sus cañones disparar continuamente? Los "donglu" confían en sus caballos rápidos. Un solo cañonazo puede matar a como máximo a unas quince personas, pero cientos de jinetes pueden avanzar rápidamente varias decenas de zhang, y no podrán disparar muchos cañonazos antes de que la caballería irrumpe en sus filas, y aún tendrán que recurrir al combate cuerpo a cuerpo con la infantería."
 
-  Estas palabras asustaron a algunos de los soldados, y el ambiente festivo disminuyó considerablemente. Huang Xiong de repente se dio cuenta de algo: ¿qué estaba pasando? En un lugar como este, se podría acusar a alguien de "socavar la moral de la tropa" y ser ejecutado directamente. ¿Por qué estaba diciendo estas cosas siendo que él estaba bien alimentado y no tenía nada mejor que hacer?
-  Rápidamente, trató de minimizar lo dicho: "Esto es Hainan, la provincia de Jian está a diez mil ochenta mil kilómetros de distancia. ¿Por qué están todos tan asustados? Los soldados no tienen que ir a luchar a Liaodong."
+Estas palabras asustaron a algunos de los soldados, y el ambiente festivo disminuyó considerablemente. Huang Xiong de repente se dio cuenta de algo: ¿qué estaba pasando? En un lugar como este, se podría acusar a alguien de "socavar la moral de la tropa" y ser ejecutado directamente. ¿Por qué estaba diciendo estas cosas siendo que él estaba bien alimentado y no tenía nada mejor que hacer?
+Rápidamente, trató de minimizar lo dicho: "Esto es Hainan, la provincia de Jian está a diez mil ochenta mil kilómetros de distancia. ¿Por qué están todos tan asustados? Los soldados no tienen que ir a luchar a Liaodong."
 
 "Dijo rápidamente que mirara a su alrededor para ver si había forasteros presentes, y luego mencionó algunas historias y noticias sin importancia para distraer la atención de los soldados."
 
@@ -82,12 +82,12 @@ A través del telescopio, él vio algunas figuras acercándose lentamente al cam
 
 "¿Refrigerador? ¿Una orden de retorno?"
 
-"¡Hā'ěr! ¿De qué unidad son ustedes?" Tan Ming apretaba con fuerza el fusil SKS que tenía en sus manos.
+"¡Hā'ěr! ¿De qué unidad son ustedes?" Tan Ming apretaba con fuerza el fusil Tipo 56 que tenía en sus manos.
 
 "¡Soy Wu De, de la sociedad de Bairen!", dijo el hombre, con el rostro sombrío, seguido por varios hombres vestidos con uniformes militares.
 
 Era Wu De, un alto funcionario. Tan Ming se puso inmediatamente a la atención y su voz se volvió un poco insegura:
-  "Wu Zong, no, Wu Shezhang..."
+"Wu Zong, no, Wu Shezhang..."
 
 "Puedes llamarme Ade, no eres originario de aquí", dijo Wu De. Era la primera vez que veía a un *viajero temporal* mostrarle tanta deferencia.
 

@@ -25,7 +25,7 @@ Como era de esperar, la cola de zorro de "Hú Yíchéng" pronto se hizo evidente
 
 "Yo te llevaré", dijo Hu Yichen. Parecía estar muy impresionado con las habilidades culinarias de Wu De, así que, por supuesto, estaba muy interesado en que viniera a darle instrucciones.
 
-  En la parte trasera, se había construido un cobertizo con ramas de árboles como pilares, y el interior estaba lleno de calor. Se había dispuesto una fila de grandes ollas, y había gente encargada de encender el fuego, cortar leña y llevar agua, todos muy ocupados... ¡Y dentro había varias mujeres! Wude pensó que afortunadamente había tenido la previsión de ponerse un par de pantalones cortos, de lo contrario, habría desarrollado una afición por la desnudez.
+En la parte trasera, se había construido un cobertizo con ramas de árboles como pilares, y el interior estaba lleno de calor. Se había dispuesto una fila de grandes ollas, y había gente encargada de encender el fuego, cortar leña y llevar agua, todos muy ocupados... ¡Y dentro había varias mujeres! Wude pensó que afortunadamente había tenido la previsión de ponerse un par de pantalones cortos, de lo contrario, habría desarrollado una afición por la desnudez.
 
 "Al entrar en la 'cocina', vi a alguien con una computadora portátil, concentrado en su trabajo. Xiaohu se acercó y dijo: 'Nanhai, alguien viene a prepararnos pescado!'".
 
@@ -99,7 +99,7 @@ Probablemente para demostrar lo que decía, se escucharon ladridos provenientes 
 
 "Ay, primero, ayúdame a pensar cómo manejar esta gran cantidad de peces", dijo Wu Nanhai, arrastrándolo hacia un cesto lleno de agua. El cesto estaba empapado y olía a sal y a mar, un olor que Wu De encontraba familiar.
 
-  En la cesta había todo tipo de peces, de diferentes tamaños, incluso pequeños tiburones. Este tipo de pescado tiene un olor a amoníaco muy fuerte, y es imposible comerlo sin procesarlo.
+En la cesta había todo tipo de peces, de diferentes tamaños, incluso pequeños tiburones. Este tipo de pescado tiene un olor a amoníaco muy fuerte, y es imposible comerlo sin procesarlo.
 
 "Para disfrutar de los mariscos, la mejor manera es cocinarlos en agua clara, ya que así se conservan su sabor original. Sin embargo, si se utiliza el pescado como fuente de proteína diaria, este método es demasiado soso. Mi método no es nada especial, simplemente se trata de preparar un arroz con mariscos o hacer una barbacoa."
 

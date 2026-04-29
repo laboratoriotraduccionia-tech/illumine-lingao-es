@@ -1,14 +1,14 @@
 ## Capítulo 192: Pruebas de fabricación
 
-  Sin embargo, este artefacto para viajeros temporales tiene algunas deficiencias. El vidrio contiene una gran cantidad de diminutas burbujas, densamente agrupadas, lo que, aunque no afecta su uso, perjudica seriamente su apariencia.
+Sin embargo, este artefacto para viajeros temporales tiene algunas deficiencias. El vidrio contiene una gran cantidad de diminutas burbujas, densamente agrupadas, lo que, aunque no afecta su uso, perjudica seriamente su apariencia.
 
 En realidad, los verdaderos y completamente incoloros y transparentes productos de vidrio no existieron en ninguna época del siglo XVII. En los primeros productos de vidrio, los tonos ligeramente coloreados y las burbujas eran fenómenos comunes. Incluso en los productos de vidrio modernos, no están absolutamente libres de burbujas, aunque la cantidad es extremadamente pequeña y difícil de detectar. Para los *viajeros temporales* acostumbrados a la transparencia cristalina de los productos de vidrio modernos, la materia prima actual parece un poco tosca.
 
-  Así, el siguiente paso del trabajo se centró en eliminar las burbujas. En la industria del vidrio, este proceso se conoce como "clarificación", y algunas personas recuerdan vagamente que implica la adición de un agente clarificante. Sin embargo, nadie sabía exactamente cuál era ese agente.
+Así, el siguiente paso del trabajo se centró en eliminar las burbujas. En la industria del vidrio, este proceso se conoce como "clarificación", y algunas personas recuerdan vagamente que implica la adición de un agente clarificante. Sin embargo, nadie sabía exactamente cuál era ese agente.
 
 Además, es importante recordar que la agitación también es un proceso para eliminar las burbujas, y ambos métodos podrían combinarse.
 
-  La gente recordaba vagamente que el arsénico parecía ser un tipo de clarificante. Este medicamento altamente tóxico era difícil de conseguir en cualquier época y lugar. Afortunadamente, antes, Guo Yi, siguiendo las instrucciones del departamento agrícola, ya había comprado todo el arsénico disponible en la ciudad de Guangzhou, aunque Wu Nanhai había planeado usarlo para tratar las semillas.
+La gente recordaba vagamente que el arsénico parecía ser un tipo de clarificante. Este medicamento altamente tóxico era difícil de conseguir en cualquier época y lugar. Afortunadamente, antes, Guo Yi, siguiendo las instrucciones del departamento agrícola, ya había comprado todo el arsénico disponible en la ciudad de Guangzhou, aunque Wu Nanhai había planeado usarlo para tratar las semillas.
 
 Lo que se conoce como "clarificación con arsénico" es un proceso en el que se añade arsénico al vidrio líquido. Cuando el arsénico entra en el vidrio líquido, debido a la alta temperatura, se convierte en vapor. Este vapor de arsénico existe en el vidrio en forma de burbujas grandes. Durante la agitación del vidrio, estas burbujas grandes absorben gradualmente las pequeñas burbujas dispersas a su alrededor, y finalmente arrastran estas pequeñas burbujas.
 
@@ -18,11 +18,11 @@ Después de que el vidrio líquido se funde, los trabajadores del vidrio primero
 
 Finalmente, el vidrio obtenido tenía una claridad considerable, pero el consumo de materiales fue realmente sorprendente: se utilizaron casi un kilogramo de arsénico.
 
-  Un kilogramo de arsénico: las farmacias de toda la ciudad de Guangzhou no tenían ni cinco ni seis kilogramos de arsénico. Con esta eficiencia de producción, tendrían que establecer una industria del arsénico para poder apoyar la producción a gran escala de la industria del vidrio.
+Un kilogramo de arsénico: las farmacias de toda la ciudad de Guangzhou no tenían ni cinco ni seis kilogramos de arsénico. Con esta eficiencia de producción, tendrían que establecer una industria del arsénico para poder apoyar la producción a gran escala de la industria del vidrio.
 
 Es evidente que este método es extremadamente ineficiente. Después de mucha discusión y colaboración, alguien propuso un método de limpieza que había visto en novelas: el método de ebullición forzada con "shuipao muqiang". Este método consiste en insertar forzosamente un trozo de "shuipao muqiang" en el vidrio líquido utilizando un cincel, provocando que hierva y que las burbujas de aire se eliminen.
 
-  Esta llamada "madera de burbujas" es, de hecho, más fácil de encontrar que el arsénico. Hay mucha madera podrida en la orilla del río. Rápidamente, fui a buscar algo. Usé un barreno para perforar y luego empujé con fuerza la madera en el líquido de vidrio.
+Esta llamada "madera de burbujas" es, de hecho, más fácil de encontrar que el arsénico. Hay mucha madera podrida en la orilla del río. Rápidamente, fui a buscar algo. Usé un barreno para perforar y luego empujé con fuerza la madera en el líquido de vidrio.
 
 Según los testigos presentes, la situación fue similar a la de un espectáculo de fuegos artificiales. El vidrio fundido, de un rojo intenso, explotó repentinamente, salpicando por todas partes. Afortunadamente, todas las personas presentes llevaban los trajes de asbesto utilizados por los trabajadores de la fundición, de lo contrario, alguien habría tenido que ser llevado al hospital.
 
@@ -30,7 +30,7 @@ La persona que propuso esta sugerencia fue criticada por todos durante media hor
 
 Después de varios intentos, finalmente alguien encontró un manual de fabricación de vidrio en los libros electrónicos de "la gran biblioteca" y descubrió el proceso para eliminar las burbujas: primero, se añade un agente clarificador, y el arsénico puede servir, aunque la sal común también puede usarse; después de añadirlo, se combina con la agitación.
 
-  La agitación no se limita simplemente a usar una barra de acero para remover. Se utiliza un agitador que se introduce en el crisol de vidrio, un cilindro hueco hecho de arcilla refractaria, y se opera con una barra de acero con un gancho para moverlo dentro del vidrio líquido. Con el tiempo de agitación adecuado, no solo la mayoría de las burbujas desaparecen, sino que también las estrías y los depósitos en el vidrio líquido eventualmente desaparecerán por completo, y el vidrio líquido se volverá completamente uniforme y transparente. Este método se utilizó para fabricar el vidrio óptico temprano, y por supuesto, se utiliza aún más para fabricar vidrio para instrumentos comerciales.
+La agitación no se limita simplemente a usar una barra de acero para remover. Se utiliza un agitador que se introduce en el crisol de vidrio, un cilindro hueco hecho de arcilla refractaria, y se opera con una barra de acero con un gancho para moverlo dentro del vidrio líquido. Con el tiempo de agitación adecuado, no solo la mayoría de las burbujas desaparecen, sino que también las estrías y los depósitos en el vidrio líquido eventualmente desaparecerán por completo, y el vidrio líquido se volverá completamente uniforme y transparente. Este método se utilizó para fabricar el vidrio óptico temprano, y por supuesto, se utiliza aún más para fabricar vidrio para instrumentos comerciales.
 
 Como era de esperar, al seguir este método de operación y retirar el crisol nuevamente, las burbujas en el líquido de vidrio casi desaparecieron por completo. La viscosidad de todo el líquido de vidrio disminuyó, y el líquido se volvió muy uniforme y fluido. Este tipo de vidrio incluso se puede utilizar como material para instrumentos ópticos de baja exigencia, como gafas.
 
@@ -74,9 +74,9 @@ Ella señaló esos extraños recipientes de vidrio y dijo: "Hablemos de cosas co
 
 "Un momento, primero debemos definir las especificaciones", dijo Wen Desi. "Dado que se utilizarán moldes, debemos establecer la apariencia, las especificaciones y las dimensiones, para facilitar la producción estandarizada en el futuro, de lo contrario, se generará desperdicio."
 
-  Todos se miraron unos a otros. Todos estaban acostumbrados a ver vasos y botellas de vidrio, pero ¿quién sabía cuáles eran sus especificaciones y dimensiones? Sin embargo, Xiao Zishan recordó: "Podemos ir al almacén del comité de planificación y sacar muestras de varios tipos de instrumentos de vidrio, y luego medirlos directamente para saber las dimensiones".
+Todos se miraron unos a otros. Todos estaban acostumbrados a ver vasos y botellas de vidrio, pero ¿quién sabía cuáles eran sus especificaciones y dimensiones? Sin embargo, Xiao Zishan recordó: "Podemos ir al almacén del comité de planificación y sacar muestras de varios tipos de instrumentos de vidrio, y luego medirlos directamente para saber las dimensiones".
 
-  Inmediatamente, Wen Desi llamó a Ma Qian para solicitar prestadas algunas muestras de instrumentos de vidrio. Por otro lado, el grupo de trabajo encargado de la producción de vidrio se dividió en dos equipos. Un equipo, formado por personal especializado en metalurgia y maquinaria, como Ji Wuxing y Xiao Zishan, recibió las muestras y comenzó inmediatamente a medirlas y a diseñar los moldes. El otro equipo, liderado por Ji Situi, estaba compuesto por personal de la industria química y continuó refinando el material de vidrio para asegurar un suministro suficiente para la producción a gran escala. Una vez que se definieron las tareas, cada uno comenzó a trabajar.
+Inmediatamente, Wen Desi llamó a Ma Qian para solicitar prestadas algunas muestras de instrumentos de vidrio. Por otro lado, el grupo de trabajo encargado de la producción de vidrio se dividió en dos equipos. Un equipo, formado por personal especializado en metalurgia y maquinaria, como Ji Wuxing y Xiao Zishan, recibió las muestras y comenzó inmediatamente a medirlas y a diseñar los moldes. El otro equipo, liderado por Ji Situi, estaba compuesto por personal de la industria química y continuó refinando el material de vidrio para asegurar un suministro suficiente para la producción a gran escala. Una vez que se definieron las tareas, cada uno comenzó a trabajar.
 
 Wen Desi también había trabajado con moldes en el pasado. Como no había mucho que hacer durante las vacaciones de Año Nuevo, se unió al departamento de maquinaria, donde pudo ofrecer algunas opiniones profesionales sobre la fabricación de moldes.
 

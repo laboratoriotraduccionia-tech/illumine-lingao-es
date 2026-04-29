@@ -1,10 +1,8 @@
 ## Capítulo 18: La reunión – Comida y alojamiento
 
-  Una vez que los viajeros temporales se trasladan a otra dimensión y época, los tres aspectos principales que deben enfrentar son:
-  1. Las necesidades básicas de vida: tener comida y ropa.
-
-II. Garantía contra amenazas de violencia. Ya sea que la amenaza provenga de personas o de animales salvajes.
-
+Una vez que los viajeros temporales se trasladasen a otra dimensión y época, los tres aspectos principales que deberían enfrentar son:
+1. Las necesidades básicas de vida: tener comida y ropa.
+2. Garantía contra amenazas de violencia. Ya sea que la amenaza provenga de personas o de animales salvajes.
 3. Garantías contra los peligros del mundo natural: clima adverso, enfermedades.
 
 Claro, en comparación con los problemas del sistema industrial, que eran demasiado técnicos, la mayoría de las personas se preocupaban más por estos problemas que les afectaban directamente.
@@ -99,10 +97,10 @@ Wen Desi asintió con la cabeza y anotó algo en la nota: "Capacitación en habi
 
 "Se puede reutilizar el agua subterránea, de esta manera no habrá desperdicio", explicó ella. "Si se quiere algo más avanzado, se puede utilizar un sistema de aire acondicionado geotérmico. El método es similar al segundo. A una profundidad de diez metros bajo tierra, la temperatura suele ser constante alrededor de 20 grados. Se puede lograr un ambiente confortable en invierno y fresco en verano perforando para alcanzar esa profundidad y luego utilizando el agua como medio de intercambio de calor, circulándola entre el subsuelo y el edificio. En invierno, se extrae calor del suelo; en verano, se libera calor al suelo. Por supuesto, nuestro campamento debe estar ubicado en una base geológicamente estable. Si la actividad sísmica es demasiado alta, solo se podrá utilizar para calefacción."
 
-  La mirada de todos los presentes estaba puesta en Xiao Zishan, quien era responsable de los asuntos internos. Xiao Zishan, a su vez, miraba a Wen Desi, el presidente. En el fondo, él estaba de acuerdo con todas las medidas destinadas a mejorar las condiciones de vida de los viajeros temporales. Es fácil pasar de la austeridad a la opulencia, pero es difícil pasar de la opulencia a la austeridad; este principio básico lo comprendía. Un grupo de personas, en su mayoría provenientes de entornos privilegiados en las ciudades, al verse obligadas a comenzar de nuevo en un lugar desolado, podrían ver su moral baja si las condiciones de vida son demasiado difíciles.
+La mirada de todos los presentes estaba puesta en Xiao Zishan, quien era responsable de los asuntos internos. Xiao Zishan, a su vez, miraba a Wen Desi, el presidente. En el fondo, él estaba de acuerdo con todas las medidas destinadas a mejorar las condiciones de vida de los viajeros temporales. Es fácil pasar de la austeridad a la opulencia, pero es difícil pasar de la opulencia a la austeridad; este principio básico lo comprendía. Un grupo de personas, en su mayoría provenientes de entornos privilegiados en las ciudades, al verse obligadas a comenzar de nuevo en un lugar desolado, podrían ver su moral baja si las condiciones de vida son demasiado difíciles.
 
 Sin embargo, él no se atrevió a expresar abiertamente su opinión, ya que este sistema de vida implicaba el uso de una gran cantidad de recursos industriales, y él simplemente no tenía el valor para respaldarlo y expresar su acuerdo.
 
-  Wen Desi y él intercambiaron miradas durante un rato, luego observó a los líderes de cada grupo durante un tiempo, y finalmente dijo una frase clásica:
+Wen Desi y él intercambiaron miradas durante un rato, luego observó a los líderes de cada grupo durante un tiempo, y finalmente dijo una frase clásica:
 
 "Este problema, vamos a estudiarlo un poco más."

@@ -45,7 +45,7 @@ La playa de arena frente a la isla de Hongshi está cubierta de extensas áreas 
 
 En la orilla, se encontraban dispersas algas marinas secas y una gran cantidad de árboles arrancados, evidencia de que un tifón había pasado recientemente por allí. Una razón importante para elegir el mes de septiembre del calendario lunar para el desembarco fue evitar los tifones y las marejadas que suelen ocurrir alrededor del quince de agosto de cada año.
 
-  El interior de la bahía es bastante amplio. Cerca del agua, hay extensas áreas de manglares, con una red de zonas de marea, y diversos tipos de aves acuáticas que se elevan, planean y se posan en el cielo. La calidad del agua no es clara, y se puede ver claramente el fondo de barro. La orilla es plana, con ligeras ondulaciones. Sorprendentemente, no se ve ninguna embarcación de pesca a través del telescopio, lo cual es un poco extraño...
+El interior de la bahía es bastante amplio. Cerca del agua, hay extensas áreas de manglares, con una red de zonas de marea, y diversos tipos de aves acuáticas que se elevan, planean y se posan en el cielo. La calidad del agua no es clara, y se puede ver claramente el fondo de barro. La orilla es plana, con ligeras ondulaciones. Sorprendentemente, no se ve ninguna embarcación de pesca a través del telescopio, lo cual es un poco extraño...
 
 "¡Este lugar es verdaderamente desolado!", exclamó alguien.
 
@@ -53,15 +53,15 @@ En la orilla, se encontraban dispersas algas marinas secas y una gran cantidad d
 
 Bei Wei miró con desaprobación a la persona que hablaba; después de tanto tiempo como había estado retirado y mezclado con la gente, casi había olvidado las reglas básicas de la disciplina militar.
 
-  El lugar de Bolu, aunque se considera un punto estratégico para la entrada y salida de Hainan, ha sido históricamente utilizado por los piratas como una vía rápida para atacar el norte de Qiongzhou. Con el tiempo, a excepción de un pequeño número de pescadores que vivían dispersos en la zona para pescar, la región permaneció desolada hasta la época de Kangxi. En ese momento, el magistrado del condado de Lingao, Fan Shu, visitó el lugar, y conmovido, escribió un poema para describir el entorno:
+El lugar de Bolu, aunque se considera un punto estratégico para la entrada y salida de Hainan, ha sido históricamente utilizado por los piratas como una vía rápida para atacar el norte de Qiongzhou. Con el tiempo, a excepción de un pequeño número de pescadores que vivían dispersos en la zona para pescar, la región permaneció desolada hasta la época de Kangxi. En ese momento, el magistrado del condado de Lingao, Fan Shu, visitó el lugar, y conmovido, escribió un poema para describir el entorno:
 
-  Un caballo corre repetidamente a lo largo de la costa,
-  En las profundidades del desierto, se encuentra una antigua puerta;
-  Olas blancas llenan la vista, marcando la frontera de Dan Cheng,
-  Un pescador con un sombrero amarillo cubre su cabeza;
-  Un bajo alero de tres pies protege de las tormentas,
-  Una pequeña piedra de un puño se utiliza para venerar al dios dragón.
-  ……
+Un caballo corre repetidamente a lo largo de la costa,
+En las profundidades del desierto, se encuentra una antigua puerta;
+Olas blancas llenan la vista, marcando la frontera de Dan Cheng,
+Un pescador con un sombrero amarillo cubre su cabeza;
+Un bajo alero de tres pies protege de las tormentas,
+Una pequeña piedra de un puño se utiliza para venerar al dios dragón.
+……
 
 "¡Activar el timón! Medir la profundidad del agua."
 
@@ -87,7 +87,7 @@ Aquí, los piratas atracaban sus barcos para rellenar agua, y todos convivían p
 
 Cada año, después del décimo quinto día del octavo mes del calendario lunar, cuando los tifones comienzan a disminuir, los ataques de los piratas a lo largo de la costa se vuelven más frecuentes. Recientemente, los barcos de pesca que normalmente se refugian y descansan en esta área tampoco han venido. Los arqueros de patrulla, naturalmente, no pueden descuidar esto, aunque la paga sea poca, al menos es una fuente de ingresos.
 
-  Tan pronto como la lancha de reconocimiento entró en la bahía de Changgong, los arqueros que vigilaban desde la torre de vigilancia la vieron. Normalmente, no molestaría a la patrulla del señor, pero esta lancha se movía tan rápido que lo sorprendió. Cuando la lancha llegó a la desembocadura del río, los hombres que iban en ella eran todos de complexión fuerte, llevaban cascos de hierro, armaduras negras y sostenían armas de fuego negras. Esta situación era grave, así que rápidamente llamó al señor Fuzhun para que subiera a la torre de vigilancia.
+Tan pronto como la lancha de reconocimiento entró en la bahía de Changgong, los arqueros que vigilaban desde la torre de vigilancia la vieron. Normalmente, no molestaría a la patrulla del señor, pero esta lancha se movía tan rápido que lo sorprendió. Cuando la lancha llegó a la desembocadura del río, los hombres que iban en ella eran todos de complexión fuerte, llevaban cascos de hierro, armaduras negras y sostenían armas de fuego negras. Esta situación era grave, así que rápidamente llamó al señor Fuzhun para que subiera a la torre de vigilancia.
 
 "Fú Xúnjiǎn, ¿quiénes son estas personas?", preguntó un arquero en voz baja desde atrás. "¿Debemos subir para interrogarlos?".
 

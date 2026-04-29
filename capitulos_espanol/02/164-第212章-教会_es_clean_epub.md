@@ -1,7 +1,7 @@
 ## Capítulo 208: La iglesia
 
 
-  Xiao Zishan sintió que había aceptado un problema muy difícil y estaba pensando en cómo manejar esta escuela. Como nadie estaba interesado en ser el "líder" de los niños, este puesto de director era temporalmente ocupado por él, y por supuesto, necesitaba encontrar un vicerrector permanente, así que tendría que buscarlo poco a poco. Sin embargo, hubo algo que se confirmó en la reunión: aquellos viajeros temporales que tuvieran "personas a cargo" podían recibir una asignación como subsidio, lo que se consideraba una política más humana.
+Xiao Zishan sintió que había aceptado un problema muy difícil y estaba pensando en cómo manejar esta escuela. Como nadie estaba interesado en ser el "líder" de los niños, este puesto de director era temporalmente ocupado por él, y por supuesto, necesitaba encontrar un vicerrector permanente, así que tendría que buscarlo poco a poco. Sin embargo, hubo algo que se confirmó en la reunión: aquellos viajeros temporales que tuvieran "personas a cargo" podían recibir una asignación como subsidio, lo que se consideraba una política más humana.
 
 En la reunión, también se discutieron asuntos relacionados con la cooperación con la iglesia. La cooperación con la iglesia era bastante complicada: además de utilizarla para obtener personal, tecnología y materiales de Europa, los viajeros temporales también esperaban utilizar una nueva religión para crear un sistema de valores y un marco moral para la futura población, pero sin que la iglesia ocupara demasiado poder e influencia en la vida social, y mucho menos una influencia que proviniera de un país extranjero.
 
@@ -45,7 +45,7 @@ Bai Dalù sintió un escalofrío en el cuero cabelludo. Por supuesto, él sabía
 
 Bai Dalü entendió el significado de Wen Desi (Wen Desi) y dijo: "Un obispo necesita la bendición del Vaticano. La iglesia católica que hemos establecido aquí, llamada 'Iglesia Católica de Lingao', no tiene la bendición del Papa, lo cual es una auto-bendición. Ni la Compañía de Jesús ni el Vaticano lo reconocerán."
 
-  Como católico, Bai Dalü, por supuesto, sabía que la Iglesia siempre ha dado mucha importancia a la cuestión de la autoridad para nombrar obispos.
+Como católico, Bai Dalü, por supuesto, sabía que la Iglesia siempre ha dado mucha importancia a la cuestión de la autoridad para nombrar obispos.
 
 "Nuestra iglesia en Australia es lo que llamamos la 'iglesia perdida'", dijo Wen Desi, quien ya había pensado en todo. "Una iglesia perdida que expresa su lealtad al Vaticano, el Vaticano estará más que encantado y no se preocupará demasiado por el tema de la consagración. Es muy probable que apruebe el resultado. Por eso hemos decidido nombrarle obispo de la iglesia en Australia, y actualmente está a cargo de los asuntos de la iglesia en Lingao. La Compañía de Jesús probablemente aceptará estas condiciones para lograr un avance en su misión evangelizadora."
 

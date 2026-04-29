@@ -1,6 +1,6 @@
 ## Capítulo 200: Wei Si. Lando
 
-  "¿El gerente Wen conoce a esta persona?", Huang Shunlong no parecía sorprendido. "Es una figura bastante conocida en esta región."
+"¿El gerente Wen conoce a esta persona?", Huang Shunlong no parecía sorprendido. "Es una figura bastante conocida en esta región."
 
 "No hay nada que no sepa", dijo Wen Desi. Al recordar la humillación de haber sido capturado en el pasado, casi quería hacer algo, pero esa idea arruinaría su imagen. "Esta mujer tiene una conexión importante con nosotros", dijo vagamente.
 
@@ -24,13 +24,13 @@ Después de salir, dio una vuelta y regresó al punto de encuentro, bajo la cruz
 
 "El presidente de la Compañía de Jesús local desea conocerle."
 
-  El término "Jesuitas" inmediatamente evocó en la mente de Wen Desi la imagen de una figura vestida de negro, siniestra, sentada en una oscura habitación de mármol. ¿Qué quería el líder de los Jesuitas? ¿Declararle el evangelio de Dios? Wen Desi nunca había discutido la política religiosa de los viajeros temporales. De hecho, no le gustaban mucho las diversas religiones de esta línea temporal. Lo ideal sería crear una especie de "Santa Religión", donde él mismo podría ser el arcángel, aunque con tantos viajeros en esta ocasión, probablemente no sería posible. Estos modernos, aunque parecen débiles, son extremadamente hábiles en las luchas políticas.
+El término "Jesuitas" inmediatamente evocó en la mente de Wen Desi la imagen de una figura vestida de negro, siniestra, sentada en una oscura habitación de mármol. ¿Qué quería el líder de los Jesuitas? ¿Declararle el evangelio de Dios? Wen Desi nunca había discutido la política religiosa de los viajeros temporales. De hecho, no le gustaban mucho las diversas religiones de esta línea temporal. Lo ideal sería crear una especie de "Santa Religión", donde él mismo podría ser el arcángel, aunque con tantos viajeros en esta ocasión, probablemente no sería posible. Estos modernos, aunque parecen débiles, son extremadamente hábiles en las luchas políticas.
 
 "Primero, encontremos un lugar donde puedas contarme lo que viste al sacerdote", dijo Wen Desi.
 
 En el interior de una pequeña pero elegante iglesia, ubicada en el barrio portugués del centro de la ciudad, la intensa luz del sur de China se filtraba a través de los pequeños paneles de vidrio con plomo de las ventanas, iluminando el suelo de mármol y creando tenues juegos de luces y sombras. Una persona vestida con una túnica de monje estaba sentada junto a un gran escritorio, con la cabeza gacha, aparentemente absorta en sus pensamientos. Las esquinas del escritorio estaban doradas y estaban cubiertas de libros y documentos. Destacaba, también, un elaborado crucifijo de madera de ébano que representaba a Jesús.
 
-  Detrás de él, había una gran chimenea con una ornamentación muy elaborada. Observando los diseños y los patrones únicos del mármol, quizás la piedra y los artesanos provinieron de la lejana Italia. Por supuesto, en el sur de China, donde incluso en los días más fríos la temperatura no baja de 20 grados Celsius, este objeto tiene puramente un significado decorativo, simbolizando el poder del presidente de la delegación de la Compañía de Jesús en Macao. Este presidente controla todos los asuntos de la misión católica en China y el este de Asia, y su posición dentro de la Iglesia es tal que ni siquiera necesita rendir cuentas a la autoridad del obispo de Macao.
+Detrás de él, había una gran chimenea con una ornamentación muy elaborada. Observando los diseños y los patrones únicos del mármol, quizás la piedra y los artesanos provinieron de la lejana Italia. Por supuesto, en el sur de China, donde incluso en los días más fríos la temperatura no baja de 20 grados Celsius, este objeto tiene puramente un significado decorativo, simbolizando el poder del presidente de la delegación de la Compañía de Jesús en Macao. Este presidente controla todos los asuntos de la misión católica en China y el este de Asia, y su posición dentro de la Iglesia es tal que ni siquiera necesita rendir cuentas a la autoridad del obispo de Macao.
 
 Esta figura solitaria es Jielanzani, el presidente de la Compañía de Jesús en Macao.
 
@@ -47,7 +47,7 @@ Los misioneros enviados, con la excepción de Limadao, quien logró cierto éxit
 Las actividades misioneras en China no fueron tan exitosas como en Japón. Aunque, gracias a los esfuerzos de 利马窦 (Lǐmǎ Dòu), se logró obtener un grupo de creyentes entre funcionarios y intelectuales chinos, y se pudo ingresar a la capital de China para participar en la revisión astronómica y la fabricación de armas de la corte, el número de creyentes siempre se mantuvo estancado. Él era consciente de que la población común china, los funcionarios y los intelectuales siempre mantenían una actitud de desconfianza hacia estos extranjeros con costumbres y apariencia tan diferentes.
 
 Él suspiró, como si hubiera escuchado pasos afuera de la puerta:
-  "¿Qué sucede?"
+"¿Qué sucede?"
 
 Una puerta, oculta tras una cortina, se abrió silenciosamente. Una persona vestida de negro entró con cuidado:
 
@@ -66,7 +66,7 @@ El presidente observaba a la persona que tenía delante. Su mirada era profunda 
 Este individuo peligroso, pensó el会长, ¿realmente puedo confiarle esta misión? Este aventurero, que se hacía llamar Wei Si Landu y afirmaba ser un miembro de una familia noble de la región de Parma en Italia, hablaba italiano de manera muy deficiente, lo que avergonzaba a Jelanzani, que era su compatriota. La gente descubrió que, de vez en cuando, solía hablar inglés. Si no fuera por su apariencia y su firme creencia, el会长 realmente sospechaba que era un inglés hereje.
 
 Había muchos aventureros como este en el Lejano Oriente en aquella época, con historias y orígenes, verdaderos o inventados. Intentaban sacar provecho de la prosperidad de la Gran Navegación. El presidente pensó: "Está bien, de todos modos, estas personas no tienen raíces, y si ocurre algún imprevisto, no tendrá que explicárselo a nadie". Miró detenidamente al oficial, guardó silencio por un momento y dijo:
-  "¿Usted es el señor Weis. Lando?"
+"¿Usted es el señor Weis. Lando?"
 
 "Soy yo, señor," dijo Lando.
 
@@ -85,7 +85,7 @@ Había muchos aventureros como este en el Lejano Oriente en aquella época, con 
 
 "¿Son australianos? Se refieren a sí mismos como australianos."
 
-  Lando se encogió de hombros: "Son chinos de pura cepa, aunque no son de la dinastía Ming."
+Lando se encogió de hombros: "Son chinos de pura cepa, aunque no son de la dinastía Ming."
 
 "¿La nave de Aragornes todavía está en reparación?"
 

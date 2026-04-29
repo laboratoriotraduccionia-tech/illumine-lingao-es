@@ -1,6 +1,6 @@
 ## Capítulo 89: El nuevo poblado agrícola (III)
 
-  "Bien, primero debemos evaluar nuestros recursos", propuso Wu Nanhai durante la primera reunión general del comité agrícola.
+"Bien, primero debemos evaluar nuestros recursos", propuso Wu Nanhai durante la primera reunión general del comité agrícola.
 
 El Comité de Agricultura ya tenía un registro, pero en los más de cincuenta días desde que llegaron a tierra, los números y las cantidades habían cambiado, por lo que era necesario realizar algunas correcciones.
 
@@ -14,8 +14,8 @@ Maíz, trigo y semillas de cebada, 100 kilogramos de cada uno, además de varios
 
 * Semillas de verduras: pimientos verdes, tomates, repollo, acelgas, zanahorias, calabazas, pepinos, cebollas, varios tipos de cebollino, ajo, etc., 1 kilogramo de cada uno.
 
-  En aquella época, las especias se podían obtener fácilmente en el sudeste asiático a través del comercio marítimo, por lo que solo llevó semillas de pimiento rojo y pimienta, 10 variedades en total, con un peso de 10 kilogramos.
-  Antes de embarcar, compró varios paquetes grandes de semillas de frutas adecuadas para el cultivo en Hainan, cada paquete de 1 kilogramo.
+En aquella época, las especias se podían obtener fácilmente en el sudeste asiático a través del comercio marítimo, por lo que solo llevó semillas de pimiento rojo y pimienta, 10 variedades en total, con un peso de 10 kilogramos.
+Antes de embarcar, compró varios paquetes grandes de semillas de frutas adecuadas para el cultivo en Hainan, cada paquete de 1 kilogramo.
 
 Finalmente, no olvidó su pequeña afición por el tabaco. 10 kilogramos de semillas de tabaco le asegurarían una posición de liderazgo en la futura industria del cultivo de tabaco, y Wu Nan hai ya estaba planeando que, una vez que cultivara el tabaco, él mismo produciría cigarrillos.
 
@@ -25,7 +25,7 @@ Todas las semillas vienen en embalajes sellados y deberían tener una vida útil
 
 También trajeron consigo muchas plántulas: 50 plántulas de palmera de coco, 50 plántulas de árbol de caucho, 20 plántulas de café, 20 de cacao, 20 de coca, 50 de quinina, 5 de amapola, y algunas plántulas de árboles maderables, árboles de rápido crecimiento y árboles frutales, así como tallos de caña de azúcar y plátano. Estas plantas eran muy útiles para ellos, pero la dificultad para gestionarlas y cultivarlas era considerable. Wu Nanhai recordaba que el profesor de la especialidad de agricultura había mencionado en clase que, en aquel entonces, en la granja de jóvenes voluntarios en Yunnan, se cultivaban plántulas de quinina, con una tasa de germinación tan baja como el 5%. Se decía que las semillas de quinina eran más caras que el oro. La quinina es un medicamento eficaz contra la malaria. Sin ella, los planes de los viajeros temporales de avanzar hacia el norte, a Taiwan, o hacia el sur, al sudeste asiático, para establecer colonias, fracasarían. Por lo tanto, además de las plántulas, también llevaron consigo algunas semillas como respaldo.
 
-  En cuanto a los animales de granja y aves de corral, actualmente hay 6 cerdos: dos parejas de cerdos Changbai y una pareja de cerdos min de Dongbei. Los cerdos Changbai son cerdos de carne magra importados de Dinamarca, utilizados como machos para la cría; los cerdos min de Dongbei son una raza local de la región de Dongbei, resistentes a la alimentación de baja calidad y con una alta tasa de crías, utilizados como hembras para la cría. Además, estos cerdos tienen una tasa de deposición de grasa especialmente alta, lo que facilita la obtención de grasa animal. Ahora también tienen 4 cerdos locales jóvenes.
+En cuanto a los animales de granja y aves de corral, actualmente hay 6 cerdos: dos parejas de cerdos Changbai y una pareja de cerdos min de Dongbei. Los cerdos Changbai son cerdos de carne magra importados de Dinamarca, utilizados como machos para la cría; los cerdos min de Dongbei son una raza local de la región de Dongbei, resistentes a la alimentación de baja calidad y con una alta tasa de crías, utilizados como hembras para la cría. Además, estos cerdos tienen una tasa de deposición de grasa especialmente alta, lo que facilita la obtención de grasa animal. Ahora también tienen 4 cerdos locales jóvenes.
 
 En la tabla de potencia animal de la Comisión de Agricultura, solo se incluyó un par de caballos de tiro de Tieling, un tipo de caballo de tiro relativamente raro en la antigua China. Los dos caballos de carreras que Nick trajo originalmente no estaban dentro de su jurisdicción, pero después de la muerte de "Lándiàn", Nick, con el corazón afligido, también colocó a "Ālánchí" bajo el cuidado de la Comisión de Agricultura. Al principio, Wu Nanhai, el jefe, no estaba muy contento, porque las diversas solicitudes de cuidado que Nick presentaba lo abrumaban: por ejemplo, alimentar al caballo cinco veces al día, darle agua tibia para beber... Hasta que Yang Bao贵 mencionó que esta vieja yegua de carreras aún tenía cierto valor.
 
@@ -35,7 +35,7 @@ En la tabla de potencia animal de la Comisión de Agricultura, solo se incluyó 
 
 "Probablemente tiene entre trece y catorce años", dijo Yang Bao贵, revisando una libreta. "Todavía no he examinado sus dientes, pero un caballo puede vivir hasta los treinta años. Este caballo no es muy adecuado para carreras, pero podría servir como semental."
 
-  Los tres caballos locales capturados, identificados por Yang Bao贵, son caballos de Yunnan, con una edad aproximada de siete u ocho años, y dos de ellos son castrados. Estos tres caballos pueden ser utilizados directamente para el trabajo.
+Los tres caballos locales capturados, identificados por Yang Bao贵, son caballos de Yunnan, con una edad aproximada de siete u ocho años, y dos de ellos son castrados. Estos tres caballos pueden ser utilizados directamente para el trabajo.
 
 "Sería ideal conseguir más caballos", dijo Wu Nanhai, observando los diversos equipos agrícolas pequeños que estaban siendo descargados en el patio. Tenían tractores pequeños, y también tractores grandes y medianos que estaban siendo utilizados por el departamento de ingeniería, pero a largo plazo, era necesario tener animales de tiro. Para entrar en la era de la tracción animal lo antes posible, antes de que se agotaran todos los recursos de mecanización, no solo se debía satisfacer la propia necesidad, sino también la de los agricultores que adoptaban los nuevos métodos agrícolas.
 

@@ -7,11 +7,11 @@ Después de que las hostilidades cesaron, algunos funcionarios enviaron a person
 
 Lo que ellos veían y escuchaban era mucho más directo y preciso que los mensajes "manipulados" que se presentaban ante el emperador, y que habían sido alterados por diversas partes interesadas con diferentes propósitos.
 
-  Quizás las opiniones y los juicios varíen, pero su conocimiento de las capacidades de los "kunzei" (bandidos con la cabeza rapada) era inmejorable.
+Quizás las opiniones y los juicios varíen, pero su conocimiento de las capacidades de los "kunzei" (bandidos con la cabeza rapada) era inmejorable.
 
 "Los rebeldes" efectivamente eran "bárbaros", pero eran un tipo de "bárbaro" completamente diferente al de épocas pasadas. No solo eran descarados en su deseo de "igualdad", sino que también poseían un poder destructivo.
 
-  Este poder, a la vez que les inspiraba temor, también los fascinaba. La habilidad de los "rebeles" para "convertir piedras en oro" nunca fue una leyenda, sino una realidad.
+Este poder, a la vez que les inspiraba temor, también los fascinaba. La habilidad de los "rebeles" para "convertir piedras en oro" nunca fue una leyenda, sino una realidad.
 
 La dinastía se encontraba en un período de inestabilidad, y la gran dinastía Ming ya llevaba casi tres siglos. Desde la época de Zulong, ninguna dinastía, a excepción de la gran Han, que experimentó un renacimiento bajo el emperador Guangwu, había logrado sobrevivir durante tres siglos.
 
@@ -35,7 +35,7 @@ Con el inicio de la campaña continental del Consejo de Ancianos, la dinastía M
 
 Existen dos obstáculos principales. El primero es la necesidad de manejar con delicadeza la imagen del emperador; para el grupo burocrático, organizar celebraciones en un funeral no es inherentemente difícil. El problema principal proviene del segundo obstáculo: las luchas de facciones.
 
-  Al final de la dinastía Ming, las luchas partidistas, a pesar de la actitud de "rechazo absoluto a las facciones" del emperador Chongzhen, alcanzaron su punto álgido. Cualquier política se convirtió en una razón para que los oponentes políticos la criticaran, llegando a un estado en el que "no se importa con el bien o el mal, solo con los intereses personales". Una cuestión tan importante como "buscar la paz" inevitablemente provocaría un ataque concentrado por parte de la facción opuesta. Esta intensa confrontación hizo que la dinastía Ming vacilara y dudara en muchas decisiones importantes, lo que generó un enorme desgaste interno.
+Al final de la dinastía Ming, las luchas partidistas, a pesar de la actitud de "rechazo absoluto a las facciones" del emperador Chongzhen, alcanzaron su punto álgido. Cualquier política se convirtió en una razón para que los oponentes políticos la criticaran, llegando a un estado en el que "no se importa con el bien o el mal, solo con los intereses personales". Una cuestión tan importante como "buscar la paz" inevitablemente provocaría un ataque concentrado por parte de la facción opuesta. Esta intensa confrontación hizo que la dinastía Ming vacilara y dudara en muchas decisiones importantes, lo que generó un enorme desgaste interno.
 
 "Guo Yi", quien había permanecido en silencio durante todo el tiempo, preguntó: "¿Qué razones tenemos para creer que, esta vez, la corte de la dinastía Ming se unirá para negociar la paz?"
 
@@ -49,7 +49,7 @@ Por un lado, los gobiernos locales recién establecidos necesitan urgentemente p
 
 "Sería lo mejor que el comercio se restableciera; ahora mismo, nuestro comercio exterior con la dinastía Ming está muy afectado", dijo Sikaide. "¿Podemos emplear algunos métodos? Por ejemplo, podríamos eliminar a los que se oponen..."
 
-"   El departamento comercial también deseaba fervientemente un acuerdo de paz. Aunque existían muchos canales para vender "productos de Australia" en el continente, el estado "ilegal" de este comercio a menudo implicaba costos adicionales significativos.
+" El departamento comercial también deseaba fervientemente un acuerdo de paz. Aunque existían muchos canales para vender "productos de Australia" en el continente, el estado "ilegal" de este comercio a menudo implicaba costos adicionales significativos.
 
 "No es que sea imposible, pero matar a algunas personas y esperar que eso cambie la situación probablemente será difícil... y los funcionarios civiles de la dinastía Ming son bastante tercos..."
 
@@ -61,13 +61,13 @@ Por un lado, los gobiernos locales recién establecidos necesitan urgentemente p
 
 "Este asunto también ha sido mencionado por el ejército. Sin embargo, es una acción demasiado importante, y es probable que requiera una discusión en el Consejo de Ancianos antes de que se pueda tomar una decisión..."
 
-  ……
+……
 
 En la sala de reuniones, los presentes expresaban diversas opiniones, y todos estaban buscando formas de presionar a la dinastía Ming para que aceptara la negociación.
 
 "Después de todo, no somos omnipotentes, y algunas cosas dependen de cómo se desarrolle la situación", interrumpió Jiangshan la animada discusión. Luego añadió: "Ahora, por favor, permitid que el compañero Xukeli de la Dirección de Reconocimiento haga una presentación sobre los asuntos relacionados con el Grupo Shiweng en esta operación".
 
-  Todos se animaron. Durante estos años, el Grupo Shi Weng ha sido como una mosca persistente para el Consejo de Ancianos, causando pocos daños, pero siendo muy molesto. Además, el hecho de que haya personas sospechosas de ser viajeros temporales dentro del Grupo Shi Weng ha sido una preocupación para todos.
+Todos se animaron. Durante estos años, el Grupo Shi Weng ha sido como una mosca persistente para el Consejo de Ancianos, causando pocos daños, pero siendo muy molesto. Además, el hecho de que haya personas sospechosas de ser viajeros temporales dentro del Grupo Shi Weng ha sido una preocupación para todos.
 
 El señor Xǔ explicó detalladamente la situación relacionada con el Grupo Shiweng que había estado involucrado en esta operación.
 
@@ -99,8 +99,8 @@ Los presentes se sentían inquietos ante esta perspectiva, porque ninguno de ell
 
 Guo Yi tosió suavemente y dijo: "Creo que no es necesario que todos estén tan tensos. Después de todo, aún no se puede confirmar si el señor Le es un viajero temporal. El hecho de que posea conocimientos de épocas pasadas no necesariamente significa que provenga de una de ellas. Es necesario esperar los resultados del interrogatorio para llegar a una conclusión. Además, han pasado más de diez años, y nuestras fuentes de información son muy amplias, y no se limitan a una sola región. Si realmente existen, es probable que ya hayan revelado su paradero. Y no hemos recibido información al respecto, lo que sugiere que es muy probable que no haya otros viajeros temporales. Incluso si existieran, no han causado ningún problema en estos años, ya sea porque son poco habilidosos o porque carecen de ambición. No representan una amenaza."
 
-  Estas palabras ayudaron a calmar un poco la emoción de la gente. Guo Yi continuó diciendo:
-  "Prestar atención a si hay otros viajeros temporales es una de las prioridades de nuestra agencia de inteligencia, pero no debería ser el trabajo principal. De lo contrario, el objetivo sería demasiado amplio y podría parecer que estamos persiguiendo sombras."
+Estas palabras ayudaron a calmar un poco la emoción de la gente. Guo Yi continuó diciendo:
+"Prestar atención a si hay otros viajeros temporales es una de las prioridades de nuestra agencia de inteligencia, pero no debería ser el trabajo principal. De lo contrario, el objetivo sería demasiado amplio y podría parecer que estamos persiguiendo sombras."
 
 Jiangshan asintió levemente, pensando que el camarada Guo tenía algunas ideas interesantes. Era cierto que dedicar recursos a investigar pistas sin tener pruebas concretas de "posibles viajeros temporales" sería un desperdicio enorme. Además, incluso si se encontrara algo, ¿qué se podría hacer? ¿Se podría simplemente eliminar a alguien por ser una "potencial amenaza"? Eso sería demasiado cruel.
 

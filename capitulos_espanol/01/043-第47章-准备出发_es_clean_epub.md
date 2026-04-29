@@ -1,7 +1,7 @@
 ## Capítulo 43: Preparativos para el viaje
 
 
-  La luna se hacía cada vez más redonda, y el trabajo en la sede central se apartaba de su ritmo habitual. Toda la organización entraba en un período de funcionamiento acelerado.
+La luna se hacía cada vez más redonda, y el trabajo en la sede central se apartaba de su ritmo habitual. Toda la organización entraba en un período de funcionamiento acelerado.
 
 El departamento de finanzas convirtió todos los activos que podían ser convertidos en moneda RMB, y luego convirtió el RMB en innumerables suministros. Para evitar cualquier problema inesperado al final, el departamento de finanzas conservó aproximadamente 500,000 RMB y también fundió los más de diez kilogramos de oro que aún no se habían convertido en pequeñas barras de 10, 25 y 50 gramos, preparadas para su uso inmediato; aunque no es tan práctico como el efectivo, el valor del oro es algo que todos entienden.
 
@@ -15,18 +15,18 @@ Para ciertas vacunas, ya es demasiado tarde para la revacunación; el proceso co
 
 "También hay muchas personas que no se someten a la cirugía de queratotomía para corregir la visión", dijo el doctor Lan Fangfang con tristeza. Tenía que añadir un conjunto completo de equipos de optometría tradicionales a los equipos médicos que estaba comprando; a diferencia de los equipos de optometría y los pulidores de lentes controlados por computadora que se encuentran en todas partes, estos equipos eran realmente difíciles de encontrar.
 
-  Todavía hay muchas cosas difíciles de encontrar. Uno de los problemas más importantes para el grupo de higiene es que no pueden usar tantos productos desechables como en los hospitales modernos. Por ejemplo, las jeringas y los sistemas de infusión de vidrio son difíciles de encontrar, y los pequeños equipos de esterilización que los acompañan también han desaparecido. Tuvieron que buscar en muchas empresas farmacéuticas, fábricas de equipos médicos y almacenes de hospitales para conseguir todo lo necesario. Muchos de los tubos de goma especiales utilizados en los equipos médicos antiguos estaban muy deteriorados, y no había lugar donde comprarlos, así que tuvieron que pedir a las empresas que los fabricaran a medida, lo cual es muy costoso.
+Todavía hay muchas cosas difíciles de encontrar. Uno de los problemas más importantes para el grupo de higiene es que no pueden usar tantos productos desechables como en los hospitales modernos. Por ejemplo, las jeringas y los sistemas de infusión de vidrio son difíciles de encontrar, y los pequeños equipos de esterilización que los acompañan también han desaparecido. Tuvieron que buscar en muchas empresas farmacéuticas, fábricas de equipos médicos y almacenes de hospitales para conseguir todo lo necesario. Muchos de los tubos de goma especiales utilizados en los equipos médicos antiguos estaban muy deteriorados, y no había lugar donde comprarlos, así que tuvieron que pedir a las empresas que los fabricaran a medida, lo cual es muy costoso.
 
 El comité ejecutivo tiene una actitud muy clara con respecto a la atención médica e higiene: están dispuestos a gastar una cantidad ilimitada de dinero. Siempre que se pueda garantizar un nivel de atención médica lo más alto posible, están dispuestos a aprobar cualquier presupuesto necesario. Como resultado, el departamento de salud se convirtió en el departamento del sector social que más dinero gastaba.
 
-  Finalmente, se elaboró una lista que casi podría utilizarse para abrir un hospital:
-  1. Equipos de diagnóstico:
-  Un endoscopio, un ecógrafo, una máquina de rayos X, un colonoscopio, un laparoscopio, un electrocardiograma, 10 monitores de signos vitales, 5 microscopios médicos.
+Finalmente, se elaboró una lista que casi podría utilizarse para abrir un hospital:
+1. Equipos de diagnóstico:
+Un endoscopio, un ecógrafo, una máquina de rayos X, un colonoscopio, un laparoscopio, un electrocardiograma, 10 monitores de signos vitales, 5 microscopios médicos.
 
 2. Equipos de tratamiento:
  * Dos lámparas sin sombras (diámetro de 1.5 metros).
 
-  Dos tiendas de campaña para cirugía.
+Dos tiendas de campaña para cirugía.
 
 Dos mesas de operaciones.
 
@@ -36,11 +36,11 @@ Dos mesas de operaciones.
 
 Dos máquinas de lavado gástrico.
 
-  Dos equipos de tratamiento odontológico.
+Dos equipos de tratamiento odontológico.
 
-  Dos desfibrilladores.
+Dos desfibrilladores.
 
-  jeringas de vidrio100只（1ml5ml10ml20ml50ml）
+jeringas de vidrio100只（1ml5ml10ml20ml50ml）
 
 50 juegos de bolsas de vidrio para infusión.
 
@@ -48,13 +48,13 @@ Dos máquinas de lavado gástrico.
 
 10 juegos de instrumentos dentales.
 
-  Equipo para partos, 5 juegos.
+Equipo para partos, 5 juegos.
 
-  Dos juegos de equipos e instrumentos para ortopedia.
+Dos juegos de equipos e instrumentos para ortopedia.
 
 Cada juego incluye: un bisturí eléctrico, una punta redonda y una punta plana para el bisturí, 4 pinzas hemostáticas de diferentes tamaños, 4 pinzas curvas, 4 pinzas de gancho, 2 ganchos de succión de diferentes tamaños, 2 pinzas con dientes de diferentes tamaños, 2 pinzas planas de diferentes tamaños y 2 compresas intestinales de diferentes tamaños.
 
-  Incluye una bata quirúrgica, una mascarilla, un gorro, guantes y otros elementos.
+Incluye una bata quirúrgica, una mascarilla, un gorro, guantes y otros elementos.
 
 gran cantidad de hilo de sutura、apósitos、gasa、desinfectante, etcétera
 3. Medicamentos.
@@ -62,10 +62,10 @@ gran cantidad de hilo de sutura、apósitos、gasa、desinfectante, etcétera
 * Medicamentos de rescate: Manitol, adrenalina sintética, adrenalina, norepinefrina, esmolol, diltiazem, amiodarona, betabloqueantes, digoxina, atropina.
 * Anestésicos: Lidocaína (dosis altas).
 
-  Gran cantidad de furosemida (diurético).
-  Gran cantidad de antibióticos (penicilina, eritromicina, clindamicina, cefalosporinas, sulfamidas, ornidazol, metronidazol, ornidazol, vancomicina), ordenados por eficacia de menor a mayor.
+Gran cantidad de furosemida (diurético).
+Gran cantidad de antibióticos (penicilina, eritromicina, clindamicina, cefalosporinas, sulfamidas, ornidazol, metronidazol, ornidazol, vancomicina), ordenados por eficacia de menor a mayor.
 
-  Una gran cantidad de medicamentos antivirales (viruzol).
+Una gran cantidad de medicamentos antivirales (viruzol).
 
 Varios medicamentos comunes, vacunas y antídotos contra el veneno de serpientes.
 
@@ -85,7 +85,7 @@ En este nivel, la configuración de los "viajeros temporales" está principalmen
 
 El conjunto de mochila, una versión imitada de la infantería de marina de los Estados Unidos, se puede dividir en 6 paquetes de diferentes tamaños. Generalmente, los viajeros temporales no reciben uniformes de camuflaje, sino que se les proporciona un uniforme de servicio y entrenamiento de color verde militar tropical, botas de combate tropicales, un gorro tipo "benny" y un casco, este último con una cubierta especial para proteger contra los mosquitos. Además, se les proporciona gafas de protección, un impermeable y botas de goma de caña alta.
 
-  En general, los viajeros temporales se alojan en el barco o en habitaciones sencillas dentro de la base. Por lo tanto, los artículos de alojamiento no enfatizan el estilo de campamento. Hainan, al estar ubicada en una región subtropical, se proporciona una bolsa de dormir para temperaturas de 15 grados y un colchón impermeable complementario.
+En general, los viajeros temporales se alojan en el barco o en habitaciones sencillas dentro de la base. Por lo tanto, los artículos de alojamiento no enfatizan el estilo de campamento. Hainan, al estar ubicada en una región subtropical, se proporciona una bolsa de dormir para temperaturas de 15 grados y un colchón impermeable complementario.
 
 En cuanto al equipo de protección y las armas, los viajeros temporales de nivel A no participan en conflictos intensos y solo necesitan una protección limitada. Por lo tanto, se les proporciona un chaleco antibalas, guantes y un casco de acero modelo 80. La razón por la que no se utilizan cascos más ligeros de materiales orgánicos es porque estos últimos tienden a deteriorarse, mientras que hay una gran cantidad de cascos modelo 80 disponibles a un precio más económico.
 
@@ -122,7 +122,7 @@ Por encima del nivel A, existen los niveles B, que corresponden a personal milit
 
 De acuerdo con los cálculos repetidos del comité, cada viajero temporal puede llevar 200 kg de objetos personales, incluyendo el equipo asignado. La cantidad y el tipo de objetos personales permitidos no están limitados, siempre y cuando no excedan el peso total. Sin embargo, no se permite llevar armas de fuego (cualquier arma que se lleve debe ser entregada para su custodia).
 
-  Ma Qianzhu, sin importarle el esfuerzo, supervisó minuciosamente el embalaje de las pertenencias de cada uno de los viajeros temporales, y no pudo evitar negar con la cabeza. Casi todos los viajeros temporales llevaban diversos tipos de computadoras, pero muy pocos pensaron en llevar un cuaderno y un bolígrafo. Muchos también llevaban dispositivos de entretenimiento como MP3 y PSP. Parecía que pensaban que habría enchufes disponibles en todas partes. Sin embargo, llevaban muy pocas prendas de vestir íntimas, calcetines y artículos de higiene personal, que son esenciales para la higiene personal.
+Ma Qianzhu, sin importarle el esfuerzo, supervisó minuciosamente el embalaje de las pertenencias de cada uno de los viajeros temporales, y no pudo evitar negar con la cabeza. Casi todos los viajeros temporales llevaban diversos tipos de computadoras, pero muy pocos pensaron en llevar un cuaderno y un bolígrafo. Muchos también llevaban dispositivos de entretenimiento como MP3 y PSP. Parecía que pensaban que habría enchufes disponibles en todas partes. Sin embargo, llevaban muy pocas prendas de vestir íntimas, calcetines y artículos de higiene personal, que son esenciales para la higiene personal.
 
 "El equipo necesario para un viaje de este tipo, similar a viajar en el tiempo, es variado y abundante, no uniforme. El comité decidió ajustar el equipo de todos los participantes. Intentaron convencerlos de que no llevaran tantos objetos innecesarios. Los artículos que no fueran esenciales podrían enviarse por correo a casa, pero la mayoría se negó rotundamente a dejar sus computadoras atrás, incluso si el viaje en el tiempo tenía éxito, ya que, de cualquier manera, para la mayoría, la tecnología necesaria para producir esas computadoras no estaría disponible durante su vida."
 

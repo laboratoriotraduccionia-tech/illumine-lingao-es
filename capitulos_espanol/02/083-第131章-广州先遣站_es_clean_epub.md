@@ -38,7 +38,7 @@ Se suspendió la implementación de las instalaciones de seguridad y vigilancia 
 
 En cuanto al suministro de agua, toda la casa cuenta con dos pozos disponibles, que ya fueron excavados en profundidad por personas contratadas durante las primeras reparaciones. Para evitar problemas de adaptación a las condiciones locales en los habitantes modernos, el grupo de avanzada también trajo un sistema de filtrado y desinfección de agua portátil. Los filtros de este sistema duran un año con cada reemplazo, lo cual es bastante práctico.
 
-  El barco "Yingzhou" trajo más de treinta toneladas de suministros y cinco mil taels de plata. Esta fue la totalidad del capital inicial para la estación avanzada, y según las regulaciones, el personal de la estación avanzada no podía retirar ni utilizar los doscientos mil taels de crédito asignados a Gao Ju.
+El barco "Yingzhou" trajo más de treinta toneladas de suministros y cinco mil taels de plata. Esta fue la totalidad del capital inicial para la estación avanzada, y según las regulaciones, el personal de la estación avanzada no podía retirar ni utilizar los doscientos mil taels de crédito asignados a Gao Ju.
 
 "Todos estaban ocupados, y Guo Yi, solo en la habitación, estaba considerando cómo llevar a cabo el trabajo futuro. Las tareas asignadas por el Comité Ejecutivo a la avanzada se pueden resumir en dos puntos: recopilación de información y comercio."
 
@@ -46,7 +46,7 @@ Independientemente del objetivo que se quiera alcanzar, es fundamental establece
 
 "Guo Yi recordó la clase que les dio antes de su partida, en Eshuǐ, sobre "La situación socioeconómica de la época Ming". Mientras pensaba en cómo abordar el tema,..."
 
-  Para un comerciante, establecer relaciones directas con funcionarios de nivel medio a alto es muy difícil. Incluso si se gasta mucho dinero, solo se obtiene un poco de prestigio en eventos sociales, y rara vez se alcanza el nivel de connivencia entre funcionarios y empresarios que se observa en épocas posteriores, donde los intereses se entrelazan completamente. Sin embargo, los burócratas tienen un gran poder adquisitivo y poder político, y esta es una área en la que ellos mismos deberán trabajar arduamente en el futuro.
+Para un comerciante, establecer relaciones directas con funcionarios de nivel medio a alto es muy difícil. Incluso si se gasta mucho dinero, solo se obtiene un poco de prestigio en eventos sociales, y rara vez se alcanza el nivel de connivencia entre funcionarios y empresarios que se observa en épocas posteriores, donde los intereses se entrelazan completamente. Sin embargo, los burócratas tienen un gran poder adquisitivo y poder político, y esta es una área en la que ellos mismos deberán trabajar arduamente en el futuro.
 
 En segundo lugar, están los terratenientes y comerciantes locales, que o bien tienen un título oficial o tienen vínculos de interés con los funcionarios. Son como "serpientes locales" con poder y dinero. Gao Ju es un ejemplo de este tipo de persona. Es relativamente fácil establecer relaciones con ellos, y tienen fuertes conexiones con la burocracia de nivel medio. Este nivel es la principal área de enfoque para las actividades actuales de la avanzada. Después de llegar a Guangzhou, conocí a un hombre llamado Liang Cunhou. Aunque aún no sé cuáles son sus motivos para relacionarse con los viajeros temporales, es un "juren" (graduado) y tiene mucha más influencia dentro de la clase de hombres de negocios que Gao Ju. Aprovechar esta relación puede abrir muchas puertas en este nivel.
 
@@ -54,18 +54,18 @@ Los funcionarios estaban rodeados de escribas, asistentes, administradores y vis
 
 En cuanto a la gente común, se pueden obtener muchas noticias locales y opiniones públicas a través de sus conversaciones. Es importante recopilar este tipo de información.
 
-<p>Sin embargo, en toda la estación de Guangzhou, solo había seis personas trabajando, que eran:</p>
-<p>Jefe de estación: Guo Yi</p>
+Sin embargo, en toda la estación de Guangzhou, solo había seis personas trabajando, que eran:
+Jefe de estación: Guo Yi
 
 **Responsables de negocios:** Yán Màodá, Zhāng Xìn.
 
 El encargado de la recepción: Zhang Yuchen.
 
 Agentes: Lu Rong, PEPI.
-  Es difícil para tan pocas personas encargarse de tantas cosas. Yan Maoda y Zhang Xin, ambos con experiencia en ventas, no son solo veteranos experimentados del mundo empresarial; si se adaptan al entorno y mejoran su dominio del dialecto de Guangzhou, seguramente tendrán éxito en actividades comerciales, relaciones públicas y organización de ventas.
+Es difícil para tan pocas personas encargarse de tantas cosas. Yan Maoda y Zhang Xin, ambos con experiencia en ventas, no son solo veteranos experimentados del mundo empresarial; si se adaptan al entorno y mejoran su dominio del dialecto de Guangzhou, seguramente tendrán éxito en actividades comerciales, relaciones públicas y organización de ventas.
 
 Zhang Yuchen es personal de telecomunicaciones y, además, no es muy hablador, por lo que solo puede encargarse de tareas administrativas.
 
-  Parece que solo él, Lu Rong y PEPI estarán a cargo del trabajo de inteligencia. La forma en que PEPI utiliza los recursos es realmente un problema, aunque ella misma parece no preocuparse, mostrando una actitud segura de sí misma. Guo Yi sospecha que ella no ha considerado en absoluto la seriedad y el peligro del trabajo clandestino, y simplemente ve este lugar como un escenario para satisfacer su deseo de actuar. Solo sus maletas incluyen docenas de cajas de diferentes tamaños, y Guo Yi sabe, sin dudarlo, que contienen sus pertenencias personales.
+Parece que solo él, Lu Rong y PEPI estarán a cargo del trabajo de inteligencia. La forma en que PEPI utiliza los recursos es realmente un problema, aunque ella misma parece no preocuparse, mostrando una actitud segura de sí misma. Guo Yi sospecha que ella no ha considerado en absoluto la seriedad y el peligro del trabajo clandestino, y simplemente ve este lugar como un escenario para satisfacer su deseo de actuar. Solo sus maletas incluyen docenas de cajas de diferentes tamaños, y Guo Yi sabe, sin dudarlo, que contienen sus pertenencias personales.
 
-  Él organizó sus ideas y redactó los objetivos de trabajo para la fase actual, así como los reglamentos de la estación avanzada. Planeaba celebrar una reunión con los miembros de la estación avanzada que quedaban antes de que Xiao Zishan regresara, para asignar tareas.
+Él organizó sus ideas y redactó los objetivos de trabajo para la fase actual, así como los reglamentos de la estación avanzada. Planeaba celebrar una reunión con los miembros de la estación avanzada que quedaban antes de que Xiao Zishan regresara, para asignar tareas.

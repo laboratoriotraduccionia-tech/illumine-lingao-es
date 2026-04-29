@@ -2,7 +2,7 @@
 
 El clima no estaba nada caluroso, y ahora era temprano en la mañana, pero Gao Ju estaba sudando.
 
-No hay que confundirse, aunque el señor Gao ya había alcanzado la mediana edad y su figura inevitablemente había aumentado un poco, sigue siendo un hombre muy robusto. No es uno de esos hombres ricos y débiles que necesitaban tomar suplementos para poder atender a sus concubinas.
+No hay que confundirse, aunque el señor Gao ya había alcanzado la mediana edad y su figura inevitablemente había aumentado un poco, seguía siendo un hombre muy robusto. No era uno de esos hombres ricos y débiles que necesitaban tomar suplementos para poder atender a sus concubinas.
 
 Puede que no haya visto pasar caballos por sus brazos, pero sí ha enfrentado a docenas de espadas, dagas y armas de fuego sin inmutarse. Sin embargo, este tipo de persona, se encontró sudando frío en una tarde fresca de finales de la primavera.
 
@@ -10,24 +10,24 @@ Hace aproximadamente un mes, había recibido una carta del eunuco Yang, en la qu
 
 Que el eunuco le quitara la mitad de sus ganancias le causaba mucho sufrimiento, pero durante estos años, también había contado con la protección del eunuco Yang, y había llegado hasta aquí sin mayores contratiempos. Por lo tanto, cada año, la parte de los intereses que le corresponde, la envía sin falta a la capital o la deposita en la casa de empeño de Guangzhou, según sus instrucciones.
 
-Cada año, él le enviaba lichis en verano y manjares en invierno, y nunca se había atrevido a descuidar a este gran eunuco. ¿Cómo podía ser que, de repente, enviaran a un pequeño eunuco llamado Gong para hablar con él sobre asuntos importantes?
+Cada año, él le enviaba lichis en verano y manjares en invierno, y nunca se había atrevido a descuidar a este gran eunuco. ¿Cómo podía ser que, de repente, enviaran a un "Mini Eunuco Yang"" para hablar con él sobre asuntos importantes?
 
 ¿Asuntos importantes? Gao Ju sonrió con amargura. Él era solo un comerciante, ¿qué asuntos importantes podía discutir con un "gran señor" de la corte? No era más que pedirle que entregara una gran suma de dinero para "uso temporal" o para "contribuir". Además, la cantidad era enorme; de lo contrario, bastaría con una carta. Enviar a un "hijo" personalmente... parece que el eunuco Yang está muy preocupado. Suspiró. Hace unos meses, encontró una fortuna inesperada, y ahora tendría que devolverla.
 
-Lo que más temía no era perder dinero. Desde que Jiuzhou Sui se hizo poderoso con la llegada de la dinastía Tianqi, los asuntos del palacio se volvieron cada vez más profundos e incomprensibles. Su protector,el eunuco Yang, provenía de la escuela de Gao Shiming. Este eunuco Gao, en el primer año de la dinastía Tianqi, renunció voluntariamente para protegerse.el eunuco Yang, actualmente, ocupa una posición marginal en el palacio.
+Lo que más temía no era perder dinero. Desde que Jiuzhou Sui se hizo poderoso con la llegada de la dinastía Tianqi, los asuntos del palacio se volvieron cada vez más profundos e incomprensibles. Su protector, el eunuco Yang, provenía de la escuela de Gao Shiming. Este eunuco Gao, en el primer año de la dinastía Tianqi, había renunciado voluntariamente para protegerse. El eunuco Yang, actualmente, ocupaba una posición marginal en el palacio.
 
-"¿Y si el Emperador, con sus nueve mil años de reinado, no aprueba ael eunuco Yang? Gao Ju no pudo evitar sentir un escalofrío. Él no sentía ninguna simpatía porel eunuco Yang; sin embargo, la relación de beneficio mutuo que habían mantenido durante tantos años los había atado, como dos saltamontes en la misma cuerda. Siel eunuco Yang cae hoy, mañana los soldados de Dongchang irán a golpear la puerta de su casa, y una desgracia que puede llevar a la ruina total de su familia es inminente."
+"¿Y si el Emperador de los Nueve Mil Años no aprueba al eunuco Yang? Gao Ju no pudo evitar sentir un escalofrío. Él no sentía ninguna simpatía por el eunuco Yang; sin embargo, la relación de beneficio mutuo que habían mantenido durante tantos años los había atado, como dos saltamontes en la misma cuerda. Si el eunuco Yang cae hoy, mañana los soldados de Dongchang irán a golpear la puerta de su casa, y una desgracia que puede llevar a la ruina total de su familia es inminente."
 
 ¿Será que esto tiene algo que ver con ese asunto? Gao Ju comenzó a sudar y, sin poder evitarlo, gritó:
-  "¡Abaniquear!"
+"¡Abaniquear!"
 
 En el estudio, la joven sirvienta se apresuró a agitar un abanico de bambú, creando una brisa suave que, mezclada con un ligero aroma de perfume, normalmente habría calmado cualquier inquietud. Sin embargo, en ese momento, solo sentía un calor intenso que la hizo incorporarse bruscamente de la cama y exclamar:
 "¡Lárguense todos!"
 
-"Las doncellas y los sirvientes de la casa se asustaron y rápidamente se agacharon y retrocedieron."
+Las doncellas y los sirvientes de la casa se asustaron y rápidamente se agacharon y retrocedieron.
 
 De repente, después de un momento de silencio, alguien informó:
-"El señor Yan, gerente, ha llegado."
+"El administrador Yan ha llegado."
 
 "Que entre."
 
@@ -38,7 +38,7 @@ Yan, el administrador, llegó para informar que Gao Qing había llegado y que lo
 Gao Qing también es inútil; ha estado sirviendo durante más de dos meses, pero no ha descubierto nada. Sin embargo, él mismo no esperaba que este hombre torpe pudiera averiguar algo.
 
 Ahora mismo no hay tiempo para preocuparse por eso. Con un gruñido, preguntó:
-  "¿Cómo ha ido la recepción de la mercancía? ¿Hay alguna novedad?"
+"¿Cómo ha ido la recepción de la mercancía? ¿Hay alguna novedad?"
 
 "Respondiendo al señor Gao, no hay mercancía nueva; mis subordinados están revisando los datos."
 
@@ -58,7 +58,7 @@ Ahora mismo no hay tiempo para preocuparse por eso. Con un gruñido, preguntó:
 
 "No. El señor Xiao Yang salió de la ciudad de Beijing el 2 de marzo, así que probablemente aún no ha llegado a la provincia de Nan'an. En cualquier caso, llegará en unos diez días."
 
-"Quiero que los funcionarios encargados de revisar documentos busquen todas las cartas y comunicaciones relacionadas conel eunuco Yang, que las revisen cuidadosamente y que investiguen a fondo a Xiaoel eunuco Yang: su edad, el año en que fue adoptado, sus aficiones, y que me proporcionen toda esa información."
+"Quiero que los funcionarios encargados de revisar documentos busquen todas las cartas y comunicaciones relacionadas con el eunuco Yang, que las revisen cuidadosamente y que investiguen a fondo al pequeño eunuco Yang: su edad, el año en que fue adoptado, sus aficiones, y que me proporcionen toda esa información."
 
 "Sí, señor Gao."
 
@@ -72,7 +72,7 @@ Después de dar las instrucciones, bebió un poco de té para calmarse. Luego, s
 
 Bei Wei era la primera vez que viajaba a través de un agujero de gusano, y en ese momento, dentro de la casa de un hombre de la dinastía Ming, se sentía como si estuviera soñando.
 
-  Ser un explorador fue hace mucho tiempo, y después de dejar el ejército, sin importar lo que hiciera, siempre se esforzó por mantener las habilidades que había aprendido en el pasado. En esta ocasión, al participar en el comercio de "viajeros temporales", su objetivo principal era realizar un viaje de asesoramiento sencillo para investigar las actividades subterráneas en el futuro Guangzhou.
+Ser un explorador fue hace mucho tiempo, y después de dejar el ejército, sin importar lo que hiciera, siempre se esforzó por mantener las habilidades que había aprendido en el pasado. En esta ocasión, al participar en el comercio de "viajeros temporales", su objetivo principal era realizar un viaje de asesoramiento sencillo para investigar las actividades subterráneas en el futuro Guangzhou.
 
 El señor Gao es su colaborador, pero solo un colaborador. Dado que es una colaboración puramente basada en el beneficio mutuo, en cualquier momento podría traicionar a los viajeros temporales, y esto es algo que debe tenerse en cuenta.
 
@@ -80,9 +80,9 @@ Si otras fuerzas intervinieran y, por sus propios motivos, quisieran perjudicar 
 
 Bei Wei, desde que salió por la puerta trasera de la sucursal de Guangzhou, hasta que entró en la casa de la familia Gao, caminó con un ritmo peculiar y rígido, cada paso de exactamente ochenta centímetros. Llevaba consigo una cámara portátil que grababa automáticamente el entorno, pero lo más fiable eran sus ojos y su cerebro: recordaba cada puerta, cada patio, cada curva, cada lugar donde había una puerta...
 
-  Todos los sirvientes que no eran necesarios en la casa fueron despedidos por el administrador Yan. Sin embargo, las extrañas acciones de este recién llegado de Australia aún provocaban que algunos guardias que lo escoltaban susurraran entre ellos. Aunque también estaban envidiosos de su robusta constitución; la mayoría de los guardias no podrían enfrentarse a él ni siquiera por tres asaltos.
+Todos los sirvientes que no eran necesarios en la casa fueron despedidos por el administrador Yan. Sin embargo, las extrañas acciones de este recién llegado de Australia aún provocaban que algunos guardias que lo escoltaban susurraran entre ellos. Aunque también estaban envidiosos de su robusta constitución; la mayoría de los guardias no podrían enfrentarse a él ni siquiera por tres asaltos.
 
-  En este momento, tanto los anfitriones como los invitados estaban intercambiando cortesías. Para evitar compromisos innecesarios, antes de la partida, se había acordado lo siguiente: Beini era el guardaespaldas que la compañía marítima australiana había traído, por lo que simplemente se sentaba detrás de Wen Zong, con las manos sobre las rodillas, completamente inmóvil. Sin embargo, sus ojos escudriñaban todos los rincones.
+En este momento, tanto los anfitriones como los invitados estaban intercambiando cortesías. Para evitar compromisos innecesarios, antes de la partida, se había acordado lo siguiente: Beini era el guardaespaldas que la compañía marítima australiana había traído, por lo que simplemente se sentaba detrás de Wen Zong, con las manos sobre las rodillas, completamente inmóvil. Sin embargo, sus ojos escudriñaban todos los rincones.
 
 Aunque se llama "estudio exterior", en realidad es un pequeño patio completo, y este salón tampoco es pequeño. Bei Wei echó un vistazo y vio que había once personas presentes: el señor Gao, un administrador que hacía de guía, un guardia, dos sirvientas, dos jóvenes sirvientes, y además, había cuatro soldados en las cuatro esquinas del salón.
 
@@ -92,7 +92,7 @@ Esto es solo una parte. Bei Wei notó, desde que entró a este patio, que había
 
 ⃀ El verdadero experto, probablemente, era el guardia que estaba detrás del señor Gao, controlando la puerta que daba a la sección lateral de la casa. Vestía una túnica verde con mangas anchas, permanecía en silencio y con las manos a los costados, pero emanaba una sutil aura de peligro.
 
-  No se sabe exactamente cuán poderosos eran estos expertos marciales de la dinastía Ming. Bei Wei sentía mucha curiosidad y, si tuviera la oportunidad de enfrentarlos, no la desperdiciaría. Tenía mucho interés en las artes marciales chinas tradicionales, pero en el ejército, el entrenamiento de combate se centraba principalmente en técnicas modernas, y sus conocimientos de artes marciales tradicionales eran limitados. También había presenciado algunas demostraciones de artes marciales, pero siempre le parecían insatisfactorias: contenían demasiados movimientos superficiales y no mostraban las técnicas de combate reales.
+No se sabe exactamente cuán poderosos eran estos expertos marciales de la dinastía Ming. Bei Wei sentía mucha curiosidad y, si tuviera la oportunidad de enfrentarlos, no la desperdiciaría. Tenía mucho interés en las artes marciales chinas tradicionales, pero en el ejército, el entrenamiento de combate se centraba principalmente en técnicas modernas, y sus conocimientos de artes marciales tradicionales eran limitados. También había presenciado algunas demostraciones de artes marciales, pero siempre le parecían insatisfactorias: contenían demasiados movimientos superficiales y no mostraban las técnicas de combate reales.
 
 El señor Gao y Wen Desi continuaban con sus asuntos comerciales, y ambos estaban un poco distraídos. Uno pensaba en los asuntos del eunuco Yang, y el otro, en la expansión de la sucursal de Guangzhou.
 

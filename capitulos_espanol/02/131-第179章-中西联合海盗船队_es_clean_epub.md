@@ -1,6 +1,6 @@
 ## Capítulo 175: Flota de piratas que une Oriente y Occidente
 
-  "¿Qué es lo extraño?", se preguntó Wu De.
+"¿Qué es lo extraño?", se preguntó Wu De.
 
 "Traer a alguien especialmente para matarlo, es ciertamente sospechoso", dijo una voz que provenía de adelante.
 
@@ -64,7 +64,7 @@ Ma Qianzhu y Wu Dehu se levantaron y observaron con tensión en la dirección de
 
 "¡Maldita sea!", exclamó Xueliang en inglés. A través del telescopio de visión nocturna, en la extraña blancura de la noche, se distinguían claramente seis barcos. Uno de ellos, evidentemente, no tenía la forma de un barco chino.
 
-  Hace unas horas, recibió una llamada de Beivei, quien le pidió que llevara al equipo de reconocimiento a realizar una patrulla a pie a lo largo de la costa de Bopu, según informes de inteligencia, podría haber enemigos intentando infiltrarse por mar durante la noche.
+Hace unas horas, recibió una llamada de Beivei, quien le pidió que llevara al equipo de reconocimiento a realizar una patrulla a pie a lo largo de la costa de Bopu, según informes de inteligencia, podría haber enemigos intentando infiltrarse por mar durante la noche.
 
 Xue Ziliang no se atrevió a ser descuidado, especialmente con la orden directa de Bei Wei. Él sabía muy bien que, si no hubiera ganado el favor de Bei Wei, todavía sería un "empleado sin contrato", un "paria". Después de estar mucho tiempo en este grupo, comprendió profundamente la diferencia entre un "empleado permanente" y un "empleado temporal". Ahora que se había convertido en empleado permanente, tenía que esforzarse mucho. Xue Ziliang ahora entendía lo que significaba el "problema de origen".
 
@@ -72,9 +72,9 @@ El cuartel general del destacamento de reconocimiento a distancia –ahora, cada
 
 De este pequeño equipo de cuatro personas, solo Xueliang tenía experiencia militar. De hecho, Beiwai consideraba que los veteranos eran demasiado mayores; si no eran especialistas en reconocimiento, su potencial de desarrollo era muy limitado, y prefería seleccionar voluntarios entre jóvenes de unos veinte años. Estos jóvenes, después de varios meses de entrenamiento, aunque aún no cumplían con los estándares de un soldado de reconocimiento, eran mucho mejores que los reclutas inexpertos de otra línea temporal.
 
-En total, llevaron tres rifles SKS. Xue Ziliang llevaba un escopeta Remington 870. Él sentía que el SKS era un poco demasiado largo para los exploradores, y era difícil de usar para ellos. Como ex militar estadounidense, lo que más le causaba sufrimiento ahora era la falta de equipo. Había bastantes armas, pero casi todas eran equipos que él no conocía. Además de las pistolas Glock y las escopetas Remington, las armas de infantería más comunes que tenían los viajeros temporales eran los SKS y los fusiles tipo 56, ninguno de los cuales era familiar para él. Incluso un AK47 habría sido mejor; él solía usar ese tipo de arma.
+En total, llevaron tres rifles Tipo 56. Xue Ziliang llevaba un escopeta Remington 870. Él sentía que el Tipo 56 era un poco demasiado largo para los exploradores, y era difícil de usar para ellos. Como ex militar estadounidense, lo que más le causaba sufrimiento ahora era la falta de equipo. Había bastantes armas, pero casi todas eran equipos que él no conocía. Además de las pistolas Glock y las escopetas Remington, las armas de infantería más comunes que tenían los viajeros temporales eran los Tipo 56 y los fusiles tipo 56, ninguno de los cuales era familiar para él. Incluso un AK47 habría sido mejor; él solía usar ese tipo de arma.
 
-  Hablemos de los equipos de visión nocturna. Durante su tiempo en el equipo de reconocimiento de fuerzas de la infantería de marina de los Estados Unidos, esto era algo muy básico, incluso los equipos de visión nocturna que tenía en el garaje de su casa eran mejores que los de aquí. Ahora, la situación es que todo el equipo solo tiene un par de gafas de visión nocturna y un telescopio de visión infrarroja de fabricación rusa, algo a lo que no está acostumbrado. Sin embargo, esta es una buena configuración, aunque hay muchos equipos de visión nocturna, no se pueden reponer ni reparar, y el comité de planificación tiene un control muy estricto.
+Hablemos de los equipos de visión nocturna. Durante su tiempo en el equipo de reconocimiento de fuerzas de la infantería de marina de los Estados Unidos, esto era algo muy básico, incluso los equipos de visión nocturna que tenía en el garaje de su casa eran mejores que los de aquí. Ahora, la situación es que todo el equipo solo tiene un par de gafas de visión nocturna y un telescopio de visión infrarroja de fabricación rusa, algo a lo que no está acostumbrado. Sin embargo, esta es una buena configuración, aunque hay muchos equipos de visión nocturna, no se pueden reponer ni reparar, y el comité de planificación tiene un control muy estricto.
 
 Buscar a lo largo de la costa es un método agotador, pero también el más efectivo. El cielo estaba cubierto de nubes, sin una pizca de luz de luna ni de estrellas, y la línea que separaba el agua del cielo era casi invisible. Aunque el radar proporcionaba las coordenadas aproximadas de la embarcación, cada kilómetro que recorría, él se detenía para usar el telescopio y buscar en la superficie del agua.
 
@@ -96,11 +96,11 @@ Dentro de la pequeña embarcación había ocho personas, y a través del telesco
 
 La última persona sostenía un objeto enrollado. La pequeña embarcación avanzaba con cautela, moviendo los remos con mucha poca frecuencia. Ahora, podía ver claramente que el marinero que sostenía el objeto enrollado, en realidad, tenía una plomada, y estaba midiendo constantemente la profundidad del agua cerca de la costa. Esto indicaba que el enemigo planeaba acercar la flota lo suficiente para proporcionar apoyo con fuego de artillería durante el desembarco; si solo se utilizaran pequeñas embarcaciones para transportar tropas, no sería necesario medir la profundidad del agua.
 
-  Según la trayectoria de la pequeña embarcación, los piratas evidentemente planeaban desembarcar desde la zona de Lingao. Este no era el punto de entrada de la ruta marítima de Bolu, y la defensa, por lo tanto, no sería tan estricta. En cuanto a esa molesta torre de vigilancia, los piratas claramente no le prestaron atención, y mucho menos sabían que en la parte superior había un cañón de 12 libras.
+Según la trayectoria de la pequeña embarcación, los piratas evidentemente planeaban desembarcar desde la zona de Lingao. Este no era el punto de entrada de la ruta marítima de Bolu, y la defensa, por lo tanto, no sería tan estricta. En cuanto a esa molesta torre de vigilancia, los piratas claramente no le prestaron atención, y mucho menos sabían que en la parte superior había un cañón de 12 libras.
 
 En una noche con una brisa suave, el ambiente era extremadamente tranquilo. Solo el sonido de las olas golpeando la costa rompía el silencio.
 
-  En la superficie del mar, se acercaba lentamente un barco de vela fantasmal: era un gran barco español llamado "Condesa de Scarborough". Detrás de él, seguían cinco pequeños barcos de vela chinos.
+En la superficie del mar, se acercaba lentamente un barco de vela fantasmal: era un gran barco español llamado "Condesa de Scarborough". Detrás de él, seguían cinco pequeños barcos de vela chinos.
 
 La luna se asomó entre las nubes, y su luz era muy tenue.
 

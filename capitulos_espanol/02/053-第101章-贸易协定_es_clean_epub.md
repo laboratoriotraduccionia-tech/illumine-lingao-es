@@ -1,7 +1,7 @@
 ## Capítulo 97: Acuerdo comercial
 
 
-  Los trabajadores llegaron como una marea, sin prestar atención a Li Luoyu y su grupo, que estaban en medio del camino. El encargado rápidamente guió al grupo a un lado de la calle y los hizo sentar en un puesto de té.
+Los trabajadores llegaron como una marea, sin prestar atención a Li Luoyu y su grupo, que estaban en medio del camino. El encargado rápidamente guió al grupo a un lado de la calle y los hizo sentar en un puesto de té.
 
 El vendedor y el supervisor se reconocieron y se acercaron rápidamente para saludar y ofrecer té.
 
@@ -25,16 +25,16 @@ Los principales asistentes a la recepción fueron los miembros del grupo de trab
 
 Entre los invitados a sentarse estaban Li Luoyu, Kuake y otras cuatro personas. Sǎo Yè y otros fueron invitados a otra sala para ser atendidos. Gu Baochang originalmente no se atrevió a sentarse, pero Li Luoyu, al ver que los australianos no daban mucha importancia a la jerarquía, y temiendo que insistir en las costumbres de la dinastía Ming pudiera ser motivo de burla, lo invitó a sentarse también.
 
-  En comparación con la lujosa sala de banquetes, la comida resultó ser muy sencilla. Los miembros del consejo coincidieron en que, aunque tenía la naturaleza de un banquete nacional, debía ser "sencillo y elegante". Por lo tanto, en este banquete se sirvieron verduras como tomates salteados con huevo y brócoli salteado, que no existían en esta época, preparadas de manera exquisita, lo que le dio a Li Luo una sensación de novedad. Solo que su apetito voraz no quedó satisfecho, ya que casi no hubo carne.
+En comparación con la lujosa sala de banquetes, la comida resultó ser muy sencilla. Los miembros del consejo coincidieron en que, aunque tenía la naturaleza de un banquete nacional, debía ser "sencillo y elegante". Por lo tanto, en este banquete se sirvieron verduras como tomates salteados con huevo y brócoli salteado, que no existían en esta época, preparadas de manera exquisita, lo que le dio a Li Luo una sensación de novedad. Solo que su apetito voraz no quedó satisfecho, ya que casi no hubo carne.
 
-  Li Luo notó que el interior del edificio de la embajada era lujoso y confortable, pero el banquete era extremadamente sencillo. No solo los platos eran ligeros y agradables al paladar, sino que no había chefs que ofrecieran sus creaciones, ni tampoco había cantantes o bailarinas que amenizaran el ambiente. Pensó que no eran personas que buscaran la ostentación, y sintió cierta admiración por ello.
+Li Luo notó que el interior del edificio de la embajada era lujoso y confortable, pero el banquete era extremadamente sencillo. No solo los platos eran ligeros y agradables al paladar, sino que no había chefs que ofrecieran sus creaciones, ni tampoco había cantantes o bailarinas que amenizaran el ambiente. Pensó que no eran personas que buscaran la ostentación, y sintió cierta admiración por ello.
 
 Los camareros en la fiesta eran todos mujeres jóvenes, y cada una vestía un ajustado vestido negro de cuello alto y mangas largas, cubierto por una túnica blanca con cuello de volantes, que solo cubría la parte delantera; la parte trasera solo tenía una serie de tirantes cruzados. Los vestidos eran cortos, dejando al descubierto los pies. Se podían ver los calcetines y zapatos negros, lo que hizo que Gu Baocheng se sonrojara al instante. El cabello no estaba peinado de ninguna manera; o estaba corto y suelto, o recogido en una coleta en la parte posterior, atada con cintas de colores. Todas llevaban una pequeña placa de plata brillante en el pecho, y Li Luoyu tardó un tiempo en darse cuenta de que decía la palabra "保健" (salud).
 
 El atuendo en blanco y negro, que resultaba limpio y elegante, ofrecía una belleza diferente en comparación con la de las mujeres de la dinastía Ming.
 
 Sin embargo, estas jóvenes estaban vestidas de manera muy elegante, y en lugar de brindar o cantar, solo servían la comida y el vino. ¿No es esto innecesario?
-  Todas las bebidas de la mesa eran de tipo "Lánlíng" y "Gevas". No había ron, que es lo que a "Kuake" le gusta, ni tampoco ninguna de las famosas marcas que "Zǐchéngjì" vende en Guangzhou. Después de que "Liu San" hiciera el brindis inicial, no hubo más intentos de animar a beber.
+Todas las bebidas de la mesa eran de tipo "Lánlíng" y "Gevas". No había ron, que es lo que a "Kuake" le gusta, ni tampoco ninguna de las famosas marcas que "Zǐchéngjì" vende en Guangzhou. Después de que "Liu San" hiciera el brindis inicial, no hubo más intentos de animar a beber.
 
 El ambiente en la fiesta era relajado, y la conversación se centraba en temas triviales. Los presentes podían entender el dialecto cantones de Li Luoyu, y él, a su vez, podía comprender la mayor parte de lo que decían en ese "australiano". La comunicación no era difícil. Li Mei era experta en crear un ambiente agradable, y rápidamente logró que la atmósfera fuera cálida y amigable. A medida que avanzaba la fiesta, Li Luoyu se dio cuenta una vez más de que en ese dialecto "australiano" que usaban, había un fuerte acento de la región de Liaodong, lo cual le resultaba cada vez más extraño.
 
@@ -56,7 +56,7 @@ Después de la comida, Liu San los invitó a pasar a la sala de descanso. Esta s
 
 "¡La envergadura de esta pintura es asombrosa!", exclamó Li Luo, despertando de repente.
 
-  El suelo de baldosas azules estaba cubierto con una gran alfombra persa, que Li Luo solo miró y sintió que le dolía el corazón. Era un producto persa de la más alta calidad, y su precio no se calculaba por tamaño, sino por peso. Ahora, además de estar sucia, tenía muchas manchas quemadas.
+El suelo de baldosas azules estaba cubierto con una gran alfombra persa, que Li Luo solo miró y sintió que le dolía el corazón. Era un producto persa de la más alta calidad, y su precio no se calculaba por tamaño, sino por peso. Ahora, además de estar sucia, tenía muchas manchas quemadas.
 
 En cuanto a los asientos, no se sabe de dónde fueron sacados. No solo no forman un conjunto, sino que están colocados de manera muy extraña, formando una especie de semicírculo. Detrás de las mesas y sillas, hay un paravientos de madera de ébano púrpura, con incrustaciones de nácar, hilo de oro y plata, de una gran belleza y tamaño. En teoría, un paravientos de estas dimensiones debería estar en un salón mucho más grande para verse bien. Colocarlo en una habitación como la de los australianos da la impresión de que fue forzado.
 
@@ -70,7 +70,7 @@ Este tipo de porcelana de hueso se produce en cantidades muy limitadas. Además 
 
 El café, elaborado con los primeros granos de café cosechados en el jardín de cultivos tropicales de Wu Nan海, fue tostado a mano y tenía un aroma fragante. Wu Nan海 le dio el nombre de "Golden Wu Nan海".
 
-  Kua Ke y Li Luoyu habían visto esta bebida antes, en manos de comerciantes árabes e indios, y no les pareció nada extraño. Lo que sí llamó su atención fueron los objetos de porcelana. Kua Ke estaba fascinado con esta porcelana, y Li Luoyu sentía que, tanto por su apariencia como por su textura, no parecía ser de producción de la dinastía Ming. ¿Podría ser que los australianos también fabricaran porcelana? Además, considerando que eran descendientes de personas de la región de Yáshān de la dinastía Song, no sería sorprendente que algunos de ellos fueran artesanos especializados en la fabricación de porcelana.
+Kua Ke y Li Luoyu habían visto esta bebida antes, en manos de comerciantes árabes e indios, y no les pareció nada extraño. Lo que sí llamó su atención fueron los objetos de porcelana. Kua Ke estaba fascinado con esta porcelana, y Li Luoyu sentía que, tanto por su apariencia como por su textura, no parecía ser de producción de la dinastía Ming. ¿Podría ser que los australianos también fabricaran porcelana? Además, considerando que eran descendientes de personas de la región de Yáshān de la dinastía Song, no sería sorprendente que algunos de ellos fueran artesanos especializados en la fabricación de porcelana.
 
 Después de tomar el café, la conversación entre ambas partes finalmente entró en el tema principal.
 
@@ -112,15 +112,15 @@ Además, las armas son un material estratégico muy sensible que puede afectar s
 
 "Por favor, no."
 
-  A continuación, se presentaron las solicitudes de privilegios comerciales de Li Luoyu. En Lingao, existe un régimen de libre comercio, con exenciones totales de impuestos de importación y exenciones parciales de impuestos de exportación. No importa quién realice el comercio, Li Luoyu no es un pequeño comerciante que llega en barco; tiene influencia y poder, y lo que busca son privilegios comerciales.
+A continuación, se presentaron las solicitudes de privilegios comerciales de Li Luoyu. En Lingao, existe un régimen de libre comercio, con exenciones totales de impuestos de importación y exenciones parciales de impuestos de exportación. No importa quién realice el comercio, Li Luoyu no es un pequeño comerciante que llega en barco; tiene influencia y poder, y lo que busca son privilegios comerciales.
 
 Para ser más precisos, se trata de los derechos exclusivos de exportación de productos "australianos". Principalmente, se trata de espejos de vidrio provenientes de Australia. Li Luo you planeaba exportarlos a las regiones del Sudeste Asiático y a la India para su venta. Además, también tenía la intención de utilizar Goa como puerta de entrada para venderlos en Europa.
 
-  Los espejos de vidrio de Venecia, en Europa, son famosos en todo el mundo. No solo son extremadamente caros, sino que también su producción es limitada. Los espejos de vidrio de Australia que se venden aquí en Lingao parecen ser abundantes, y su precio es mucho más bajo que el de los espejos de vidrio de Venecia. Especialmente, Lingao ha comenzado recientemente a vender a gran escala, a través de canales en Guangzhou, polvos de vidrio de diversos materiales a precios bajos, lo que los hace aún más competitivos en términos de precio.
+Los espejos de vidrio de Venecia, en Europa, son famosos en todo el mundo. No solo son extremadamente caros, sino que también su producción es limitada. Los espejos de vidrio de Australia que se venden aquí en Lingao parecen ser abundantes, y su precio es mucho más bajo que el de los espejos de vidrio de Venecia. Especialmente, Lingao ha comenzado recientemente a vender a gran escala, a través de canales en Guangzhou, polvos de vidrio de diversos materiales a precios bajos, lo que los hace aún más competitivos en términos de precio.
 
 Esta caja de polvo es pequeña y ligera, y un barco puede transportar una gran cantidad de mercancías. Incluso considerando los costos del transporte de larga distancia, se puede obtener una ganancia superior al 100% al venderla en Europa.
 
-  Estos pequeños artículos de alto valor incluso pueden generar enormes ganancias sin necesidad de ser transportados a Europa. Los barcos pueden intercambiar estos productos por otras mercancías en los diversos puertos comerciales a lo largo de la ruta hacia Europa. De hecho, Li Luoyu nunca pensó en transportarlos directamente a Europa; su plan era vender parte de estos productos australianos en Goa, y luego que comerciantes portugueses los transportaran a la India, a la costa del Mar Rojo, a la región del Mediterráneo oriental. Otra parte se la entregaría a Kuake, para que los transportara a Surat y los revendiera directamente a los comerciantes británicos locales. Por supuesto, este secreto no se puede revelar.
+Estos pequeños artículos de alto valor incluso pueden generar enormes ganancias sin necesidad de ser transportados a Europa. Los barcos pueden intercambiar estos productos por otras mercancías en los diversos puertos comerciales a lo largo de la ruta hacia Europa. De hecho, Li Luoyu nunca pensó en transportarlos directamente a Europa; su plan era vender parte de estos productos australianos en Goa, y luego que comerciantes portugueses los transportaran a la India, a la costa del Mar Rojo, a la región del Mediterráneo oriental. Otra parte se la entregaría a Kuake, para que los transportara a Surat y los revendiera directamente a los comerciantes británicos locales. Por supuesto, este secreto no se puede revelar.
 
 "Estoy dispuesto a comprar cien mil unidades al año, de las cuales cinco mil serían de porcelana, treinta mil de lacados, y las veinte mil restantes serían de otros productos", dijo Li Luoyu. "El precio será el cincuenta por ciento del precio de venta al público que ustedes tienen en Guangzhou."
 

@@ -1,10 +1,10 @@
 ## Capítulo 210: Acuerdo
 
-  Las exigencias propuestas por Wen Desi eran tres:
+Las exigencias propuestas por Wen Desi eran tres:
 
-  1. Todos los asuntos relacionados con la labor misionera en Lingao deben ser gestionados por la iglesia de Lingao, que pertenece a la iglesia australiana. La Compañía de Jesús actuará como un "hermano" para brindar apoyo, y es bienvenida, pero no puede operar de forma independiente. Todos los asuntos relacionados con la iglesia deben ser gestionados después de una consulta y acuerdo mutuo con la iglesia de Lingao.
+1. Todos los asuntos relacionados con la labor misionera en Lingao deben ser gestionados por la iglesia de Lingao, que pertenece a la iglesia australiana. La Compañía de Jesús actuará como un "hermano" para brindar apoyo, y es bienvenida, pero no puede operar de forma independiente. Todos los asuntos relacionados con la iglesia deben ser gestionados después de una consulta y acuerdo mutuo con la iglesia de Lingao.
 
-  II. Las iglesias deben aceptar la supervisión de los funcionarios de asuntos religiosos designados por el comité ejecutivo.
+II. Las iglesias deben aceptar la supervisión de los funcionarios de asuntos religiosos designados por el comité ejecutivo.
 
 3. Libertad de religión: Los creyentes tienen la libertad de practicar su religión, así como la libertad de no creer en ninguna religión, y también la libertad de cambiar de religión.
 
@@ -26,13 +26,13 @@ Finalmente, ambas partes llegaron a un acuerdo sobre asuntos eclesiásticos:
 
 El gobierno de Chuanyue permitió que los misioneros jesuitas llevaran a cabo actividades de evangelización en Lingao, y garantizó su seguridad durante las actividades en las áreas controladas por el gobierno de Chuanyue.
 
-  Los viajeros temporales garantizan que no se permitirá que otras órdenes religiosas católicas entren en las áreas bajo su control para realizar actividades misioneras. Lu Ruohua originalmente quería hacer un esfuerzo y exigir la prohibición de todas las "herejías", es decir, las actividades misioneras de los protestantes, pero Wen Desi lo rechazó, invocando la libertad de culto religioso en el país.
+Los viajeros temporales garantizan que no se permitirá que otras órdenes religiosas católicas entren en las áreas bajo su control para realizar actividades misioneras. Lu Ruohua originalmente quería hacer un esfuerzo y exigir la prohibición de todas las "herejías", es decir, las actividades misioneras de los protestantes, pero Wen Desi lo rechazó, invocando la libertad de culto religioso en el país.
 
 "Por supuesto, esto no significa que les demos la bienvenida para que prediquen, sino que sus oportunidades son iguales a las de ustedes."
 
 Lu Ruohua solo pudo resignarse y hacer una señal de la cruz. ¡Dios mío, las ideas de este grupo de australianos son realmente muy diferentes!
 
-  Ambas partes confirman: las actividades misioneras de la Compañía de Jesús deben llevarse a cabo con el apoyo de la iglesia de Lingao, y no se permite la evangelización privada.
+Ambas partes confirman: las actividades misioneras de la Compañía de Jesús deben llevarse a cabo con el apoyo de la iglesia de Lingao, y no se permite la evangelización privada.
 
 La misión aceptó a un funcionario de asuntos religiosos del gobierno que viaja en el tiempo como su protector, utilizándolo como enlace y coordinador entre ambas partes, y aceptando su supervisión.
 
@@ -46,7 +46,7 @@ El personal de la misión puede contratar sirvientes a través de la iglesia de 
 
 Se requiere que todos los libros y documentos religiosos necesarios para la labor misionera se declaren individualmente y no se pueden transportar de forma privada.
 
-  La misión no puede establecer monasterios ni aceptar monjes y monjas. Este tipo de instituciones debe ser organizada por la iglesia de Lingao. Cualquier sacerdote adicional enviado por la Compañía de Jesús debe contar con el consentimiento de la iglesia de Lingao y del funcionario de asuntos religiosos.
+La misión no puede establecer monasterios ni aceptar monjes y monjas. Este tipo de instituciones debe ser organizada por la iglesia de Lingao. Cualquier sacerdote adicional enviado por la Compañía de Jesús debe contar con el consentimiento de la iglesia de Lingao y del funcionario de asuntos religiosos.
 
 A cambio, Jesús iniciará gestiones ante el Vaticano para legitimar la iglesia de Lingao, buscando que se reconozca su derecho a ejercer diversas funciones eclesiásticas.
 
@@ -56,7 +56,7 @@ La Compañía de Jesús aceptó utilizar su red misionera para facilitar las act
 
 "双方 quedaron muy contentos. Para Lu Ruohua, esto representó el mayor avance logrado en China, aunque los australianos no fueran una entidad política formal china, fueron la primera región política en reconocer explícitamente su autoridad misionera. Bajo su protección, el trabajo misionero podría llevarse a cabo abiertamente."
 
-  Para los viajeros temporales que buscan establecer un nuevo gobierno, este sistema garantiza que los viajeros tengan control sobre la autoridad religiosa, al tiempo que aprovecha al máximo el poder de la Iglesia Católica.
+Para los viajeros temporales que buscan establecer un nuevo gobierno, este sistema garantiza que los viajeros tengan control sobre la autoridad religiosa, al tiempo que aprovecha al máximo el poder de la Iglesia Católica.
 
 En cuanto a las modificaciones y el aprovechamiento adicionales de la iglesia y sus doctrinas, un grupo especializado de personas está llevando a cabo investigaciones relacionadas. Wen Desi es el líder del grupo de trabajo teórico.
 
@@ -73,7 +73,7 @@ Estos sacerdotes realmente saben beber. Wen Desi siempre había tenido reservas 
 
 "No", dijo Lu Ruohua, levantando la mano con resignación, "solo sé cómo ser médico".
 
-  El médico, eso sí, podría ser útil. Sin embargo, la medicina occidental y la magia del siglo XVII tampoco eran precisamente avanzadas, así que no esperaría que usaran algo como aceite de lagarto como medicamento, ¿verdad? Le pediré a Shide que investigue un poco para ver qué utilidad puede tener.
+El médico, eso sí, podría ser útil. Sin embargo, la medicina occidental y la magia del siglo XVII tampoco eran precisamente avanzadas, así que no esperaría que usaran algo como aceite de lagarto como medicamento, ¿verdad? Le pediré a Shide que investigue un poco para ver qué utilidad puede tener.
 
 Wen Desi ordenó que los misioneros fueran devueltos al campamento de cuarentena. Baird, por su parte, permaneció en la oficina esperando una reunión.
 
@@ -143,8 +143,8 @@ Al día siguiente, Lu Ruohua abordó el barco de comercio regular del Departamen
 
 Mientras tanto, los preparativos para la reunión de coordinación y defensa también estaban en curso. La campaña de concienciación liderada por Du Wen alcanzó su punto máximo después del décimo quinto día del primer mes lunar. Cuatro de cada cinco aldeas de Lingao se comprometieron a enviar representantes a la reunión.
 
-  Según las estadísticas preliminares, aproximadamente cuatrocientos delegados se preparaban para la reunión, representando alrededor de doscientos pueblos y trece mercados. Los delegados eran principalmente los jefes de los pueblos, los ancianos de los clanes y los notables locales.
+Según las estadísticas preliminares, aproximadamente cuatrocientos delegados se preparaban para la reunión, representando alrededor de doscientos pueblos y trece mercados. Los delegados eran principalmente los jefes de los pueblos, los ancianos de los clanes y los notables locales.
 
 Para preparar esta reunión, la empresa constructora de Lingao amplió un establecimiento de posada en Dongmen para recibir a los delegados. Se seleccionaron varias decenas de mujeres de las comunas para cocinar y limpiar durante la reunión.
 
-  El proyecto más grande se encuentra en las afueras de la puerta este de la ciudad de Bairen, donde la empresa de construcción de Lingao ha cercado una gran extensión de terreno y construido un gran estadio. El estadio tiene una pista de 400 metros; Ma Qianzhu no pudo expresar con precisión lo grande que es este estadio, pero se utilizó la pista de 400 metros de un estadio estándar como referencia. De hecho, ni los viajeros temporales ni la población nativa de Lingao necesitaban instalaciones deportivas tan grandes en los últimos cinco años. El propósito principal del estadio es satisfacer las preferencias de Ma Qianzhu por los deportes de masas. Para organizar reuniones masivas, ceremonias y eventos, se necesita un estadio lo suficientemente grande e impresionante.
+El proyecto más grande se encuentra en las afueras de la puerta este de la ciudad de Bairen, donde la empresa de construcción de Lingao ha cercado una gran extensión de terreno y construido un gran estadio. El estadio tiene una pista de 400 metros; Ma Qianzhu no pudo expresar con precisión lo grande que es este estadio, pero se utilizó la pista de 400 metros de un estadio estándar como referencia. De hecho, ni los viajeros temporales ni la población nativa de Lingao necesitaban instalaciones deportivas tan grandes en los últimos cinco años. El propósito principal del estadio es satisfacer las preferencias de Ma Qianzhu por los deportes de masas. Para organizar reuniones masivas, ceremonias y eventos, se necesita un estadio lo suficientemente grande e impresionante.

@@ -9,9 +9,9 @@
 
 "No es tan simple."
 
-  Mengde sabía que el conocimiento que el grupo tenía sobre el transporte marítimo y las instalaciones portuarias era prácticamente nulo, así que decidió ofrecer una breve explicación al respecto.
+Mengde sabía que el conocimiento que el grupo tenía sobre el transporte marítimo y las instalaciones portuarias era prácticamente nulo, así que decidió ofrecer una breve explicación al respecto.
 
-  Antes de la época moderna, con la excepción de unos pocos puertos con condiciones geográficas e hidrológicas excepcionalmente favorables donde los barcos grandes podían atracar directamente en la orilla, en la mayoría de los puertos del mundo, los barcos grandes debían anclar en áreas más profundas del puerto y luego utilizar barcazas y botes pequeños para transferir la carga y los pasajeros a la orilla. Incluso en la época moderna, muchos puertos importantes contaban con barcos especiales para el transporte de pasajeros y carga entre los grandes barcos de crucero y la orilla. Esta eficiencia era, por supuesto, muy baja. Por lo tanto, los puertos modernos requieren la construcción de diversos tipos de muelles e instalaciones complementarias; incluso la configuración más básica requiere al menos varios muelles.
+Antes de la época moderna, con la excepción de unos pocos puertos con condiciones geográficas e hidrológicas excepcionalmente favorables donde los barcos grandes podían atracar directamente en la orilla, en la mayoría de los puertos del mundo, los barcos grandes debían anclar en áreas más profundas del puerto y luego utilizar barcazas y botes pequeños para transferir la carga y los pasajeros a la orilla. Incluso en la época moderna, muchos puertos importantes contaban con barcos especiales para el transporte de pasajeros y carga entre los grandes barcos de crucero y la orilla. Esta eficiencia era, por supuesto, muy baja. Por lo tanto, los puertos modernos requieren la construcción de diversos tipos de muelles e instalaciones complementarias; incluso la configuración más básica requiere al menos varios muelles.
 
 Los viajeros temporales planeaban desembarcar en Lingao, que se encuentra en la parte norte de la isla de Hainan. Los puertos de la región de Qiongnan se extienden desde Mulan Tou hacia el este hasta Bingma Jiao en el oeste, y a lo largo de la costa hay una serie de bahías que se adentran en el interior. De este a oeste, se encuentran la bahía de Puzhen, la bahía de Haikou, la bahía de Chenggai, Dongshuigang, Huachang, Mniao, Hongpai y Houshuiwan.
 
@@ -19,9 +19,9 @@ A lo largo de estas bahías, existen innumerables puertos, grandes y pequeños. 
 
 "En los puertos y bahías de Hainan durante la dinastía Ming, no existían instalaciones portuarias. Además, en la región de Qiongnan, la profundidad del agua en los puertos suele ser limitada. El llamado 'distrito de desarrollo de puertos de primera categoría' al que se refiere Wen Zong, en realidad es el puerto de Hongpai, cuya zona portuaria, tras la primera fase de desarrollo y dragado, apenas ha alcanzado la capacidad para recibir buques de carga de 5000 toneladas."
 
-  Estas palabras provocaron susurros entre todos. Muchos siempre habían creído que Hongpai era un puerto natural ideal. Sin embargo, la realidad es diferente. La península de Hongpai se extiende hacia el norte en una zona marítima abierta, y la costa de la península está constantemente erosionada por el viento y las olas, formando acantilados erosionados por las olas y plataformas marinas erosionadas. Los fragmentos de lava erosionados son arrastrados por las olas y se acumulan en el lado oeste de la península, formando una playa de guijarros. La arena más fina se transporta hacia el puerto de Hongpai, donde se acumula arena media y gruesa. La isla de Hongpai, ubicada en el lado oeste de la península, es una plataforma marina de basalto, y las aguas frente a ella son relativamente profundas, con profundidades de 5 metros o más. Sin embargo, dentro del puerto de Hongpai, la acumulación de arena costera ha reducido la profundidad del agua a solo 2-4 metros.
+Estas palabras provocaron susurros entre todos. Muchos siempre habían creído que Hongpai era un puerto natural ideal. Sin embargo, la realidad es diferente. La península de Hongpai se extiende hacia el norte en una zona marítima abierta, y la costa de la península está constantemente erosionada por el viento y las olas, formando acantilados erosionados por las olas y plataformas marinas erosionadas. Los fragmentos de lava erosionados son arrastrados por las olas y se acumulan en el lado oeste de la península, formando una playa de guijarros. La arena más fina se transporta hacia el puerto de Hongpai, donde se acumula arena media y gruesa. La isla de Hongpai, ubicada en el lado oeste de la península, es una plataforma marina de basalto, y las aguas frente a ella son relativamente profundas, con profundidades de 5 metros o más. Sin embargo, dentro del puerto de Hongpai, la acumulación de arena costera ha reducido la profundidad del agua a solo 2-4 metros.
 
-  Originalmente, el comité ejecutivo planeaba elegir el puerto de Jinpai (también conocido como Hongpai) como el lugar de atraque de los barcos. Las palabras de Mondé hicieron que abandonaran por completo ese plan. Con una profundidad de agua de 2 a 4 metros, sería difícil incluso para barcos de dos o tres mil toneladas, sin mencionar los barcos de diez mil toneladas.
+Originalmente, el comité ejecutivo planeaba elegir el puerto de Jinpai (también conocido como Hongpai) como el lugar de atraque de los barcos. Las palabras de Mondé hicieron que abandonaran por completo ese plan. Con una profundidad de agua de 2 a 4 metros, sería difícil incluso para barcos de dos o tres mil toneladas, sin mencionar los barcos de diez mil toneladas.
 
 "Además, la gran cantidad de bancos de arena que se han formado dentro del puerto dificultará mucho nuestro trabajo de descarga."
 
@@ -61,26 +61,26 @@ La falta de agua dulce dificulta cualquier actividad. Además, este lugar está 
 
 **Debuchangshi**
 
-  Una embarcación típica de tipo plataforma con propulsión propia tiene las siguientes características:
+Una embarcación típica de tipo plataforma con propulsión propia tiene las siguientes características:
 
-  Capacidad de carga real: 1500 toneladas.
+Capacidad de carga real: 1500 toneladas.
 
-  Tonnage total: 1411 toneladas.
+Tonnage total: 1411 toneladas.
 
-  Peso neto: 342 toneladas.
+Peso neto: 342 toneladas.
 
-  Longitud total: 61 metros.
+Longitud total: 61 metros.
 
 Ancho: 13.6 metros.
 
-  Profundidad: 3.2 metros.
+Profundidad: 3.2 metros.
 
 Nivel del agua: 1.832 metros.
 
-  Área de navegación adecuada: Zona de navegación costera.
+Área de navegación adecuada: Zona de navegación costera.
 
-  Potencia del motor principal: 330KW.
-  Puede transportar todo tipo de mercancías secas y contenedores sin problemas. Sus desventajas son la velocidad lenta, la corta autonomía y la baja resistencia a las olas, por lo que solo es adecuada para el transporte de mercancías a corta distancia en la costa. Por supuesto, esto no es un problema para los viajeros temporales.
+Potencia del motor principal: 330KW.
+Puede transportar todo tipo de mercancías secas y contenedores sin problemas. Sus desventajas son la velocidad lenta, la corta autonomía y la baja resistencia a las olas, por lo que solo es adecuada para el transporte de mercancías a corta distancia en la costa. Por supuesto, esto no es un problema para los viajeros temporales.
 
 Sin embargo, después de una consideración general, se decidió que los barcos de carga serían la opción principal, y que los barcos remolcados solo se adquirirían como alternativa si el presupuesto era insuficiente. La razón es muy simple: los barcos remolcados no tienen equipos de carga y descarga, y dependen completamente de los equipos de carga y descarga del puerto. Para los viajeros temporales, descargar manualmente miles de toneladas de suministros es prácticamente un mito, y mucho menos transportar objetos que pesan decenas o cientos de toneladas; incluso con muchas personas, sería imposible. Los barcos de carga, por lo general, están equipados con grúas y diversos equipos de carga y descarga.
 
@@ -88,7 +88,7 @@ Sin embargo, después de una consideración general, se decidió que los barcos 
 
 "Incluso si el buque de carga no se varara, convertirlo en un buque de guerra no sería práctico en absoluto", dijo Zhao Deshan, sacudiendo el polvo de su manga. "Los grandes buques de carga tienen un calado profundo, son complejos de operar y, aunque se intentara girar o dar la vuelta, probablemente no serían mucho más rápidos que los barcos de vela. No importa cuán poderoso sea un barco, ¿cree que el enemigo, después de recibir un golpe, se enfrentará directamente a usted? Tienen una ventaja numérica y pueden llevar a cabo operaciones de hostigamiento marítimo en las rutas y a lo largo de la costa, y si luchamos, nos encontraremos en una situación de estar divididos. Incluso si saliéramos y hundiéramos algunos de sus barcos, los que queden se dispersarían y escaparían a aguas poco profundas, ¿qué podría hacer con ellos? ¿Enviar botes salvavidas para perseguirlos? Lo que necesitamos es el dominio marítimo, y un barco solitario, que consume mucho combustible y requiere mucha mano de obra, es un desperdicio."
 
-  Un lujoso buque de carga con múltiples torretas y blindaje fue objeto de críticas públicas, y todos se sintieron conmovidos, pero al pensar en lo que dijo ese ex oficial de la marina, no estaba del todo equivocado.
+Un lujoso buque de carga con múltiples torretas y blindaje fue objeto de críticas públicas, y todos se sintieron conmovidos, pero al pensar en lo que dijo ese ex oficial de la marina, no estaba del todo equivocado.
 
 "Yo soy pescador. En mi juventud, ya operaba barcos de pesca en la cooperativa. Cuando estuve en el ejército, también vi que la marina utilizaba barcos de pesca, de 200 a 400 toneladas, con gran autonomía y resistentes a las olas. ¿No es mejor usar estos barcos como la principal fuerza de la marina de viajeros temporales que cualquier buque de guerra con torretas? No hablemos de otras cosas, pero su velocidad es mucho mayor y consumen menos combustible."
 
@@ -100,6 +100,6 @@ Sin embargo, después de una consideración general, se decidió que los barcos 
 
 "No importa, simplemente no declararemos que lo estamos comprando para uso pesquero; de todos modos, una vez que viajemos en el tiempo, podremos usarlo para lo que queramos".
 
-  Este problema generó diferentes opiniones dentro del comité ejecutivo, quienes consideraban que aumentaba innecesariamente la complejidad de las operaciones. Sin embargo, la mayoría del comité expresó su apoyo, ya que los viajeros temporales planeaban utilizar Hainan como base, y los recursos pesqueros en las aguas circundantes eran muy abundantes. La bahía del norte sigue siendo un importante caladero de pesca, y cada año los pescadores chinos y vietnamitas tienen disputas pesqueras allí. Es probable que en el siglo XVII estos recursos sean aún más abundantes, y una o varias embarcaciones pesqueras podrían enriquecer las fuentes de proteínas de los viajeros temporales. Los barcos pesqueros modernos son ligeros, ágiles, fáciles de operar y podrían servir como una fuerza marítima costera temprana para los viajeros temporales. Hay que tener en cuenta que el estrecho de Qiongzhou es de menos de 18 kilómetros en su punto más estrecho, por lo que incluso barcos pequeños pueden cruzarlo fácilmente. Sin barcos para realizar una alerta temprana en el mar, es probable que los enemigos no sean detectados hasta que entren en el campo de visión de la costa, lo cual sería muy pasivo.
+Este problema generó diferentes opiniones dentro del comité ejecutivo, quienes consideraban que aumentaba innecesariamente la complejidad de las operaciones. Sin embargo, la mayoría del comité expresó su apoyo, ya que los viajeros temporales planeaban utilizar Hainan como base, y los recursos pesqueros en las aguas circundantes eran muy abundantes. La bahía del norte sigue siendo un importante caladero de pesca, y cada año los pescadores chinos y vietnamitas tienen disputas pesqueras allí. Es probable que en el siglo XVII estos recursos sean aún más abundantes, y una o varias embarcaciones pesqueras podrían enriquecer las fuentes de proteínas de los viajeros temporales. Los barcos pesqueros modernos son ligeros, ágiles, fáciles de operar y podrían servir como una fuerza marítima costera temprana para los viajeros temporales. Hay que tener en cuenta que el estrecho de Qiongzhou es de menos de 18 kilómetros en su punto más estrecho, por lo que incluso barcos pequeños pueden cruzarlo fácilmente. Sin barcos para realizar una alerta temprana en el mar, es probable que los enemigos no sean detectados hasta que entren en el campo de visión de la costa, lo cual sería muy pasivo.
 
-  Así, el plan quedó establecido. Zhao De fue encargado de seleccionar los barcos de pesca y de elaborar una lista de repuestos y suministros necesarios. Después de la reunión, siguiendo la sugerencia de Mengde, se seleccionó a un grupo de viajeros temporales con buena condición física y cierto interés en la navegación para que participaran en un programa de capacitación. Mengde, aprovechando sus contactos laborales, encontró a un amigo que era dueño de varias embarcaciones de carga costeras y envió a estas personas a recibir capacitación directa y personalizada sobre las habilidades necesarias.
+Así, el plan quedó establecido. Zhao De fue encargado de seleccionar los barcos de pesca y de elaborar una lista de repuestos y suministros necesarios. Después de la reunión, siguiendo la sugerencia de Mengde, se seleccionó a un grupo de viajeros temporales con buena condición física y cierto interés en la navegación para que participaran en un programa de capacitación. Mengde, aprovechando sus contactos laborales, encontró a un amigo que era dueño de varias embarcaciones de carga costeras y envió a estas personas a recibir capacitación directa y personalizada sobre las habilidades necesarias.

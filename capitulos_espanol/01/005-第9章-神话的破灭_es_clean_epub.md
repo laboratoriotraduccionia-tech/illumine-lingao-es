@@ -6,7 +6,7 @@ Este mes, la dinastía Jin Posterior atacó Corea, obligando a Corea a rendirse,
 
 En mayo, Huang Taiji atacó Ningyuan y Jinzhou, pero fue rechazado por las fuerzas Ming, un evento que en su momento se celebró como una gran victoria. A partir de entonces, Huang Taiji cambió su estrategia, decidido a evitar la línea defensiva de Ningjin-Shanhaiguan y entrar directamente en Shanhaiguan para saquear. En los siguientes años del reinado de Chongzhen, realizó cinco incursiones en Shanhaiguan, devastando la tierra central y agravando la ya precaria situación de la dinastía Ming.
 
-  En julio, el emperador Tianqi enfermó gravemente, y el poderoso ministro de la "era de 9 mil años" comenzó su camino hacia el final. En noviembre de ese año, Wei Zhongxian murió suicidándose. La caída de la facción de los eunucos trajo consigo un breve momento de esperanza al panorama político de la dinastía Ming, pero desapareció rápidamente como un meteoro. Eliminar una herida purulenta no puede revivir a un paciente que ya está completamente enfermo. La dinastía Ming, el último imperio chino de origen Han, ya no tenía la fuerza para recuperarse y se encaminó hacia su destrucción.
+En julio, el emperador Tianqi enfermó gravemente, y el poderoso ministro de la "era de 9 mil años" comenzó su camino hacia el final. En noviembre de ese año, Wei Zhongxian murió suicidándose. La caída de la facción de los eunucos trajo consigo un breve momento de esperanza al panorama político de la dinastía Ming, pero desapareció rápidamente como un meteoro. Eliminar una herida purulenta no puede revivir a un paciente que ya está completamente enfermo. La dinastía Ming, el último imperio chino de origen Han, ya no tenía la fuerza para recuperarse y se encaminó hacia su destrucción.
 
 Los viajeros temporales por un momento se quedaron sin palabras, y la atmósfera se volvió un poco tensa.
 
@@ -22,7 +22,7 @@ Wen Desi y Xiao Zishan se miraron, indicando que estaban a punto de hablar de as
 
 "Estos son nuestros productos de muestra", dijo Xiao Zishan en voz baja, sacando los objetos uno por uno de su mochila.
 
-  Después de ver la caja de maquillaje, el señor Gao mostró un gran interés en los productos de estas personas. Primero, estaban las cajas de maquillaje, como la que había visto antes, pero esta era de un verde claro y grasiento. Luego, había vasos de vidrio completamente transparentes, con hermosos diseños. Aunque este vaso era mucho más transparente que cualquier otro que el señor Gao hubiera visto, no estaba fuera de su comprensión, por lo que sintió un poco de decepción. A continuación, había varios artículos de porcelana, de aspecto y coloración ordinarios. Al levantarlos y sentir su ligereza, y al no sentir la frialdad característica de la porcelana, supo que no eran de porcelana. Justo cuando estaba pensando que estos artículos no valían mucho, Xiao Zishan pareció entender sus pensamientos y empujó varios cuencos y tazas al suelo. El señor Gao se sobresaltó, pero vio que estos objetos, al caer sobre el suelo de baldosas, no se rompieron, sino que simplemente dieron algunas vueltas, sin sufrir daños.
+Después de ver la caja de maquillaje, el señor Gao mostró un gran interés en los productos de estas personas. Primero, estaban las cajas de maquillaje, como la que había visto antes, pero esta era de un verde claro y grasiento. Luego, había vasos de vidrio completamente transparentes, con hermosos diseños. Aunque este vaso era mucho más transparente que cualquier otro que el señor Gao hubiera visto, no estaba fuera de su comprensión, por lo que sintió un poco de decepción. A continuación, había varios artículos de porcelana, de aspecto y coloración ordinarios. Al levantarlos y sentir su ligereza, y al no sentir la frialdad característica de la porcelana, supo que no eran de porcelana. Justo cuando estaba pensando que estos artículos no valían mucho, Xiao Zishan pareció entender sus pensamientos y empujó varios cuencos y tazas al suelo. El señor Gao se sobresaltó, pero vio que estos objetos, al caer sobre el suelo de baldosas, no se rompieron, sino que simplemente dieron algunas vueltas, sin sufrir daños.
 
 Los sirvientes de un lado rápidamente recogieron los objetos. El señor Gao los arrebató de sus manos y los examinó cuidadosamente durante mucho tiempo, sin encontrar ni una sola grieta o defecto. Pensó para sí mismo que las posesiones de estas personas eran realmente extrañas.
 
@@ -48,7 +48,7 @@ Cada estuche de maquillaje cuesta diez taels de plata.
 
 Vasos de vidrio, cada uno cuesta una o dos unidades de moneda.
 
-  Los platos y utensilios de Mian, los grandes valían cinco qian, los pequeños dos qian, y las cucharas, un qian.
+Los platos y utensilios de Mian, los grandes valían cinco qian, los pequeños dos qian, y las cucharas, un qian.
 
 "Cajas de plástico para comida, cada una cuesta entre tres y dos unidades de la moneda local."
 
@@ -56,9 +56,9 @@ Vasos de vidrio, cada uno cuesta una o dos unidades de moneda.
 
 "Pequeños cuchillos, cada uno cuesta cinco qian."
 
-  ¡El tradicional vaso de vidrio, supuestamente un objeto valioso para los viajeros temporales, ha sido un fracaso total! Mil y dos monedas se convirtieron en una y dos. Esta diferencia es demasiado grande; los diamantes se han transformado en vidrio.
+¡El tradicional vaso de vidrio, supuestamente un objeto valioso para los viajeros temporales, ha sido un fracaso total! Mil y dos monedas se convirtieron en una y dos. Esta diferencia es demasiado grande; los diamantes se han transformado en vidrio.
 
-  Lo que realmente llamó la atención de los comerciantes de la dinastía Ming fue una pequeña caja de plástico rosa, algo poco llamativo. Esto demuestra que, sin importar la época, nunca se puede subestimar la importancia de conocer a tu cliente. Xiao Zishan preguntó sobre el comercio marítimo de Guangzhou y, aprovechando la oportunidad, quiso saber la opinión del otro sobre sus productos.
+Lo que realmente llamó la atención de los comerciantes de la dinastía Ming fue una pequeña caja de plástico rosa, algo poco llamativo. Esto demuestra que, sin importar la época, nunca se puede subestimar la importancia de conocer a tu cliente. Xiao Zishan preguntó sobre el comercio marítimo de Guangzhou y, aprovechando la oportunidad, quiso saber la opinión del otro sobre sus productos.
 
 Originalmente, el comercio internacional de la ciudad de Guangzhou estaba monopolizado por los comerciantes franceses. Sin importar de dónde vinieran los comerciantes extranjeros, los barcos solo podían atracar en Haojing'ao, donde eran inspeccionados y se les cobraban impuestos, antes de poder comerciar. Solo los comerciantes franceses podían entrar en la ciudad de Guangzhou para realizar negocios. Dentro de la ciudad, existían treinta y seis gremios especializados en la exportación, y se realizaban negocios con ellos, adquiriendo grandes cantidades de porcelana, seda cruda, azúcar y otros productos cada año.
 

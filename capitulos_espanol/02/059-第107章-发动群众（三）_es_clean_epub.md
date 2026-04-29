@@ -3,7 +3,7 @@
 
 "Xi Yaziang", con una confianza que no revelaba, dijo: "Los asuntos con las autoridades, déjenlos en nuestras manos. No tienen que preocuparse". En realidad, ya tenía un plan: no podríamos superar a los antiguos en astucia o estrategias; solo podríamos vencer con la fuerza.
 
-  La gente de Yancun se miró unos a otros, como si no creyera del todo lo que veía. Sin embargo, estos "señores" de pelo corto tampoco eran personas fáciles de tratar. La victoria en Bailin Tan sobre varios cientos de aldeanos demostró que eran capaces de lograr cualquier cosa. Xi Yazhou no se apresuró a demostrar nada y simplemente preguntó: "¿Si recuperamos los impuestos sobre la sal, podrán todos estar unidos? En ese momento, esos dos ancianos de la familia Gou seguramente no se sentirán satisfechos y vendrán a causar problemas..."
+La gente de Yancun se miró unos a otros, como si no creyera del todo lo que veía. Sin embargo, estos "señores" de pelo corto tampoco eran personas fáciles de tratar. La victoria en Bailin Tan sobre varios cientos de aldeanos demostró que eran capaces de lograr cualquier cosa. Xi Yazhou no se apresuró a demostrar nada y simplemente preguntó: "¿Si recuperamos los impuestos sobre la sal, podrán todos estar unidos? En ese momento, esos dos ancianos de la familia Gou seguramente no se sentirán satisfechos y vendrán a causar problemas..."
 
 "¿De qué tener miedo?", dijo Tan Chenqing, moviendo los brazos con energía. "Esos pocos hombres que tiene no son nada; cualquier joven fuerte del pueblo podría enfrentarse a tres o cuatro de ellos fácilmente."
 
@@ -21,7 +21,7 @@
 
 "Probablemente quedan más de cuatrocientos, principalmente mujeres, niños, ancianos y jóvenes. La mayoría de los adultos están afuera, escondiéndose y trabajando en la agricultura; en total, son más de doscientos."
 
-  Sin contar a los jóvenes y adultos que viven fuera, solo el pueblo necesita suministrar alimentos a más de cuatrocientos habitantes. Si consideramos un estándar mínimo de media libra de arroz por persona al día, el consumo diario de alimentos es de doscientos cincuenta libras, lo cual no es un número pequeño para los viajeros temporales que ya han consumido la mitad de sus provisiones. Además, es necesario rescatar a las personas que fueron capturadas en la salina. Parece que, para Gou Da, esta situación es inevitable.
+Sin contar a los jóvenes y adultos que viven fuera, solo el pueblo necesita suministrar alimentos a más de cuatrocientos habitantes. Si consideramos un estándar mínimo de media libra de arroz por persona al día, el consumo diario de alimentos es de doscientos cincuenta libras, lo cual no es un número pequeño para los viajeros temporales que ya han consumido la mitad de sus provisiones. Además, es necesario rescatar a las personas que fueron capturadas en la salina. Parece que, para Gou Da, esta situación es inevitable.
  ⃀“Si todos los jóvenes y adultos regresan al pueblo”, preguntó Xi Yazhou a Tan Guihuang, “¿cuánta sal se puede producir al día?”.
 
 "El padre y el hijo se sentaron uno frente al otro y discutieron: 'Cada día podemos producir más de dos mil jin. El clima reciente ha sido bueno, es un buen momento para hacer sal'".
@@ -34,7 +34,7 @@ Xi Yazhou pensó: "Esto equivale a producir una tonelada al día, lo cual es con
 
 "¿Conocen a alguien? Pueden pedirles que vengan a recoger la sal; nosotros podemos ofrecerles protección militar", dijo Xi Yazhen con firmeza, observando sus expresiones de duda. "¿Qué ocurre? Tenemos barcos de guerra tan grandes, ¿y les tenemos miedo a unos pocos piratas?"
 
-  Tan Guihuang asintió, como tomando una decisión firme: "¡De acuerdo! En el pasado, estos comerciantes de sal eran atendidos por mí, conozco sus nombres y marcas. En Leizhou, hay un hombre llamado Liu Gang, un pequeño comerciante que, aunque compra y vende sal, a menudo se dedica al contrabando. Quizás tenga más audacia. Iré a Haikang". (Nota: Leizhou tiene dos condados subordinados: Haikang y Xuwu).
+Tan Guihuang asintió, como tomando una decisión firme: "¡De acuerdo! En el pasado, estos comerciantes de sal eran atendidos por mí, conozco sus nombres y marcas. En Leizhou, hay un hombre llamado Liu Gang, un pequeño comerciante que, aunque compra y vende sal, a menudo se dedica al contrabando. Quizás tenga más audacia. Iré a Haikang". (Nota: Leizhou tiene dos condados subordinados: Haikang y Xuwu).
  ⃀"Es mejor que yo vaya, usted es mayor", dijo Tan Chenghui, al ver que su padre quería emprender un viaje largo, e inmediatamente lo detuvo.
 
 "Ir a Haikang no es más que cruzar el mar, y el pueblo seguirá necesitando gente."
@@ -91,7 +91,7 @@ Debajo de la estructura, ya había una caja negra, y un cable grueso conectaba e
 
 He Ying colocó su pie en el soporte y forcejeó para bajar el seguro de la aspa. El ventilador comenzó a girar rápidamente, y la caja negra emitió un largo sonido. La instalación de energía limpia número uno comenzó a funcionar.
 
-  Este generador eólico es un producto comprado directamente. Las aspas son de fibra de vidrio, el generador es un pequeño motor de corriente continua, y dentro del transformador ubicado en la base hay baterías. En realidad, la electricidad generada se utiliza primero para cargar las baterías y luego se suministra. De esta manera, el voltaje es más estable y la potencia es de solo 400 vatios.
+Este generador eólico es un producto comprado directamente. Las aspas son de fibra de vidrio, el generador es un pequeño motor de corriente continua, y dentro del transformador ubicado en la base hay baterías. En realidad, la electricidad generada se utiliza primero para cargar las baterías y luego se suministra. De esta manera, el voltaje es más estable y la potencia es de solo 400 vatios.
 
 400 vatios de electricidad, además de ser utilizados para iluminación, solo pueden alimentar computadoras y dispositivos similares, lo cual es suficiente por el momento. Según los planes del departamento de energía, una vez que la situación de la salina se estabilice, se instalará aquí un pequeño generador de energía térmica, que, según se dice, es de producción nacional. El personal del departamento de maquinaria ha estado trabajando recientemente en los planos de la caldera.
 

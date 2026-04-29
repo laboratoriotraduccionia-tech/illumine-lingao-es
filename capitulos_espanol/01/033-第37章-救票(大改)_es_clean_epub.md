@@ -1,7 +1,7 @@
 ## Capítulo 33: Rescate de un billete (versión revisada)
 
-  Tan pronto como la joven salió, Wang Tou se acercó:
-  "Li, ¿qué dijo esta persona?".
+Tan pronto como la joven salió, Wang Tou se acercó:
+"Li, ¿qué dijo esta persona?".
 
 "Verdad y falsedad se mezclan", resopló Li Siyaya. "Hay algunas cosas sobre las que no se puede llegar a la verdad, así que solo puedo dejar que digan lo que quieran".
 
@@ -17,7 +17,7 @@
 
 "La información debe llegar al lugar habitual; me quedaré en esta ciudad de Guangzhou por un tiempo." Ella llamó: "Vamos." Una figura elegante emergió de la oscuridad, envuelta en un abrigo negro. Las dos saltaron a la orilla y desaparecieron rápidamente en la oscuridad.
 
-  Después de un rato, dos cómplices salieron de la cabina: "Wang Luobin, ¿qué hacemos?".
+Después de un rato, dos cómplices salieron de la cabina: "Wang Luobin, ¿qué hacemos?".
 
 "Hum, ¿cómo dejar escapar un bocado tan apetitoso?", Wang Luobin escupió en el agua para mostrar su desprecio. "Ella no es nada importante, solo es alguien que hace recados para el jefe."
 
@@ -81,7 +81,7 @@ Desde hace dos días, la agencia Wei había informado a Wen Zong de que era muy 
 
 La situación no permite dilaciones, así que decidí actuar de inmediato. Aún no ha llegado la carta de rescate, y la situación es estable. Si los criminales cambian de lugar, será mucho más difícil investigarlos. La operación estará dirigida por Ran Yao, con tres personas del departamento de deportes, más Lin Shenhe. Además, varios expertos de la agencia Qiwei se unirán para brindar apoyo.
 
-  La operación se fijó para las cinco y media. Los viajeros temporales ya habían averiguado los horarios de Bai'e Tan: en esta época del año, el negocio de los botes de flores no comenzaba hasta después de las seis. Antes de esa hora, había pocos transeúntes; la luz del día era suficiente y la visibilidad no estaba obstruida. Después de llevar a cabo la operación, todo el equipo debía retirarse rápidamente a la ciudad antes de que se cerraran las puertas. Si el líder de los bandidos estaba fuera de la ciudad, ya sería imposible que entrara; si estaba dentro, sería difícil que la información llegara tan rápido, ya que las comunicaciones en la antigüedad básicamente dependían de personas que transmitían mensajes a pie. En este aspecto, los viajeros temporales tenían una ventaja natural.
+La operación se fijó para las cinco y media. Los viajeros temporales ya habían averiguado los horarios de Bai'e Tan: en esta época del año, el negocio de los botes de flores no comenzaba hasta después de las seis. Antes de esa hora, había pocos transeúntes; la luz del día era suficiente y la visibilidad no estaba obstruida. Después de llevar a cabo la operación, todo el equipo debía retirarse rápidamente a la ciudad antes de que se cerraran las puertas. Si el líder de los bandidos estaba fuera de la ciudad, ya sería imposible que entrara; si estaba dentro, sería difícil que la información llegara tan rápido, ya que las comunicaciones en la antigüedad básicamente dependían de personas que transmitían mensajes a pie. En este aspecto, los viajeros temporales tenían una ventaja natural.
 
 "¿No sería mejor actuar después de que oscurezca? Nosotros tenemos visores nocturnos, mientras que ellos estarán completamente ciegos."
 
@@ -93,7 +93,7 @@ ingeniero Wang se quedó en la casa, llevando consigo un arma de cinco disparos.
 
 Después de almorzar, Lin Shenhe y Xiao Zishan hablaron un rato, y Xiao Zishan asintió y se fue. Él mismo llevó consigo un fusil de pequeño calibre de la marca Emei, y lo desmontó sobre la mesa. Era un fusil deportivo de fabricación nacional bastante bueno, y este era el modelo EM751, de calibre 5.6 milímetros. Con una mira óptica de 4 aumentos, estaba seguro de poder impactar a una persona a una distancia de hasta 200 metros.
 
-  Aunque había usado muchas armas en el extranjero, no tenía experiencia con este tipo de fusil; para asegurarse de poder disparar con precisión, era necesario realizar algunas pruebas.
+Aunque había usado muchas armas en el extranjero, no tenía experiencia con este tipo de fusil; para asegurarse de poder disparar con precisión, era necesario realizar algunas pruebas.
 
 La pistola, aunque antigua, estaba muy bien conservada. Lin Shenhe la desmontaba y limpiaba mientras trabajaba. Beini llegó desde adelante, vio que él estaba limpiando la pistola, y las palabras que quería decir se le quedaron atascadas en la garganta; simplemente se quedó a un lado, observando en silencio.
 
@@ -111,7 +111,7 @@ Bei Wei, con una expresión de preocupación, tomó el telescopio. El campo de t
 
 Lin Shenhe adoptó una posición de rodillas en la línea de tiro a 50 metros, ajustó la mira, introdujo una bala en la recámara y accionó el seguro. Colocó el talón del pie derecho debajo de la cadera para mantener la estabilidad, apoyó la rodilla derecha en el suelo y ajustó toda su postura de tiro.
 
-  La mira óptica de 4x en el rifle proyectaba claramente el centro del objetivo frente a sus ojos; en ese momento, no había ni una pizca de viento. Se escuchaban desde el patio los sonidos desordenados de petardos y fuegos artificiales, una distracción para cubrir su prueba de disparo. Él apenas podía oírlo, solo sentía un ligero latido en sus pulsos, y la más mínima vibración muscular se reflejaba claramente en la mira. El centro negro del objetivo se movía ligeramente, siguiendo el ritmo de las vibraciones musculares.
+La mira óptica de 4x en el rifle proyectaba claramente el centro del objetivo frente a sus ojos; en ese momento, no había ni una pizca de viento. Se escuchaban desde el patio los sonidos desordenados de petardos y fuegos artificiales, una distracción para cubrir su prueba de disparo. Él apenas podía oírlo, solo sentía un ligero latido en sus pulsos, y la más mínima vibración muscular se reflejaba claramente en la mira. El centro negro del objetivo se movía ligeramente, siguiendo el ritmo de las vibraciones musculares.
 
 Él contuvo la respiración y, en ese segundo de respiración suspendida, accionó el gatillo.
 

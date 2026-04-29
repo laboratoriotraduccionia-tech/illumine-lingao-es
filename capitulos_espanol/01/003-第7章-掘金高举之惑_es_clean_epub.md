@@ -1,6 +1,6 @@
 ## Capítulo 3: La búsqueda de la riqueza – Las dudas de Gao Ju
 
-  “Que el poderoso dios de los viajeros temporales nos proteja, y que la Administración del Tiempo apruebe nuestras acciones. Amén.”
+“Que el poderoso dios de los viajeros temporales nos proteja, y que la Administración del Tiempo apruebe nuestras acciones. Amén.”
 
 Wen Desi repitió en voz baja, y fue el primero en atravesar el agujero de gusano, llevando consigo el equipo. Inmediatamente después, siguieron Xiao Zishan y Wang Luobin.
 

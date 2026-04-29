@@ -1,17 +1,17 @@
 ## Capítulo 152: Un hombre
 
 
-<p>  De noche.</p>
+De noche.
 
-  Ma Qianzhu estaba redactando documentos bajo la luz.
+Ma Qianzhu estaba redactando documentos bajo la luz.
 
 El documento número 31 del Comité de Planificación, fechado en 1628, trata sobre las necesidades de formación de un ejército, la producción de material bélico y la distribución de suministros.
 
 Nivel secreto: Confidencial.
 
-  1. Se ordena al departamento de industria militar que realice de inmediato una estimación de las necesidades de materiales y personal para los siguientes proyectos:
+1. Se ordena al departamento de industria militar que realice de inmediato una estimación de las necesidades de materiales y personal para los siguientes proyectos:
 
-  1. Comenzar el entrenamiento de 500 nuevos soldados en una semana. Entre ellos, 30 *viajeros temporales*. Por lo tanto, se debe ensamblar inmediatamente las piezas de los rifles Mini existentes para crear armas completas, con una estimación de 350 armas en el primer lote. Además, el departamento de industria militar proporcionará 5 cañones de 6 libras y 4 cañones de 12 libras.
+1. Comenzar el entrenamiento de 500 nuevos soldados en una semana. Entre ellos, 30 *viajeros temporales*. Por lo tanto, se debe ensamblar inmediatamente las piezas de los rifles Mini existentes para crear armas completas, con una estimación de 350 armas en el primer lote. Además, el departamento de industria militar proporcionará 5 cañones de 6 libras y 4 cañones de 12 libras.
 
 Durante el período de entrenamiento, cada cañón disparaba dos veces al día, y cada mosquete se disparaba diez veces. Se estimó la cantidad de municiones necesarias para cubrir seis meses de entrenamiento.
 
@@ -29,8 +29,8 @@ II. Creación de una escuela para cuadros militares y administrativos.
 
 2. El departamento de construcción consideró la ubicación del campus, así como la estimación de materiales de construcción y mano de obra.
 
-  III. Avance del departamento de química.
-  1. El departamento de química debe presentar el progreso de finalización de tres plantas químicas principales: la planta de alquitrán de carbón, la planta de amoníaco sintético de 800 toneladas y la planta de electrólisis de sal.
+III. Avance del departamento de química.
+1. El departamento de química debe presentar el progreso de finalización de tres plantas químicas principales: la planta de alquitrán de carbón, la planta de amoníaco sintético de 800 toneladas y la planta de electrólisis de sal.
 
 2. En la premisa de que no se pueden utilizar métodos de fabricación industrial, ¿existen procesos alternativos que puedan utilizarse para producir ácidos y bases? Se debe proporcionar una lista de las materias primas, equipos y energía necesarios.
 
@@ -44,7 +44,7 @@ II. Creación de una escuela para cuadros militares y administrativos.
 
 3. La estación avanzada de Guangzhou ha expresado repetidamente que la capacidad de transporte es insuficiente y que existe una gran acumulación de diversos suministros comprados. El plan original era comprar de 2 a 3 barcos en Guangzhou para el transporte y contratar marineros locales, pero recientemente, las autoridades han estado prohibiendo la navegación de barcos y preparándose para batallas navales, por lo que los astilleros de la región no están construyendo nuevos barcos. Se espera que el comité ejecutivo adquiera rápidamente 1 o 2 barcos.
 
-  ……
+……
 
 El informe de Ma Qianzhu se terminó muy tarde en la noche, y los detalles de cada departamento, que eran innumerables, finalmente se consolidaron en la Comisión de Planificación. Finalmente, la Comisión de Planificación fue responsable de la coordinación y el funcionamiento. A medida que las operaciones se hacían cada vez más grandes, las ideas y los planes también se multiplicaban, y la estructura, que originalmente era muy simplificada, ahora parecía que debía realizarse algunos ajustes para adaptarse a esta situación.
 
@@ -84,8 +84,8 @@ La persona que llegó aparentaba tener entre treinta y cuarenta años, era de co
 
 "El señor Zhu Cai Lao probablemente está pidiendo un precio muy alto ahora mismo", dijo el hombre con una sonrisa segura. "Ustedes tienen productos únicos, ofrézcanle el derecho de distribución, y él seguramente aceptará."
 
-  Ma Qianzhu se quedó pensativo. Él también había considerado esta propuesta, pero realmente no se sentía seguro al respecto. ¿Cómo podría proponer una alianza con personas que han robado y asesinado? ¿Será que Zhucai es tan comprensivo?
-  "Incluso si es difícil de tratar, es necesario resolver la situación urgente."
+Ma Qianzhu se quedó pensativo. Él también había considerado esta propuesta, pero realmente no se sentía seguro al respecto. ¿Cómo podría proponer una alianza con personas que han robado y asesinado? ¿Será que Zhucai es tan comprensivo?
+"Incluso si es difícil de tratar, es necesario resolver la situación urgente."
 
 "Está bien, lo intentaré. De todos modos, si no llegamos a un acuerdo, no perderemos nada."
 
@@ -95,9 +95,9 @@ La persona que llegó aparentaba tener entre treinta y cuarenta años, era de co
 
 "Todavía no es el momento", dijo el hombre mientras salía y miraba el cielo estrellado de Lingao.
 
-  Ma Qianzhu, esa noche, no dijo nada. Al día siguiente, convocó a los miembros del comité ejecutivo. Explicó esta propuesta una vez más, y el comité ejecutivo tuvo diversas opiniones al respecto. La mayoría no se oponía a negociar con Zhucai Lao, ya que, después de todo, la guerra trae bajas, y nadie quiere eso. Sin embargo, algunos dudaban de si una negociación así era posible, y otros temían que demasiadas concesiones en la negociación pudieran dañar la reputación y los intereses del grupo de viajeros temporales. Después de repetidas deliberaciones, finalmente decidieron intentarlo. Independientemente de si la negociación tiene éxito o no, la preparación militar debe continuar: "Habla con suavidad, pero ten un gran bastón en la mano".
+Ma Qianzhu, esa noche, no dijo nada. Al día siguiente, convocó a los miembros del comité ejecutivo. Explicó esta propuesta una vez más, y el comité ejecutivo tuvo diversas opiniones al respecto. La mayoría no se oponía a negociar con Zhucai Lao, ya que, después de todo, la guerra trae bajas, y nadie quiere eso. Sin embargo, algunos dudaban de si una negociación así era posible, y otros temían que demasiadas concesiones en la negociación pudieran dañar la reputación y los intereses del grupo de viajeros temporales. Después de repetidas deliberaciones, finalmente decidieron intentarlo. Independientemente de si la negociación tiene éxito o no, la preparación militar debe continuar: "Habla con suavidad, pero ten un gran bastón en la mano".
 
-  Ma Qianzhu le indicó a Dugu Qiuhun que trajera al actual jefe de piratas, quien estaba siendo reeducado en el sitio de construcción de la calle en Dongmen. Poco después, Dugu Qiuhun regresó con dos prisioneros. Estos dos hombres, al ver al líder de la banda "duanmao", se asustaron mucho y pensaron que iban a ser torturados, así que Ma Qianzhu rápidamente los tranquilizó.
+Ma Qianzhu le indicó a Dugu Qiuhun que trajera al actual jefe de piratas, quien estaba siendo reeducado en el sitio de construcción de la calle en Dongmen. Poco después, Dugu Qiuhun regresó con dos prisioneros. Estos dos hombres, al ver al líder de la banda "duanmao", se asustaron mucho y pensaron que iban a ser torturados, así que Ma Qianzhu rápidamente los tranquilizó.
 
 Uno de los líderes se llamaba Hei Mian Jiao Shi Shisi, y era el jefe de una de las embarcaciones, equivalente a un capitán. Después de ser capturado, se mostró bastante cooperativo y reveló todo lo que sabía de manera clara y concisa. Ma Qianzhu supo a través de los registros de interrogatorio que este hombre era muy leal y tenía cierta reputación dentro de ese grupo de bandidos.
 
@@ -113,8 +113,8 @@ Uno de los líderes se llamaba Hei Mian Jiao Shi Shisi, y era el jefe de una de 
 
 Ma Qianzhu sonrió levemente y dijo: "Hermano, no te apresures. Hemos oído mucho sobre la generosidad y la rectitud de los líderes importantes, y siempre hemos deseado tener la oportunidad de visitarlos. Permítanme preparar un regalo para el líder importante, y por favor, introdúzcanme, no deben negarse. Por favor, esperen un momento, iré y regresaré rápidamente". Después de decir esto, Ma Qianzhu le indicó a Dugu Qiuhong que vigilara a este hombre, y él mismo se dirigió a la oficina para informar a la comisión.
 
-  El comité ejecutivo preparó algunos regalos para los ancianos Zhucai como muestra de buena voluntad, con el fin de lograr una negociación y obtener cooperación en el comercio marítimo. Inicialmente, se habían preparado algunas flores de plástico y artículos de vidrio, pero el guardia Hu, que estaba de pie cerca, los convenció: "Existe un dicho que dice que la riqueza no debe mostrarse abiertamente. Si mostramos repentinamente riqueza, seremos vistos como bandidos, lo que inevitablemente atraerá a los lobos a nuestra puerta y nunca tendremos paz". Todos escucharon y comprendieron que tenía razón, así que solo prepararon dos espejos de vidrio, que eran artículos comunes, y diez rollos de seda, además de entregar diez taels de plata a Shi Shiyi para calmarlo.
+El comité ejecutivo preparó algunos regalos para los ancianos Zhucai como muestra de buena voluntad, con el fin de lograr una negociación y obtener cooperación en el comercio marítimo. Inicialmente, se habían preparado algunas flores de plástico y artículos de vidrio, pero el guardia Hu, que estaba de pie cerca, los convenció: "Existe un dicho que dice que la riqueza no debe mostrarse abiertamente. Si mostramos repentinamente riqueza, seremos vistos como bandidos, lo que inevitablemente atraerá a los lobos a nuestra puerta y nunca tendremos paz". Todos escucharon y comprendieron que tenía razón, así que solo prepararon dos espejos de vidrio, que eran artículos comunes, y diez rollos de seda, además de entregar diez taels de plata a Shi Shiyi para calmarlo.
 
 "Ma Qianzhu recordó el asunto del vidrio y rápidamente ordenó al departamento industrial que preparara muestras. Zhan Wuya extendió las manos: "He enviado mi informe hace varios días, pero el horno aún no me ha fabricado nada, ¿cómo voy a conseguir muestras? Quizás sea mejor quitar un trozo al azar de la nave espacial".
 
-  Ma Qianzhu, sin otra opción, hizo que alguien recogiera un trozo grande de vidrio roto de la nave y se lo entregó a Shi Shier, diciendo: "Sabemos cómo hacer este tipo de cosas. Por favor, hermano, infórmale a los líderes importantes si podrían ayudarnos a venderlo, todo es negociable". Shi Shier, en ese momento, solo quería subir a bordo lo antes posible, así que aceptó de inmediato sin dudar.
+Ma Qianzhu, sin otra opción, hizo que alguien recogiera un trozo grande de vidrio roto de la nave y se lo entregó a Shi Shier, diciendo: "Sabemos cómo hacer este tipo de cosas. Por favor, hermano, infórmale a los líderes importantes si podrían ayudarnos a venderlo, todo es negociable". Shi Shier, en ese momento, solo quería subir a bordo lo antes posible, así que aceptó de inmediato sin dudar.

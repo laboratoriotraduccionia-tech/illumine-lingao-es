@@ -4,9 +4,9 @@ Wen Desi regresó. Originalmente, planeaba esperar a que terminaran de construir
 
 Parece que iniciar el entrenamiento de formaciones resultó ser una buena decisión. Después de inspeccionar el progreso en Bopu, Wen Desi no pudo evitar sentirse orgulloso de los resultados. Aunque el entrenamiento de formaciones y las tácticas de filas horizontales y verticales se determinan principalmente según el nivel de las armas, el excelente resultado hizo que Xi Yajian, quien propuso inicialmente este plan, se sintiera eufórico. Esta experiencia es valiosa y merece ser promovida en el futuro.
 
-  La facción Bairen envió un Beijing 212 para recogerlo y llevarlo de vuelta. Ma Qianzhu también regresó a Bairen en el mismo vehículo.
+La facción Bairen envió un Beijing 212 para recogerlo y llevarlo de vuelta. Ma Qianzhu también regresó a Bairen en el mismo vehículo.
 
-  A lo largo del camino, tuve una conversación profunda con Ma Zongchang sobre las experiencias de esta batalla. Aunque Wen Desi también estaba preocupado por la creciente independencia de las fuerzas armadas, ambas partes coincidieron en que la expansión del ejército era una prioridad urgente.
+A lo largo del camino, tuve una conversación profunda con Ma Zongchang sobre las experiencias de esta batalla. Aunque Wen Desi también estaba preocupado por la creciente independencia de las fuerzas armadas, ambas partes coincidieron en que la expansión del ejército era una prioridad urgente.
 
 "Si llegaran dos grupos de personas, uno por mar y otro por tierra. Veinte barcos grandes, con entre dos y tres mil soldados en tierra. Esta batalla no sería tan fácil de ganar."
 
@@ -38,8 +38,8 @@ Parece que iniciar el entrenamiento de formaciones resultó ser una buena decisi
 
 "¿Acaso los soldados no se han alineado para cargar? Además, los *viajeros temporales* han hecho contribuciones significativas en dos batallas, y el Comité Ejecutivo no ha mostrado ningún reconocimiento. ¿No es esto desalentador?"
 
-  Es cierto que se ha descuidado este aspecto. Originalmente, Ma Qianzhu planeaba aprovechar esta oportunidad para realizar algunas distinciones honoríficas, condecoraciones e incluso otorgar medallas, pero no había considerado el tema de proporcionar dinero y recompensas a los viajeros temporales. En ese momento, se dio cuenta de repente: ¡los viajeros temporales también son personas!
-  Esta conclusión lo hizo sonreír con amargura. Parece que, una vez que se está acostumbrado a ser líder, se olvidan muchas cosas. En esta ocasión, personas como Dugu Qiuhun, Wang Ruixiang y Lin Shenhe, entre otros, han hecho un gran esfuerzo, y si no se les reconoce de alguna manera, seguramente se sentirán desanimados.
+Es cierto que se ha descuidado este aspecto. Originalmente, Ma Qianzhu planeaba aprovechar esta oportunidad para realizar algunas distinciones honoríficas, condecoraciones e incluso otorgar medallas, pero no había considerado el tema de proporcionar dinero y recompensas a los viajeros temporales. En ese momento, se dio cuenta de repente: ¡los viajeros temporales también son personas!
+Esta conclusión lo hizo sonreír con amargura. Parece que, una vez que se está acostumbrado a ser líder, se olvidan muchas cosas. En esta ocasión, personas como Dugu Qiuhun, Wang Ruixiang y Lin Shenhe, entre otros, han hecho un gran esfuerzo, y si no se les reconoce de alguna manera, seguramente se sentirán desanimados.
 
 "Tienes razón, aunque tengo algunas reservas sobre la entrega de los premios."
 
@@ -85,14 +85,14 @@ La oficina del departamento de seguridad también ha sido completamente renovada
 
 La sala de interrogatorios estaba ubicada en la casa principal del patio de la prisión, y las ventanas y puertas estaban cubiertas con tela negra para crear un efecto de habitación oscura. Dentro de la sala, no había torturas como las diez torturas de la dinastía Qing, sino una silla con esposas y grilletes, algunas mesas y una lámpara de escritorio.
 
-  Ayer, los prisioneros capturados durante el día ya habían sido interrogados en gran medida, y en general, la información obtenida no fue muy reveladora. La mayoría de los prisioneros eran trabajadores temporales, y el más antiguo de ellos no pudo explicar mucho, simplemente afirmaba que habían sido enviados por "Zhucai". Sin embargo, el Comité Ejecutivo obviamente no creía esta versión, ya que los prisioneros capturados por la noche eran mucho más complejos. Aunque no eran más de cincuenta, por su apariencia, se podía ver que había tanto chinos como nativos del sudeste asiático, algunos parecían ser de la India, y había dos con cabello rizado, ojos profundos y piel pálida, claramente extranjeros.
+Ayer, los prisioneros capturados durante el día ya habían sido interrogados en gran medida, y en general, la información obtenida no fue muy reveladora. La mayoría de los prisioneros eran trabajadores temporales, y el más antiguo de ellos no pudo explicar mucho, simplemente afirmaba que habían sido enviados por "Zhucai". Sin embargo, el Comité Ejecutivo obviamente no creía esta versión, ya que los prisioneros capturados por la noche eran mucho más complejos. Aunque no eran más de cincuenta, por su apariencia, se podía ver que había tanto chinos como nativos del sudeste asiático, algunos parecían ser de la India, y había dos con cabello rizado, ojos profundos y piel pálida, claramente extranjeros.
 
 Ran Yao se sintió un poco incómodo. En este período de tiempo, ya era suficiente problema lidiar con la gran variedad de dialectos, y ahora, además, llegaban algunas personas más. Los extranjeros no eran un problema, ya que siempre se pueden encontrar viajeros temporales que hablan inglés, español, etc. Pero, ¿qué idiomas hablaban esos "A San" (gente de la India) y los nativos del sudeste asiático en ese momento?
 
 Después de pensarlo mucho, decidí empezar investigando a los piratas chinos.
 
-  Al interrogar a los prisioneros, lo primero que se observaba era la ropa. Aquellos con ropa desgastada y aspecto de desnutrición seguramente no eran líderes, por lo que se separaba inicialmente a aquellos que parecían estar en mejor estado y con ropa más presentable para interrogarlos.
+Al interrogar a los prisioneros, lo primero que se observaba era la ropa. Aquellos con ropa desgastada y aspecto de desnutrición seguramente no eran líderes, por lo que se separaba inicialmente a aquellos que parecían estar en mejor estado y con ropa más presentable para interrogarlos.
 
-  Afuera de la sala de interrogatorio, había varios policías liderados por Dugu Qiuhun, que llevaban bastones y habían sido asignados temporalmente. También había soldados con bayonetas. Dugu Qiuhun destacó mucho en la batalla de Bolu, y los piratas lo temían. Al ver a este hombre, que portaba un machete y sonreía con malicia mientras los observaba uno por uno, los piratas, atados y sentados en el patio esperando ser interrogados, sentían un escalofrío en la nuca.
+Afuera de la sala de interrogatorio, había varios policías liderados por Dugu Qiuhun, que llevaban bastones y habían sido asignados temporalmente. También había soldados con bayonetas. Dugu Qiuhun destacó mucho en la batalla de Bolu, y los piratas lo temían. Al ver a este hombre, que portaba un machete y sonreía con malicia mientras los observaba uno por uno, los piratas, atados y sentados en el patio esperando ser interrogados, sentían un escalofrío en la nuca.
 
-  Durante el interrogatorio, Ran Yao fue quien personalmente realizó las preguntas, y había tres traductores presentes, que hablaban respectivamente el dialecto oficial de Guangdong, el dialecto de Lingao y el dialecto minnan. Dugu Qiu'hun, después de organizar a los guardias, también se vistió con su equipo completo.
+Durante el interrogatorio, Ran Yao fue quien personalmente realizó las preguntas, y había tres traductores presentes, que hablaban respectivamente el dialecto oficial de Guangdong, el dialecto de Lingao y el dialecto minnan. Dugu Qiu'hun, después de organizar a los guardias, también se vistió con su equipo completo.

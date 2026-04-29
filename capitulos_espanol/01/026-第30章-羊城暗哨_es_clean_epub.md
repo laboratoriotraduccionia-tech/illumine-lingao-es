@@ -1,13 +1,13 @@
 ## Capítulo 26: Puesto de observación secreto en Guangzhou
 
 
-  Desde el principio, el Comité Ejecutivo consideró a los dos hijos de la familia Gao como un punto focal de su trabajo. Una vez que las ideas de los adultos se forman, es difícil cambiarlas. Por el contrario, los niños y adolescentes tienen una mente activa, una actitud natural de desprecio hacia la autoridad y son fácilmente impresionados por cosas nuevas. Además, les encanta la aventura y están ansiosos por demostrar que tienen la capacidad de igualar a los adultos; todo esto es algo que los viajeros temporales pueden aprovechar.
+Desde el principio, el Comité Ejecutivo consideró a los dos hijos de la familia Gao como un punto focal de su trabajo. Una vez que las ideas de los adultos se forman, es difícil cambiarlas. Por el contrario, los niños y adolescentes tienen una mente activa, una actitud natural de desprecio hacia la autoridad y son fácilmente impresionados por cosas nuevas. Además, les encanta la aventura y están ansiosos por demostrar que tienen la capacidad de igualar a los adultos; todo esto es algo que los viajeros temporales pueden aprovechar.
 
 Cada vez que viajaban en el tiempo, dedicaban mucho tiempo a interactuar con los dos niños, para observar sus personalidades y habilidades. En comparación con Gao Lujie, el aprendiz masculino, Gao Di, era más valioso: el círculo de contactos de las niñas es más limitado y tienen pocas oportunidades de destacar. Gao Di es más joven, y su forma de pensar y su personalidad son mucho más maleables que los de su hermana.
 
 高弟 es muy inteligente y perspicaz. Xiao Zishan le enseñó algunos métodos de contabilidad y cálculo, y él los aprendía rápidamente. A veces, Wen Desi le pedía que hiciera algunas tareas pequeñas, y él las realizaba de manera eficiente. Siempre compartía los dulces y refrigerios modernos que le daban con su hermana, lo que demuestra que es una persona honesta, generosa y responsable.
 
-  Al entrar en el estudio, se encontró con que los dos hermanos estaban arrodillados en el suelo. Bei Wei frunció el ceño, como si estuviera a punto de enojarse, y Wen Desi, consciente de que no le gustaban estas situaciones, lo detuvo rápidamente.
+Al entrar en el estudio, se encontró con que los dos hermanos estaban arrodillados en el suelo. Bei Wei frunció el ceño, como si estuviera a punto de enojarse, y Wen Desi, consciente de que no le gustaban estas situaciones, lo detuvo rápidamente.
 
 "Levántese. ¿Para qué está arrodillado aquí sin razón? ¿Cree que somos los señores de la ciudad?", dijo Wen Desi con una leve sonrisa, levantando la mano.
 
@@ -69,7 +69,7 @@ Claro, estas palabras fueron dichas por su sobrino, y sin duda contienen cierta 
 
 "Yo decía que papá lo invitó a tomar algo, y él vendría por supuesto."
 
-  Tiene una inteligencia muy aguda, y comprende las cosas sin necesidad de que se le diga que debe mantener un secreto. Sin embargo, este niño es tan inteligente que, si no se le controla adecuadamente, podría convertirse en un problema. Xiao Zishan siempre ha tenido ideas bastante pesimistas.
+Tiene una inteligencia muy aguda, y comprende las cosas sin necesidad de que se le diga que debe mantener un secreto. Sin embargo, este niño es tan inteligente que, si no se le controla adecuadamente, podría convertirse en un problema. Xiao Zishan siempre ha tenido ideas bastante pesimistas.
 
 No mucho después, llegó Gao Chang. Con la presentación de Gao Di, se acercó y realizó una reverencia. Observó que, aunque no era alto, tenía una constitución bastante robusta y sus movimientos eran bastante ágiles.
 
@@ -149,4 +149,4 @@ Tres jóvenes amantes de la vida en casa en diferentes ciudades se vieron sorpre
 
 "Probablemente sean aquellos que sienten envidia de él", pensó Xiao Zishan. Recordó las palabras que Gao Ju había dicho cuando les regaló las casas: "Últimamente, estos productos inusuales que vendo han atraído mucha atención". Estos deben ser las personas que "prestan atención".
 
-"La situación, en cambio, se volvía cada vez más complicada. Al recordar la apariencia nerviosa de Gao Ju hoy, sus pensamientos estaban un poco tensos."
+La situación, en cambio, se volvía cada vez más complicada. Al recordar la apariencia nerviosa de Gao Ju hoy, sus pensamientos estaban un poco tensos.

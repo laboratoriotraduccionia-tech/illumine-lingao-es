@@ -27,7 +27,7 @@ El resultado final de este debate fue la adquisición de "Dengyingzhou". La facc
 "Den Yingzhou" fue un barco utilizado durante un tiempo, pero no eliminó las diferencias fundamentales entre las dos facciones. El grupo que abogaba por la construcción naval creía que, una vez que se completaba el comercio inicial con un barco pequeño y se aumentaba la capacidad de producción de la industria, se podía comenzar a construir barcos propios. "Den Yingzhou" era solo una solución temporal. El grupo que abogaba por la compra de barcos, por otro lado, consideraba que invertir recursos industriales en la construcción naval a corto plazo era un "debuchangshi" (una pérdida mayor de lo que se gana), y que no solo era necesario seguir comprando barcos, sino también comprar más.
 
 Xiao Zishan todavía se siente un poco preocupado por cómo resolver las contradicciones entre los dos grupos. Personalmente, él cree que ambos grupos tienen razón, y es importante tanto comprar barcos como construir barcos. Sin embargo, ¿cómo puede explicar esto a ellos?
-  De repente, se le ocurre una idea: "La estación avanzada de Guangzhou podría considerarse como una filial, y los barcos, como bienes de producción, podrían financiarse completamente por la propia empresa".
+De repente, se le ocurre una idea: "La estación avanzada de Guangzhou podría considerarse como una filial, y los barcos, como bienes de producción, podrían financiarse completamente por la propia empresa".
 
 En lugar de presentar la sugerencia de comprar barcos en lugar de construir barcos en el Comité Ejecutivo, lo que seguramente provocaría un segundo gran debate, sería mejor dejar que la avanzada de Guangzhou resolviera el problema por sí misma.
 
@@ -61,7 +61,7 @@ Productos como la sal, el azúcar, los productos de hierro, el jabón y los ciga
 
 "Organizar un evento en el Zǐmínglóu es algo trivial", dijo PEPI, agitando suavemente sus mangas, con un aire de "no dejar ni una nube atrás". "Recopilar información es también algo trivial; lo importante es abrir una nueva era para la moda en Guangzhou".
 
-  ¡Como era de esperar! Esta persona ha convertido la avanzada de Guangzhou en un escenario para sus propias actuaciones.
+¡Como era de esperar! Esta persona ha convertido la avanzada de Guangzhou en un escenario para sus propias actuaciones.
 
 "Entonces, adelante, crea lo que quieras. Nadie te ha prohibido hacerlo", dijo Xia Guo, mostrando su descontento.
 
@@ -74,13 +74,13 @@ Guo Yi dudó por un momento. Esta propuesta, aunque algo inesperada, ciertamente
 
 Xiao Zishan también estuvo de acuerdo con esto, así que los asuntos de Zizhenzhai quedaron así definidos. Guo Piaoyi y Yan Maoda estaban ansiosos, listos para aplicar las mismas estrategias que habían utilizado en el negocio de joyería.
 
-  Inmediatamente después, el telégrafo comenzó a emitir sus característicos sonidos. Esta vez, el mensaje provenía del comité industrial, y se trataba de una solicitud dirigida a Xiao Zishan para que reclutara a algunos artesanos especializados en Guangzhou.
+Inmediatamente después, el telégrafo comenzó a emitir sus característicos sonidos. Esta vez, el mensaje provenía del comité industrial, y se trataba de una solicitud dirigida a Xiao Zishan para que reclutara a algunos artesanos especializados en Guangzhou.
 
 "Albañiles, carpinteros, constructores navales... ¿constructores navales?", Xiao Zishan se sorprendió de que aún tuvieran que ir a la fábrica de construcción naval. "Alfareros, herreros, fabricantes de barriles..."
 
 Existen alrededor de una docena de diferentes tipos de trabajo. Xiao Zishan pensó que estos sí eran necesarios, aunque fueran trabajos muy básicos, ya que dominaban muchas de las habilidades artesanales más fundamentales.
 
-  Este asunto se puede resolver con Sun Keicheng; Xiao Zishan anotó las tareas pendientes en su cuaderno.
+Este asunto se puede resolver con Sun Keicheng; Xiao Zishan anotó las tareas pendientes en su cuaderno.
 
 "La radio ahora es un tesoro", dijo Xiao Zishan con una sonrisa. "Lingao, en cierto sentido, ahora tiene una especie de 'ojo que todo lo ve y oído que todo lo escucha'."
 

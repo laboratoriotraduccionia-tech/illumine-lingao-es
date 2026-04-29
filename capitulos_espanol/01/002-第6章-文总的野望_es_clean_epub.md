@@ -1,7 +1,7 @@
 ## Capítulo 2: Las ambiciones del Jefe Wen
 
 
-  Wen Desi describió en términos generales su propia experiencia de viajar a través del tiempo. El espacio-tiempo diferente al que viajó desde el baño de su casa estaba ubicado en una colina, a orillas de un pequeño río. Por el grado de desarrollo de la tierra, era una zona agrícola bastante próspera. El paisaje y la vegetación debían ser de la región del sur de China. Justo cuando estaba indeciso sobre si arriesgarse a adentrarse y ver si había algún pueblo que explorar, ocurrió algo inesperado:
+Wen Desi describió en términos generales su propia experiencia de viajar a través del tiempo. El espacio-tiempo diferente al que viajó desde el baño de su casa estaba ubicado en una colina, a orillas de un pequeño río. Por el grado de desarrollo de la tierra, era una zona agrícola bastante próspera. El paisaje y la vegetación debían ser de la región del sur de China. Justo cuando estaba indeciso sobre si arriesgarse a adentrarse y ver si había algún pueblo que explorar, ocurrió algo inesperado:
 
 Un grupo de soldados con vestimenta antigua, liderados por un oficial a caballo, condujo a más de diez personas que parecían campesinos hasta la orilla del río, donde comenzaron una masacre.
 
@@ -25,12 +25,12 @@ Wen Desi abrió su portátil y les mostró las fotografías tomadas en el lugar.
 
 "Creo que debe ser de la época de Tianqi, o a lo sumo, principios del reinado de Chongzhen. Las monedas "Chongzhen Tongbao" se acuñaron en gran cantidad en diversas regiones y su circulación fue muy amplia, por lo que es improbable que solo existieran monedas de la época de Tianqi."
 
-  Una vez que hemos determinado la época, ¿qué planeamos hacer exactamente?
-  Un agujero de gusano que conduce a otra época, tiene un significado trascendental para la comunidad científica, pero las tres personas en el baño claramente no era físicos y no tenían posibilidades de ganar un Premio Nobel. Si esto se consideraba una noticia importante, ninguno de ellos es un profesional de los medios; como máximo, podrían ser considerados como personas involucradas en la noticia. Por supuesto, como descubridor, Wen Desi seguramente será mencionado brevemente en las noticias. Además, estas personas son bastante propensas a teorías de conspiración. Dada la posibilidad de que este evento pueda tener consecuencias enormes, es muy probable que la existencia del agujero de gusano sea completamente ocultada, al igual que los estadounidenses siempre han sospechado de la existencia de una "Zona 51". En ese caso, sus perspectivas serían bastante sombrías.
+Una vez que hemos determinado la época, ¿qué planeamos hacer exactamente?
+Un agujero de gusano que conduce a otra época, tiene un significado trascendental para la comunidad científica, pero las tres personas en el baño claramente no era físicos y no tenían posibilidades de ganar un Premio Nobel. Si esto se consideraba una noticia importante, ninguno de ellos es un profesional de los medios; como máximo, podrían ser considerados como personas involucradas en la noticia. Por supuesto, como descubridor, Wen Desi seguramente será mencionado brevemente en las noticias. Además, estas personas son bastante propensas a teorías de conspiración. Dada la posibilidad de que este evento pueda tener consecuencias enormes, es muy probable que la existencia del agujero de gusano sea completamente ocultada, al igual que los estadounidenses siempre han sospechado de la existencia de una "Zona 51". En ese caso, sus perspectivas serían bastante sombrías.
 
 Además de Wen Desi, que puede considerarse el propietario del agujero de gusano (ya que la propiedad de los objetos sin dueño pertenece a quien los descubre), los otros dos sabían muy bien que esta era una oportunidad. Si Wen Desi realmente quisiera ganar algún premio de física o llevar a cabo su "viaje temporal discreto de ida y vuelta", de ninguna manera publicaría ese mensaje.
 
-  ¿Qué tan grande es esta oportunidad? Como dijo el Jefe Wen, es tan grande que podría abarcar un mundo entero, otro plano de existencia, el siglo XVII.
+¿Qué tan grande es esta oportunidad? Como dijo el Jefe Wen, es tan grande que podría abarcar un mundo entero, otro plano de existencia, el siglo XVII.
 
 Al pensar en eso, la respiración se volvió más pesada.
 
@@ -58,7 +58,7 @@ Claro que, en teoría, las personas que participen posteriormente también aport
 
 A través de los viajes temporales bidireccionales, y aprovechando las diferencias de precios entre los dos períodos de tiempo, se puede recaudar fondos. Probablemente, esta es una forma relativamente realista y rápida de ganar dinero.
 
-  Obtener grandes beneficios en la antigüedad utilizando productos modernos es un método infalible que se repite en todas las novelas de viajes en el tiempo. Inmediatamente, todos piensan en objetos como espejos de vidrio, vasos de vidrio, cerillas, relojes, que son considerados "tesoros" especiales para los viajeros temporales. Innumerables viajeros temporales se han enriquecido y han logrado su primer éxito gracias a estos productos, lo que les ha permitido iniciar un camino hacia el poder y la dominación.
+Obtener grandes beneficios en la antigüedad utilizando productos modernos es un método infalible que se repite en todas las novelas de viajes en el tiempo. Inmediatamente, todos piensan en objetos como espejos de vidrio, vasos de vidrio, cerillas, relojes, que son considerados "tesoros" especiales para los viajeros temporales. Innumerables viajeros temporales se han enriquecido y han logrado su primer éxito gracias a estos productos, lo que les ha permitido iniciar un camino hacia el poder y la dominación.
 
 Xiao Zishan aportó los numerosos artículos promocionales y obsequios que había acumulado a lo largo de los años debido a su afán por ofertas: un estuche de plástico con espejo, cubiertos de melamina, un pequeño cuchillo de frutas, un delantal de cocina de plástico, un conjunto de gorro, bufanda y guantes de acrílico, una taza de vidrio, un recipiente para comida de plástico, toallas... En total, unas tres o cuatro cajas. Estos pequeños productos, fabricados por encargo en Yiwu, con sus logotipos corporativos poco atractivos, ahora parecían oro brillante a los ojos de estas personas.
 
@@ -106,7 +106,7 @@ De repente, Xiao Zishan golpeó la mesa y se echó a reír:
 
 "¡Qué tontos somos! ¿Por qué siempre estamos pensando en cómo entrar en Guangzhou? ¿No estamos ya dentro de la ciudad de Guangzhou?"
 
-  Todos se iluminaron. Efectivamente, si el agujero de gusano tiene los mismos puntos de entrada y salida en dos espacios-tiempo, y se viaja a través de él dentro del área de la ciudad de Guangzhou de la dinastía Ming, ¿no se entraría directamente a la ciudad de Guangzhou? En cuanto a cualquier crisis que pueda surgir, simplemente se puede abrir el agujero de gusano y regresar.
+Todos se iluminaron. Efectivamente, si el agujero de gusano tiene los mismos puntos de entrada y salida en dos espacios-tiempo, y se viaja a través de él dentro del área de la ciudad de Guangzhou de la dinastía Ming, ¿no se entraría directamente a la ciudad de Guangzhou? En cuanto a cualquier crisis que pueda surgir, simplemente se puede abrir el agujero de gusano y regresar.
 
 El lugar elegido para el viaje en el tiempo es la calle Haopan, originalmente ubicada en la zona ribereña al sur de la ciudad de Guangzhou. Esta zona ya era un centro comercial importante durante la dinastía Song del Sur, y su prosperidad comercial aumentó aún más durante la dinastía Ming. Durante el reinado de Jiajing, se construyó una nueva ciudad, que incluyó esta zona comercial a orillas del río Perla. De esta manera, los muros de la ciudad sur de Guangzhou se erigieron directamente a orillas del río Perla.
 

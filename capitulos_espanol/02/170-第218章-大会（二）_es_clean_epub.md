@@ -5,7 +5,7 @@ La persona que lo recibió le entregó a Fu Buer una pila de vales de comida y l
 
 Dejando las maletas, el joven criado quería ir a explorar la ciudad, y Fu Bueri también deseaba hacer turismo. Así que cerraron con llave la puerta, ya que cada habitación tiene su propia cerradura; simplemente se cierra la puerta con llave y se dejan las llaves en el mostrador.
 
-  El área de Dongmen Shi se ha duplicado en comparación con el año anterior. Originalmente, el plan establecía que comenzaría en la trinchera fuera de la puerta este de Bairen Cheng y se extendería trescientos metros hacia el oeste. Actualmente, la calle Dongmen ya está terminada según el plan, y la primera calle transversal se ha extendido treinta metros hacia el norte y el sur. Las casas en la calle transversal se construyeron en masa y se alquilan a comerciantes a precios bajos. Debido a su bajo costo, son incluso más populares que la calle principal. Los comerciantes ambulantes continúan instalando puestos en los espacios a ambos lados de la calle, y Dongmen Chuayu no interfiere.
+El área de Dongmen Shi se ha duplicado en comparación con el año anterior. Originalmente, el plan establecía que comenzaría en la trinchera fuera de la puerta este de Bairen Cheng y se extendería trescientos metros hacia el oeste. Actualmente, la calle Dongmen ya está terminada según el plan, y la primera calle transversal se ha extendido treinta metros hacia el norte y el sur. Las casas en la calle transversal se construyeron en masa y se alquilan a comerciantes a precios bajos. Debido a su bajo costo, son incluso más populares que la calle principal. Los comerciantes ambulantes continúan instalando puestos en los espacios a ambos lados de la calle, y Dongmen Chuayu no interfiere.
 
 Dos personas caminaban por la calle, encontrando todo nuevo y emocionante. Había mucha gente en la calle, pero el pavimento estaba limpio y ordenado, y a ambos lados había filas de pequeños árboles, que serían agradables cuando crecieran. Fu Bueri había estado en ciudades más grandes, y incluso en la calle principal frente a la administración del condado, había aguas residuales, charcos de barro y montones de basura. En los rincones más escondidos y en los estrechos callejones, había excrementos de personas y animales, y el olor era insoportable.
 
@@ -27,7 +27,7 @@ En ese momento, cuando el vendedor dijo que estaba dispuesto a pagar una multa, 
 
 "¡Laoma!"
 
-  Ma Peng estaba escoltando a un vendedor ambulante hasta la estación de limpieza para que se registrara; esta era la tercera persona que había arrestado en la última semana por orinar o defecar en la calle. Esta semana, el jefe Dugu había iniciado la "Semana de mejora de la higiene ambiental". Al escuchar una llamada, Ma Peng buscó el origen del sonido y vio que era su antiguo empleador. Ma Peng y su antiguo empleador, aunque de diferentes clases sociales, nunca habían recibido ningún favor de Fu Bueri, pero tampoco tenían rencor el uno al otro; después de todo, ambos habían estado juntos en el campo de prisioneros de guerra de "duanmao" (pelusa), y al verse, sintió una cierta alegría de reencontrarse.
+Ma Peng estaba escoltando a un vendedor ambulante hasta la estación de limpieza para que se registrara; esta era la tercera persona que había arrestado en la última semana por orinar o defecar en la calle. Esta semana, el jefe Dugu había iniciado la "Semana de mejora de la higiene ambiental". Al escuchar una llamada, Ma Peng buscó el origen del sonido y vio que era su antiguo empleador. Ma Peng y su antiguo empleador, aunque de diferentes clases sociales, nunca habían recibido ningún favor de Fu Bueri, pero tampoco tenían rencor el uno al otro; después de todo, ambos habían estado juntos en el campo de prisioneros de guerra de "duanmao" (pelusa), y al verse, sintió una cierta alegría de reencontrarse.
 
 "¡Fú Dongjia!"
 
@@ -79,7 +79,7 @@ Fú Bù'èr ahora sentía curiosidad por todo, así que siguió a Mǎ Péng hast
 
 "Fu Buerui sabía quién era Lin Quanfu: durante estos últimos meses, este hombre había recorrido pueblos y casas, comprando pollos, patos y cerdos vivos para "Duǎn Máo", y también había venido a la aldea de Meiyang. Al principio, Fu Buerui pensó que este hombre era un temerario por unirse abiertamente a "Duǎn Máo", pero no esperaba que hubiera amasado tanta riqueza. Sintió un poco de envidia."
 
-  Al avanzar, se veía otra fachada con cinco compartimentos, y había mucha gente entrando y saliendo por la puerta. "Esto es una cooperativa de mujeres, fundada por los familiares de los líderes."
+Al avanzar, se veía otra fachada con cinco compartimentos, y había mucha gente entrando y saliendo por la puerta. "Esto es una cooperativa de mujeres, fundada por los familiares de los líderes."
 
 "¿La señorita Duanduo ha abierto una tienda?", se sorprendió Fu Buer.
 

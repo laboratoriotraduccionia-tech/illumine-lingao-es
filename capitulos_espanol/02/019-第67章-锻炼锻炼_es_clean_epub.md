@@ -1,6 +1,6 @@
 ## Capítulo 63: Un poco de ejercicio
 
-  Guo Yi recibió una vacuna contra el tétanos en la enfermería y le cosieron algunas puntadas en la cabeza. El "hipopótamo" (un personaje) inicialmente quería administrarle una vía intravenosa con antibióticos para prevenir la inflamación, pero pensó que los antibióticos actuales tienen limitaciones, y como las bacterias de la dinastía Ming no tienen resistencia a los antibióticos, se conformó con darle algunas pastillas. Guo Yi salió a tomar aire y vio a Xue Ziliang sentado sobre una piedra fuera de la tienda de la enfermería, con la cabeza gacha y fumando. Este hombre acababa de ser expulsado del muelle; Salina fue trasladada a la enfermería a bordo del barco, y su condición es más grave. Xue Ziliang también quería ir, pero fue rechazado. No importaba cuánto saltara y gritara en el muelle, Ye Mengyan, que estaba de guardia, no le permitía subir al bote de transporte.
+Guo Yi recibió una vacuna contra el tétanos en la enfermería y le cosieron algunas puntadas en la cabeza. El "hipopótamo" (un personaje) inicialmente quería administrarle una vía intravenosa con antibióticos para prevenir la inflamación, pero pensó que los antibióticos actuales tienen limitaciones, y como las bacterias de la dinastía Ming no tienen resistencia a los antibióticos, se conformó con darle algunas pastillas. Guo Yi salió a tomar aire y vio a Xue Ziliang sentado sobre una piedra fuera de la tienda de la enfermería, con la cabeza gacha y fumando. Este hombre acababa de ser expulsado del muelle; Salina fue trasladada a la enfermería a bordo del barco, y su condición es más grave. Xue Ziliang también quería ir, pero fue rechazado. No importaba cuánto saltara y gritara en el muelle, Ye Mengyan, que estaba de guardia, no le permitía subir al bote de transporte.
 
 "Soy su colega y tengo derecho a estar informado. ¡Protesto!"
 
@@ -68,7 +68,7 @@ El vehículo se movía con gran sacudida, Wang Luobin miraba el paisaje por la v
 
 Wang Luobin giró la cabeza para mirar a Li Xiaolu. Ella se había subido el cuello de la camisa, encogida, como si estuviera a punto de dormirse. Él sonrió levemente, sintiendo que esta mujer parecía un poco desanimada. En el trabajo, rara vez hablaba, pero la calidad de su trabajo era muy alta.
 
-<p>Cuando era joven, el coche dio un fuerte golpe y Li Xiaolu se despertó.</p>
+Cuando era joven, el coche dio un fuerte golpe y Li Xiaolu se despertó.
 
 Mei Wan redujo la velocidad del coche, estabilizándolo. Wang Luobin preguntó: "Li Gong, después de tu inspección preliminar, ¿cómo crees que se debe reparar esta carretera?".
 

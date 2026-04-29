@@ -8,7 +8,7 @@ Aquí, el lugar es remoto y poco concurrido, lo que facilita evitar la atención
 
 Primero, se contrató a una empresa de limpieza para que limpiara a fondo toda la base, tanto por dentro como por fuera. Luego, se contactó a una empresa de construcción para que reparara los cristales rotos, los desagües obstruidos y otros daños. Dado que este lugar aún funciona como una base de reserva para el departamento militar, el equipo es bastante completo, por lo que, después de la limpieza, se pueden agregar algunos elementos adicionales para que sea habitable de inmediato.
 
-  La empresa de viajeros temporales se trasladó a este lugar en una fecha determinada, y la oficina de Guangzhou, mantenida por Wen Desi, se conservó. Después de todo, la dirección registrada de la empresa se encontraba allí.
+La empresa de viajeros temporales se trasladó a este lugar en una fecha determinada, y la oficina de Guangzhou, mantenida por Wen Desi, se conservó. Después de todo, la dirección registrada de la empresa se encontraba allí.
 
 Tras la creación de la base, el primer grupo de personal clave comenzó a llegar gradualmente. Estas personas fueron seleccionadas individualmente por Wen Desi, quien las había conocido y evaluado durante un largo período de tiempo entre todos los que se habían inscrito. Básicamente, eran expertos en diversas áreas.
 
@@ -118,6 +118,6 @@ Sin embargo, para evitar sospechas, y a propuesta de Xiao Zishan, se creó dentr
 
 Tras finalizar la formación de los grupos, inmediatamente se escuchó un alboroto en la sala de reuniones, con el sonido de sillas arrastrándose y personas moviéndose para ocupar sus asientos. Nadie propuso nada, pero cada grupo se organizó y tomó asiento, y los nuevos líderes de grupo, con su mirada atenta, ya mostraban una clara actitud de liderazgo.
 
-  En contraste, el personal del departamento de administración estaba compuesto principalmente por mujeres. Los primeros en llegar fueron técnicos especializados, por lo que todos los que estaban bajo la bandera del departamento de administración eran novias y esposas de esos técnicos, además de una señora, que era la madre de una técnica. Es realmente triste pensar en los sentimientos de los padres en todo el mundo...
+En contraste, el personal del departamento de administración estaba compuesto principalmente por mujeres. Los primeros en llegar fueron técnicos especializados, por lo que todos los que estaban bajo la bandera del departamento de administración eran novias y esposas de esos técnicos, además de una señora, que era la madre de una técnica. Es realmente triste pensar en los sentimientos de los padres en todo el mundo...
 
 Xiao Zishan comenzó a tener dolores de cabeza y se preguntó cómo interactuar con las mujeres soldado. Lo que era aún más problemático era que estas mujeres eran "esposas de otros". Él se recordó a sí mismo que debía tener mucho cuidado para evitar cualquier malentendido.

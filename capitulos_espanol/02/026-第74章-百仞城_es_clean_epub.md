@@ -1,13 +1,13 @@
 ## Capítulo 70: Ciudad Bairen
 
 
-  Durante los días siguientes, Fu Youdi completó rápidamente la transformación de un campesino honesto a un pequeño matón. Desde su perspectiva de campesino, era algo natural y justificado obtener una parte de las ganancias.
+Durante los días siguientes, Fu Youdi completó rápidamente la transformación de un campesino honesto a un pequeño matón. Desde su perspectiva de campesino, era algo natural y justificado obtener una parte de las ganancias.
 
 Al principio, simplemente se aseguraba de tomar más comida seca y carne cuando servían. Luego, le asignaron la tarea de distribuir el trabajo, y Wú Dé solo les decía a los demás cuánta tarea debían hacer y cómo, sin involucrarse más. Así, él distribuía el trabajo entre las otras cuatro personas, y él mismo hacía solo un poco, aparentando trabajar. Al principio, algunas personas no estaban contentas y trabajaban lentamente, pero Fú Yóudi no se atrevía a intervenir. Sin embargo, el poder de la distribución de la comida se hizo evidente: aquellos que no querían trabajar, Fú Yóudi les servía la sopa de la comida. Wang Tian, al ser como él, un nativo de la zona, se llevaba bien con él y era tratado con preferencia, hacía menos trabajo y comía más. Las otras tres personas se convirtieron en víctimas, trabajando mucho y comiendo poco, lo que provocó un pequeño conflicto durante una cena. Lín Xīng lideró la rebelión y golpeó a Fú Yóudi, llenándole la boca de barro. Wú Dé no se involucró en la disputa, sino que azotó a cada uno de los participantes con cincuenta latigazos, y a Lín Xīng, que fue el primero en atacar, con cien.
 
 Sin duda, en ese momento, mientras los cinco prisioneros sufrían intensamente, el odio entre ellos también ardía con fuerza. Fu Youdi se mostró completamente hostil y comenzó a gritarle a Lin Xing, y se volvió imprudente al racionar la comida. Las contradicciones se profundizaban: según la observación de Wu De, los cinco hombres se dividieron en tres facciones: Fu Youdi intentaba atraer a Wang Tian, Lin Xing intentaba rebelarse, y había dos personas que intentaban mantenerse neutrales. Wu De a veces creaba deliberadamente contradicciones entre ellos, a veces señalando la falta de eficiencia en el trabajo, y otras veces alegando que el trabajo de limpieza no se estaba realizando adecuadamente, reduciendo los estándares de comida. Cuando los errores de una persona causaban que todos tuvieran que pasar hambre, las acusaciones mutuas intensificaban aún más sus conflictos.
 
-  Lin Xing, que era más inteligente y audaz, reunió valor y se quejó directamente a él sobre el problema de Fu Youdi, aunque su mandarín era entrecortado y a veces no lograba expresar lo que quería. Entonces, Wu De aprovechó la oportunidad para reprender a Fu Youdi, quien estaba empezando a engordar, para que entendiera sus límites; y también mostró, intencionalmente o no, su apoyo a Lin Xing. Los prisioneros, que sufrían enormemente por la explotación de Fu Youdi, estaban inmensamente agradecidos a Wu De, y también se dieron cuenta de que fue Lin Xing quien dio la información. Como resultado, incluso las personas más perezosas comenzaron a estudiar mandarín con entusiasmo.
+Lin Xing, que era más inteligente y audaz, reunió valor y se quejó directamente a él sobre el problema de Fu Youdi, aunque su mandarín era entrecortado y a veces no lograba expresar lo que quería. Entonces, Wu De aprovechó la oportunidad para reprender a Fu Youdi, quien estaba empezando a engordar, para que entendiera sus límites; y también mostró, intencionalmente o no, su apoyo a Lin Xing. Los prisioneros, que sufrían enormemente por la explotación de Fu Youdi, estaban inmensamente agradecidos a Wu De, y también se dieron cuenta de que fue Lin Xing quien dio la información. Como resultado, incluso las personas más perezosas comenzaron a estudiar mandarín con entusiasmo.
 
 "¡Adé, eres increíble! ¿Les diste a todos una droga que los hace obedecer?" Xióng Bùyòu notó que sus estudiantes de repente se habían vuelto más diligentes, y después de cenar por la noche, en lugar de irse a dormir de inmediato, venían a buscarlo para hacerle preguntas y aprender a hablar.
 
@@ -33,7 +33,7 @@ El grupo de arquitectura ha elegido un nombre sencillo y apropiado para esta nue
 
 "Aquí está", dijo Li Xiaolu, extendiendo un mapa de planificación a escala 1:1000. Se habían presentado diversas opiniones y sugerencias, desde el propio grupo de arquitectura hasta los diferentes departamentos del comité ejecutivo, sobre cómo planificar esta llamada "base que hereda la civilización del siglo XXI". Li Xiaolu resumió estas ideas y decidió diseñar el proyecto siguiendo la línea de planificación de las "nuevas zonas rurales socialistas" de finales de la década de 1970. En ese momento, existían planos de planificación específicos diseñados para pueblos de la categoría de "sede de la comuna", que consideraban tanto la administración, la educación y las pequeñas empresas industriales, como los edificios agrícolas, representando un nuevo modelo de asentamiento rural que combinaba lo urbano y lo rural, y que atendía tanto a la industria como a la agricultura.
 
-  La planificación de la ciudad de Bairencheng se extiende a lo largo de ambas orillas del río Wenlan. El centro de la ciudad y la zona de servicios públicos se ubican en la orilla este del río Wenlan, mientras que la zona de industria pesada se encuentra en la orilla oeste.
+La planificación de la ciudad de Bairencheng se extiende a lo largo de ambas orillas del río Wenlan. El centro de la ciudad y la zona de servicios públicos se ubican en la orilla este del río Wenlan, mientras que la zona de industria pesada se encuentra en la orilla oeste.
 
 La zona de energía e hidráulica albergará una central eléctrica y una planta de tratamiento de agua, y en el futuro también se establecerá un pequeño muelle fluvial y un almacén.
 
@@ -49,11 +49,11 @@ El distrito de educación y bienestar se encuentra en la parte este del distrito
 
 El área residencial, ubicada en el noreste del distrito central, ocupa la mayor extensión de terreno. Las viviendas prefabricadas no requieren tanta superficie, pero se reservó un espacio amplio para el futuro, considerando que más de 500 personas formarán sus propias familias, y que estas familias podrían ser numerosas.
 
-  El área de almacenamiento de productos industriales alberga todo tipo de materiales, equipos y maquinaria transportados desde el espacio-tiempo del siglo XXI, incluyendo también armamento. Esta área contará con una valla perimetral separada.
+El área de almacenamiento de productos industriales alberga todo tipo de materiales, equipos y maquinaria transportados desde el espacio-tiempo del siglo XXI, incluyendo también armamento. Esta área contará con una valla perimetral separada.
 
-  La zona agrícola incluye una fábrica de procesamiento de productos agrícolas, un almacén de granos, una estación veterinaria, invernaderos de verduras, corrales de ganado y un biodigestor.
+La zona agrícola incluye una fábrica de procesamiento de productos agrícolas, un almacén de granos, una estación veterinaria, invernaderos de verduras, corrales de ganado y un biodigestor.
 
-  Zona industrial, con diversas fábricas de maquinaria, componentes y equipos.
+Zona industrial, con diversas fábricas de maquinaria, componentes y equipos.
 
 El centro de la ciudad está completamente planificado según zonas funcionales, separando las áreas residenciales de las industriales, y se ha tenido en cuenta al máximo el confort y la seguridad.
 

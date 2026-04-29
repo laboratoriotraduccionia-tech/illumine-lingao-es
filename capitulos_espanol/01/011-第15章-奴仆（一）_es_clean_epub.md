@@ -6,7 +6,7 @@ Gao Ju notó que ellos no querían hablar mucho sobre su barco, y tampoco era co
 
 "Estos miembros de la familia, aunque no son hijos biológicos, son personas que yo, Chang, rescaté hace muchos años en la provincia de Jiangxi, y son personas leales y confiables."
 
-  Al escuchar a su anfitrión hablar de esta manera, toda la familia se inclinó repetidamente.
+Al escuchar a su anfitrión hablar de esta manera, toda la familia se inclinó repetidamente.
 
 "No, no es necesario", dijo Gao Ju, dando una orden. "Estos señores serán sus amos de ahora en adelante, y ustedes deben servirlos con todo su empeño."
 
@@ -44,7 +44,7 @@ El mayordomo aparentaba ser bastante mayor; Xiao Zishan estimó que debía tener
 
 Este sirviente se llamaba originalmente Liu Qing. Era originario de la provincia de Jiangxi, donde cultivaba unas quince hectáreas de tierra. En el año 45 de la dinastía Wanli, debido a una inundación local que arruinó la cosecha, huyó de su hogar. Cuando una familia entera, exhausta, cayó a un lado de la carretera y estaba a punto de morir, el señor Gao, que regresaba de Nanjing con mercancías, pasó por allí. Él acogió a más de una docena de familias afectadas por la catástrofe, convirtiéndolas en sus sirvientes. Este hombre tuvo la suerte de ser elegido, y desde entonces sirvió en la casa de los Gao.
 
-  Después de llegar a la casa de Gao, adoptó el apellido de la familia, y así se convirtió en Gao Qing. Su esposa se llamaba Gao Xian. La pareja trabajaba como personal de servicio en el patio exterior de la casa de los Gao, y hace menos de medio mes fueron trasladados aquí para supervisar el patio exterior.
+Después de llegar a la casa de Gao, adoptó el apellido de la familia, y así se convirtió en Gao Qing. Su esposa se llamaba Gao Xian. La pareja trabajaba como personal de servicio en el patio exterior de la casa de los Gao, y hace menos de medio mes fueron trasladados aquí para supervisar el patio exterior.
 
 En cuanto a su edad, en realidad no tenía más de cuarenta años. No estaba seguro de su edad exacta. Xiao Zishan sabía que era común que los agricultores de antaño no supieran su edad precisa, así que no era sorprendente.
 

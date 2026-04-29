@@ -1,6 +1,6 @@
 ## Capítulo 37: Una despedida temporal de la dinastía Ming
 
-  "Ámsterdam... no, Guangzhou. Volveré", dijo Xiao Zishan mientras estaba en el patio, mirando hacia la distancia, hacia el edificio Lingnan No. 1 en la cima de la colina, una antigua estructura de tejas rojas con un alero prominente, hecha de arenisca roja... bueno, no es una estructura antigua. Involuntariamente, sonrió y dijo: "Es un edificio moderno".
+"Ámsterdam... no, Guangzhou. Volveré", dijo Xiao Zishan mientras estaba en el patio, mirando hacia la distancia, hacia el edificio Lingnan No. 1 en la cima de la colina, una antigua estructura de tejas rojas con un alero prominente, hecha de arenisca roja... bueno, no es una estructura antigua. Involuntariamente, sonrió y dijo: "Es un edificio moderno".
 
 Esta residencia, con sus suelos de baldosas azules, paredes de yeso y tejas, está llena del encanto de la región de Lingnan. Xiao Zishan recuerda que, en el siglo XXI, este lugar debería ser la calle Huifú. Una calle con restaurantes a precios asequibles, donde se encuentran establecimientos con décadas de historia. Él ha comido allí los "changfen" de "Yinji" y el "congee" de "Chengji", entre otros... En esta época, este lugar es bastante desolado. Aunque se pueden ver casas, también hay terrenos abandonados, incluso huertos, y se pueden encontrar bosques, pequeños estanques por todas partes.
 
@@ -22,7 +22,7 @@ El arquitecto conservó la estructura original de la vivienda y solo realizó un
 
 El jardín abandonado se dividió, y una parte cercana a la casa se destinó a la restauración como jardín. El resto del área se planeó para diversas instalaciones modernas, incluyendo oficinas, dormitorios, salas de monitoreo, una sala de telégrafos, un almacén y una bóveda. Por supuesto, estos edificios tendrán la apariencia de una arquitectura tradicional de patio. Las instalaciones y la estructura interna se diseñarán completamente según los principios de la arquitectura moderna, para maximizar el uso del espacio.
 
-  La instalación de diversos sistemas de seguridad y equipos de comunicación en la base para los "viajeros temporales" implica problemas de consumo eléctrico. El uso de energía eólica en la ciudad es obviamente inviable, no solo por la limitación del viento, sino también porque esa estructura alta y grande sería demasiado llamativa. La eficiencia de la energía solar también es demasiado baja. Aunque el comité ejecutivo aún no ha encontrado un método seguro y confiable para transportar los generadores a la base de Guangzhou, se está preparando para construir una sala de generadores subterránea con aislamiento acústico, para estar preparados para cualquier eventualidad.
+La instalación de diversos sistemas de seguridad y equipos de comunicación en la base para los "viajeros temporales" implica problemas de consumo eléctrico. El uso de energía eólica en la ciudad es obviamente inviable, no solo por la limitación del viento, sino también porque esa estructura alta y grande sería demasiado llamativa. La eficiencia de la energía solar también es demasiado baja. Aunque el comité ejecutivo aún no ha encontrado un método seguro y confiable para transportar los generadores a la base de Guangzhou, se está preparando para construir una sala de generadores subterránea con aislamiento acústico, para estar preparados para cualquier eventualidad.
 
 Dentro del jardín y de la casa hay pozos de agua, que tras una revisión, parecen ser en general aptos. Se recomienda que trabajadores locales realicen una excavación más profunda para asegurar su uso como agua potable. Para el consumo humano, el agua del pozo deberá ser sometida a un proceso de purificación.
 
@@ -72,7 +72,7 @@ Considerando que, durante un largo período después del viaje en el tiempo, los
 
 "No vamos a decir nada que pueda desanimar a nadie. Vamos a encargarnos de todo lo que hay que hacer aquí", dijo Wen Desi.
 
-  De vuelta en la casa recién arreglada, Sun Chang, con un libro de cuentas en la mano, esperaba adentro. Ahora, parecía que ya ocupaba un puesto de responsabilidad. Confiar una empresa tan grande a alguien que conoce desde hace menos de tres meses es algo que nadie haría en la actualidad, pero en este momento y lugar, los viajeros temporales no tienen otra opción, solo pueden confiar.
+De vuelta en la casa recién arreglada, Sun Chang, con un libro de cuentas en la mano, esperaba adentro. Ahora, parecía que ya ocupaba un puesto de responsabilidad. Confiar una empresa tan grande a alguien que conoce desde hace menos de tres meses es algo que nadie haría en la actualidad, pero en este momento y lugar, los viajeros temporales no tienen otra opción, solo pueden confiar.
 
 "Sun Chang, esta vez hemos regresado a Australia. La próxima vez que vengamos, probablemente será el año que viene. Cuida bien la casa, no causes problemas. Si tienes algún problema, consulta con Sun Zhang. Si te encuentras en una situación difícil, también puedes buscar consejo con el señor Gao Ju. Ya le he hablado de ti, y él seguro te atenderá."
 

@@ -19,9 +19,9 @@ Actualmente, los "viajeros temporales" dividen a los trabajadores nativos que es
 
 Esclavos. No tienen libertad personal, son forzados a trabajar, se les proporciona ropa y alimentos, y no reciben remuneración. Esto incluye a los prisioneros capturados, y a aquellos que no han sido evaluados y "reeducados".
 
-  Trabajadores: Se respeta la libertad personal, y se asignan tareas laborales según las necesidades de los viajeros temporales. La comida, el alojamiento y, actualmente, la ropa son gratuitos. Los viajeros temporales reciben una compensación por su trabajo.
+Trabajadores: Se respeta la libertad personal, y se asignan tareas laborales según las necesidades de los viajeros temporales. La comida, el alojamiento y, actualmente, la ropa son gratuitos. Los viajeros temporales reciben una compensación por su trabajo.
 
-  Trabajadores: Son básicamente lo mismo que los obreros, pero reciben un salario un 20% más alto.
+Trabajadores: Son básicamente lo mismo que los obreros, pero reciben un salario un 20% más alto.
 
 Estos tres niveles pueden ser fluidos: los esclavos pueden ser liberados y convertirse en trabajadores, y los trabajadores que se esfuerzan pueden ascender a empleados. La movilidad social es necesaria para la estabilidad social, al menos entre los gobernados.
 
@@ -57,7 +57,7 @@ Las viviendas tienen una estructura de ladrillo y hormigón. Los suelos de los p
 
 "Dado que nuestro sistema de propiedad de la tierra aún no tiene una definición formal, por ahora, esta casa solo tiene el título de propiedad. Una vez que se defina la política de tierras, se emitirán los títulos de propiedad correspondientes."
 
-  El tema de la propiedad de la tierra genera diferentes opiniones entre los viajeros temporales. La mayoría desea establecer la propiedad privada de la tierra, mientras que algunos insisten en la propiedad estatal de la tierra. Otros creen que se puede adoptar la política de propiedad de la tierra de la época original, otorgando derechos de uso de la tierra en lugar de la propiedad plena, pero sin esa extraña limitación de años.
+El tema de la propiedad de la tierra genera diferentes opiniones entre los viajeros temporales. La mayoría desea establecer la propiedad privada de la tierra, mientras que algunos insisten en la propiedad estatal de la tierra. Otros creen que se puede adoptar la política de propiedad de la tierra de la época original, otorgando derechos de uso de la tierra en lugar de la propiedad plena, pero sin esa extraña limitación de años.
 
 El comité ejecutivo no planeaba ofrecer viviendas subsidiadas a los trabajadores; las cosas que son gratis tienden a ser menos valoradas. Cada unidad tiene un precio de sesenta tael de plata, y cualquiera puede comprarla, con opción a pagar a plazos. Los empleados reciben un descuento del nueve por ciento.
 
@@ -73,7 +73,7 @@ No es necesario decir que los trabajadores que tienen un plan de pagos a plazos 
 
 Aquí está la traducción del fragmento de Markdown:
 
-  Él propuso las siguientes condiciones básicas para que los empleados pudieran presentar su solicitud:
+Él propuso las siguientes condiciones básicas para que los empleados pudieran presentar su solicitud:
 
 1. Personas que están dispuestas a servir a los viajeros temporales y que poseen habilidades especializadas reconocidas por estos viajeros. Por ejemplo, artesanos, intelectuales, militares, etc.
 
@@ -83,12 +83,12 @@ Aquí está la traducción del fragmento de Markdown:
 
 "Pero ahora, simplemente usar categorías como 'empleados' y 'trabajadores' para distinguir a las personas ya no es del todo adecuado para nosotros", dijo Wu De.
 
-  Independientemente de las diferencias de trato que pudieran existir entre estas personas, el modelo de trabajo es el mismo: trabajo colectivo. Aparte de una minoría de artesanos y profesionales que dominan técnicas especializadas, la mayoría de las personas son asignadas diariamente a diferentes tareas según las necesidades de mano de obra propuestas por cada grupo especializado, y estas asignaciones son gestionadas por 邬德.
+Independientemente de las diferencias de trato que pudieran existir entre estas personas, el modelo de trabajo es el mismo: trabajo colectivo. Aparte de una minoría de artesanos y profesionales que dominan técnicas especializadas, la mayoría de las personas son asignadas diariamente a diferentes tareas según las necesidades de mano de obra propuestas por cada grupo especializado, y estas asignaciones son gestionadas por 邬德.
 
 Este sistema, en la situación actual de numerosos proyectos de infraestructura, garantiza que haya suficiente mano de obra disponible para cada proyecto prioritario, y también fortalece el control sobre los trabajadores.
 
 Con la inminente puesta en marcha de muchas empresas, será necesario contar con trabajadores industriales especializados. Estos trabajadores son profesionales, y si se continúa con el sistema actual de asignación diaria de tareas, esto dificultará la organización de la producción por parte de las empresas y hará que sea difícil formar equipos especializados.
 
-  El segundo equipo de producción, que se había trasladado desde Goujiazhuan, constaba de muchas familias, lo cual era muy diferente del primer equipo de producción, que en su mayoría estaba compuesto por hombres solteros. Si los hombres eran considerados trabajadores, ¿cuál era el estatus de las mujeres y los niños? Actualmente, muchas mujeres y niños también participaban en el trabajo, y era necesario determinar cómo se calcularían sus salarios. Para aquellas mujeres que tenían muchos niños pequeños, simplemente recurrir a guarderías no era una solución realista, y además, era necesario considerar los recursos y los gastos asociados con las guarderías. ... Una serie de problemas recordaron al Comité Ejecutivo que necesitaban un sistema de bienestar social para administrar a sus primeros súbditos.
+El segundo equipo de producción, que se había trasladado desde Goujiazhuan, constaba de muchas familias, lo cual era muy diferente del primer equipo de producción, que en su mayoría estaba compuesto por hombres solteros. Si los hombres eran considerados trabajadores, ¿cuál era el estatus de las mujeres y los niños? Actualmente, muchas mujeres y niños también participaban en el trabajo, y era necesario determinar cómo se calcularían sus salarios. Para aquellas mujeres que tenían muchos niños pequeños, simplemente recurrir a guarderías no era una solución realista, y además, era necesario considerar los recursos y los gastos asociados con las guarderías. ... Una serie de problemas recordaron al Comité Ejecutivo que necesitaban un sistema de bienestar social para administrar a sus primeros súbditos.
 
-  Los viajeros temporales tienen muchas opciones al elegir un sistema administrativo. Por ejemplo, los pueblos de Yanzhang y Damei utilizan un modelo de autogobierno de los aldeanos, con un comité de aldea que se encarga de la gestión. Este método tiene modelos establecidos y produce buenos resultados. Sin embargo, en este tipo de sistema, las fuerzas establecidas dentro del pueblo son demasiado poderosas, y los puestos principales tienden a concentrarse en manos de unos pocos. Un ejemplo típico es el pueblo de Yanzhang, donde la administración del pueblo está casi completamente controlada por los hermanos Tan. Aunque los hermanos Tan son personas que han sido formadas y, por el momento, son leales a los viajeros temporales, no es lo mismo que tener un control directo.
+Los viajeros temporales tienen muchas opciones al elegir un sistema administrativo. Por ejemplo, los pueblos de Yanzhang y Damei utilizan un modelo de autogobierno de los aldeanos, con un comité de aldea que se encarga de la gestión. Este método tiene modelos establecidos y produce buenos resultados. Sin embargo, en este tipo de sistema, las fuerzas establecidas dentro del pueblo son demasiado poderosas, y los puestos principales tienden a concentrarse en manos de unos pocos. Un ejemplo típico es el pueblo de Yanzhang, donde la administración del pueblo está casi completamente controlada por los hermanos Tan. Aunque los hermanos Tan son personas que han sido formadas y, por el momento, son leales a los viajeros temporales, no es lo mismo que tener un control directo.

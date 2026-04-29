@@ -1,6 +1,6 @@
 ## Capítulo 38: Un invitado inesperado (segunda parte)
 
-  Un año después.
+Un año después.
 
 En el sur de China, en una gran ciudad.
 
@@ -10,7 +10,7 @@ Guo Yi entró a la oficina. Era un funcionario público de la República, pero h
 
 "Aquellos que tienen éxito, naturalmente, se jactan constantemente y desean que todos sepan de sus logros. Aquellos que no tienen éxito, simplemente desaparecen."
 
-  Él, con su forma de ser tan peculiar, en realidad se sentía bastante mal...
+Él, con su forma de ser tan peculiar, en realidad se sentía bastante mal...
 
 "Aquellos que tienen éxito los desprecien, criticándolos por vivir cómodamente y sin ambición; aquellos que no tienen éxito, siempre sienten que ellos simplemente se dedican a tomar té todo el día..."
 
@@ -18,17 +18,17 @@ Sobre la mesa había algunos documentos, todos ellos materiales sobre las últim
 
 Después de revisar varios documentos rutinarios que no ofrecían nada interesante, encontré uno marcado con la etiqueta "pendiente". Era un informe sobre una situación en una ciudad costera de la provincia de Guangdong. En una base de entrenamiento marítimo para la milicia, abandonada en esa zona, se había congregado un grupo de personas extrañas durante casi un año. Todos los días, realizaban actividades de entrenamiento militar, como formaciones, carreras y otros ejercicios militares. Por las noches, también se reunían hasta tarde, y se escuchaban gritos. Algunas personas sospechaban que se trataba de una empresa de venta directa y denunciaron la situación a la administración de comercio. Un equipo de inspección de la administración de comercio realizó una visita, pero no encontró evidencia de actividades de venta directa. La estación de policía local también realizó una visita, pero no descubrió ninguna actividad ilegal o indebida. El responsable explicó que la empresa estaba llevando a cabo un programa de capacitación para sus empleados. Se verificó la licencia comercial y, efectivamente, existía una empresa con ese nombre, establecida hace más de un año. La base de entrenamiento para la milicia era alquilada por la empresa al departamento militar local.
 
-  Sin embargo, esta situación seguía resultando sospechosa. Por lo tanto, este informe llegó de forma indirecta al escritorio del líder de Guo Yi. El líder indicó: "Si tiene tiempo", dijo el líder, "investigue. Vea si hay algún problema".
+Sin embargo, esta situación seguía resultando sospechosa. Por lo tanto, este informe llegó de forma indirecta al escritorio del líder de Guo Yi. El líder indicó: "Si tiene tiempo", dijo el líder, "investigue. Vea si hay algún problema".
 
 El trabajo de inteligencia, así como el trabajo de estabilización, implican que sentarse en una oficina y revisar documentos sea siempre la principal tarea.
 
-  Uno de los personajes mencionados en el documento se llama Wen Desi. Según la información de registro, él es el representante legal, presidente y gerente general de la empresa.
+Uno de los personajes mencionados en el documento se llama Wen Desi. Según la información de registro, él es el representante legal, presidente y gerente general de la empresa.
 
 Guo Yi nunca había visto el perfil de esa persona. De hecho, Wen Zong no es alguien que pueda tener citas aquí. Sin embargo, dentro de la organización, es conocido por su afición a revisar minuciosamente los documentos y los archivos. Esta afición le ha causado problemas a algunas personas, aunque él mismo no sabe a quiénes han ofendido esos documentos que él revisó. Por lo tanto, a pesar de varias rondas de promociones en su departamento, sigue siendo un empleado de nivel inferior. Además, no se le asignan tareas que puedan generar méritos.
 
-  Según los datos disponibles sobre Wen Desi, se trata de una persona común y corriente, de unos treinta y tantos años, que anteriormente fue ingeniero y gerente en varias empresas, con un buen nivel de ingresos. Le gusta viajar y tiene un gran interés en la historia y la milicia, además de dedicarse a trabajos manuales. Es un aficionado a los deportes al aire libre y a las armas, y se le podría describir como un "entusiasta de la supervivencia", que pasa el día preparándose para un posible invierno nuclear, probablemente con grandes provisiones de alimentos en su casa. Sin embargo, no hay evidencia de que posea o intente poseer armas de ningún tipo, ni siquiera perros. También frecuenta algunos sitios web, donde publica mensajes haciendo preguntas, por ejemplo, sobre qué tipo de munición es más barata o sobre equipos para actividades al aire libre. Su historial es limpio, sin ningún registro negativo, e incluso no se encuentran infracciones de tráfico.
+Según los datos disponibles sobre Wen Desi, se trata de una persona común y corriente, de unos treinta y tantos años, que anteriormente fue ingeniero y gerente en varias empresas, con un buen nivel de ingresos. Le gusta viajar y tiene un gran interés en la historia y la milicia, además de dedicarse a trabajos manuales. Es un aficionado a los deportes al aire libre y a las armas, y se le podría describir como un "entusiasta de la supervivencia", que pasa el día preparándose para un posible invierno nuclear, probablemente con grandes provisiones de alimentos en su casa. Sin embargo, no hay evidencia de que posea o intente poseer armas de ningún tipo, ni siquiera perros. También frecuenta algunos sitios web, donde publica mensajes haciendo preguntas, por ejemplo, sobre qué tipo de munición es más barata o sobre equipos para actividades al aire libre. Su historial es limpio, sin ningún registro negativo, e incluso no se encuentran infracciones de tráfico.
 
-  La empresa que él poseía fue registrada hace medio año, con un capital registrado de un millón. Guo Yi, por supuesto, sabía que el capital registrado era solo una formalidad. Sin embargo, basándose en los impuestos sobre la renta que Wen Zong pagaba cuando trabajaba, era fácil obtener un millón de capital, como se deduce de los registros bancarios de Wen Desi: hace medio año, retiró varios depósitos bancarios en varias ocasiones, por un total de más de ochenta mil. Después de eso, ya no había depósitos fijos tan grandes en su cuenta personal.
+La empresa que él poseía fue registrada hace medio año, con un capital registrado de un millón. Guo Yi, por supuesto, sabía que el capital registrado era solo una formalidad. Sin embargo, basándose en los impuestos sobre la renta que Wen Zong pagaba cuando trabajaba, era fácil obtener un millón de capital, como se deduce de los registros bancarios de Wen Desi: hace medio año, retiró varios depósitos bancarios en varias ocasiones, por un total de más de ochenta mil. Después de eso, ya no había depósitos fijos tan grandes en su cuenta personal.
 
 La actividad de la cuenta de la empresa, tanto en ingresos como en egresos, no revela nada significativo; se trata de transacciones comerciales normales de compra y venta. Los gastos registrados incluyen: salarios, gastos de electricidad, agua y oficina. La cuenta tiene un saldo en efectivo, pero no muy elevado, que se mantiene en un nivel de alrededor de cien mil unidades.
 
@@ -64,7 +64,7 @@ Aún antes de que pudiera formular otro pensamiento, un joven alto y gordo, con 
 
 "Xiao Zishan", sudando profusamente, dijo: "Jefe, ¿de verdad va a decir eso en público? Hmm... ¿a dónde ha llegado el ejército?"
 
-  Todos los que llegan deben someterse a un corte de pelo, esta regla extraña no se sabe quién la inventó, nosotros no somos la escuela de artes escénicas del norte... probablemente es la obsesión de alguien con el lenguaje oscuro.
+Todos los que llegan deben someterse a un corte de pelo, esta regla extraña no se sabe quién la inventó, nosotros no somos la escuela de artes escénicas del norte... probablemente es la obsesión de alguien con el lenguaje oscuro.
 
 "Asia, Asia", repitió el joven, probablemente aún emocionado, con voz alta. "Soy Meng Xian, Meng Xian".
 
@@ -74,9 +74,9 @@ Aún antes de que pudiera formular otro pensamiento, un joven alto y gordo, con 
 
 "En un momento podré verlos... todavía tengo que recoger a algunas personas..." Xiao Zishan, con el corazón en un puño, miraba a su alrededor, esperando que sus palabras no hubieran llamado la atención.
 
-  Alrededor, la gente se movía apresuradamente, ocupada en sus propios asuntos, y nadie prestaba atención a ellos. Xiao Zishan se calmó un poco; la persona que había estado allí antes había desaparecido. Por alguna razón, sentía una preocupación latente: ¿debería informar a la Ejecutiva sobre esto?
+Alrededor, la gente se movía apresuradamente, ocupada en sus propios asuntos, y nadie prestaba atención a ellos. Xiao Zishan se calmó un poco; la persona que había estado allí antes había desaparecido. Por alguna razón, sentía una preocupación latente: ¿debería informar a la Ejecutiva sobre esto?
 
-  Ese día, Guo Yi los observó desde un rincón durante mucho tiempo. Aunque no podía escuchar lo que decían, entendía que la persona que llevaba la caja de frutas estaba allí para recibirlos. Una persona parecía emocionada, mientras que la otra parecía inquieta y alerta, lo que indicaba que la conversación contenía ciertos secretos. Por el grado de familiaridad con el entorno y el desgaste de la caja, se podía ver que este tipo de actividad de recepción llevaba ocurriendo durante bastante tiempo. Durante ese tiempo, siguió a Meng Xian, quien parecía muy interesado, hasta el estacionamiento y anotó la matrícula de la camioneta.
+Ese día, Guo Yi los observó desde un rincón durante mucho tiempo. Aunque no podía escuchar lo que decían, entendía que la persona que llevaba la caja de frutas estaba allí para recibirlos. Una persona parecía emocionada, mientras que la otra parecía inquieta y alerta, lo que indicaba que la conversación contenía ciertos secretos. Por el grado de familiaridad con el entorno y el desgaste de la caja, se podía ver que este tipo de actividad de recepción llevaba ocurriendo durante bastante tiempo. Durante ese tiempo, siguió a Meng Xian, quien parecía muy interesado, hasta el estacionamiento y anotó la matrícula de la camioneta.
 
 "El autobús chino no se marchó inmediatamente, lo que indicaba que habría más personas que llegarían. Sin embargo, Guo Yi decidió no quedarse allí esperando. Primero, fue a las compañías de telecomunicaciones y telefonía móvil, y obtuvo los registros de llamadas de las empresas. Para su sorpresa, la actividad telefónica de estas empresas era bastante frecuente, con un gran volumen de llamadas entrantes y salientes casi todos los días."
 
@@ -94,4 +94,4 @@ Esta investigación le causó una profunda confusión.
 
 Por la noche, Guo Yijin, exhausto, se acostó en la cama del hotel y rechazó varias llamadas de personas que querían ofrecerle un masaje para aliviar el estrés; su mente estaba completamente confusa. Se quedó dormido profundamente.
 
-  En un sueño, Guo Yi vio a Wen Desi, vestido con una túnica extraña. Un barco enorme, surcando las olas. A lo lejos, una isla verde, con un cielo azul, nubes blancas, mar turquesa y arena plateada...
+En un sueño, Guo Yi vio a Wen Desi, vestido con una túnica extraña. Un barco enorme, surcando las olas. A lo lejos, una isla verde, con un cielo azul, nubes blancas, mar turquesa y arena plateada...

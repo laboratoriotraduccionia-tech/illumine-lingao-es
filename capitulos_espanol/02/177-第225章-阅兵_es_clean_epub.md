@@ -25,7 +25,7 @@ Los pastelitos de nuez de esta pastelería "Yujia" son como los de la mayoría d
 
 De repente, la gente del establecimiento de té salió en masa, pero al ver que ya había mucha gente reunida a ambos lados de la calle, observando lo que sucedía. A lo largo de la línea blanca, había "funcionarios públicos" manteniendo el orden, ahora llamados "escuadrones de investigación", uno de los cuales estaba de espaldas a la calle, con un bastón en la mano, gritando a la gente que no se acercara a la línea.
 
-  Se escuchaba una melodía, que se acercaba gradualmente, una marcha que los ciudadanos de Guangzhou nunca habían oído antes, interpretada con tambores militares y flautas transversas: la "Marcha del Lanzador de Granadas". Los tambores militares resonaban con fuerza y vitalidad, mientras que las flautas transversas producían un sonido melodioso y sereno.
+Se escuchaba una melodía, que se acercaba gradualmente, una marcha que los ciudadanos de Guangzhou nunca habían oído antes, interpretada con tambores militares y flautas transversas: la "Marcha del Lanzador de Granadas". Los tambores militares resonaban con fuerza y vitalidad, mientras que las flautas transversas producían un sonido melodioso y sereno.
 
 Acompañados por el sonido de los tambores, un grupo de abanderados apareció en las calles. Los ciudadanos de Guangzhou observaban con curiosidad las banderas azules, llamadas "Qimingxing", y las banderas rojas con el emblema de "Tiejuan", comentando sobre el significado de los diseños. Cuando los abanderados de la bandera "Huanan Junying" se alzaron, llevando la bandera frente a la puerta de la ciudad de Danan, la curiosidad alcanzó su punto máximo.
 
@@ -35,16 +35,16 @@ Ellos eran solo la avanzada de una aterradora demostración militar, y tras ello
 
 "… ¡Cuidado, han llegado los piratas japoneses!" De repente, se produjo un revuelo en la multitud.
 
-  Los soldados japoneses del "Equipo de la Espada", todos vestidos con abrigos de tela tradicional, con cascos y dos espadas a la cintura, y con fusiles de estilo del Sudeste Asiático sobre el hombro, aunque de baja estatura, irradiaban una atmósfera violenta propia de mercenarios que han luchado durante muchos años. Inmediatamente detrás, venía la "Tropa del Caballo Blanco" coreana, vestida con túnicas blancas y sombreros negros. Cerrando la formación, estaban los ingenieros de combate, con chalecos y camisas de lona gruesa sobre sus uniformes, hachas de ingeniería de mango largo, bolsas de herramientas a la cintura y escopetas de doble cañón al hombro, todos de complexión robusta y fuerte.
+Los soldados japoneses del "Equipo de la Espada", todos vestidos con abrigos de tela tradicional, con cascos y dos espadas a la cintura, y con fusiles de estilo del Sudeste Asiático sobre el hombro, aunque de baja estatura, irradiaban una atmósfera violenta propia de mercenarios que han luchado durante muchos años. Inmediatamente detrás, venía la "Tropa del Caballo Blanco" coreana, vestida con túnicas blancas y sombreros negros. Cerrando la formación, estaban los ingenieros de combate, con chalecos y camisas de lona gruesa sobre sus uniformes, hachas de ingeniería de mango largo, bolsas de herramientas a la cintura y escopetas de doble cañón al hombro, todos de complexión robusta y fuerte.
 
-  Esto dejó a los espectadores atónitos. Estaban acostumbrados a ver a los soldados de la corte con sus uniformes desaliñados y viejos, de colores grises o rojizos, con armaduras oxidadas y armas desordenadas. ¿Dónde habían visto una fuerza militar tan nueva, con uniformes impecables, pasos sincronizados y un espíritu tan vibrante? Involuntariamente, aplaudieron en silencio: no es de extrañar que los australianos fueran invencibles; ¿dónde más se podía encontrar un ejército de esta calidad?
+Esto dejó a los espectadores atónitos. Estaban acostumbrados a ver a los soldados de la corte con sus uniformes desaliñados y viejos, de colores grises o rojizos, con armaduras oxidadas y armas desordenadas. ¿Dónde habían visto una fuerza militar tan nueva, con uniformes impecables, pasos sincronizados y un espíritu tan vibrante? Involuntariamente, aplaudieron en silencio: no es de extrañar que los australianos fueran invencibles; ¿dónde más se podía encontrar un ejército de esta calidad?
  ⃀El sonido de los tambores resonaba mientras la formación avanzaba por la avenida Chengxuan, con un ritmo uniforme que aplastaría cualquier cosa a su paso.
 
-  Los soldados cantaban a coro el "Himno del Lanzador de Granadas", avanzando sin cesar, formando fila tras fila, cada vez más numerosas. Aquellos que observaban la marcha, en silencio, se maravillaban ante la inmensidad, la continuidad y la perfección de esta formación, dejándolos atónitos.
+Los soldados cantaban a coro el "Himno del Lanzador de Granadas", avanzando sin cesar, formando fila tras fila, cada vez más numerosas. Aquellos que observaban la marcha, en silencio, se maravillaban ante la inmensidad, la continuidad y la perfección de esta formación, dejándolos atónitos.
 
-  Lo que más sorprendió a la gente fue la caravana: los ciudadanos de Guangzhou rara vez veían caballos, y mucho menos una cantidad tan grande de ellos en formación.
+Lo que más sorprendió a la gente fue la caravana: los ciudadanos de Guangzhou rara vez veían caballos, y mucho menos una cantidad tan grande de ellos en formación.
 
-  Carros de artillería tirados por seis caballos, cocinas móviles con cuatro caballos, carros de suministros de dos o cuatro ruedas, y carruajes ligeros de dos o cuatro ruedas utilizados por los oficiales... Las ruedas rodaban sobre el pavimento, produciendo un sonido ensordecedor.
+Carros de artillería tirados por seis caballos, cocinas móviles con cuatro caballos, carros de suministros de dos o cuatro ruedas, y carruajes ligeros de dos o cuatro ruedas utilizados por los oficiales... Las ruedas rodaban sobre el pavimento, produciendo un sonido ensordecedor.
 
 La gran mayoría de los vehículos de la extensa caravana estaban allí principalmente para hacer una demostración. Atravesaron la ciudad y, rápidamente, descargaron equipos en el nuevo muelle construido por el Departamento de Coordinación Unificada junto al río, para luego cargarlos en los barcos; en la ruta de avance, los barcos eran el medio de transporte más importante.
 
@@ -62,9 +62,9 @@ La columna de tropas del ejército del sur de China avanzó durante una hora tra
 
 "Creo que nuestra provincia de Guangdong pronto se convertirá en territorio del '澳' Song."
 
-  ……
+……
 
-  El grupo continuó conversando durante casi media hora, y finalmente, todos se dispersaron. El hombre gordo, agitando un abanico de papel, caminó lentamente por varias cuadras y entró en una pequeña tienda que decía "Artículos diversos del norte y del sur". El dependiente lo recibió con entusiasmo. "¡El dueño ha vuelto!"
+El grupo continuó conversando durante casi media hora, y finalmente, todos se dispersaron. El hombre gordo, agitando un abanico de papel, caminó lentamente por varias cuadras y entró en una pequeña tienda que decía "Artículos diversos del norte y del sur". El dependiente lo recibió con entusiasmo. "¡El dueño ha vuelto!"
 
 "Mmm", dijo el hombre gordo, mientras se sentaba en el mostrador y encendía un cigarrillo. "¿Llegaron las cosas de hoy?"
 "Sí, están en el lugar de siempre", respondió.

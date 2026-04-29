@@ -1,11 +1,11 @@
 ## Capítulo 19: Asuntos militares
 
 
-  La reunión duró casi todo el día y terminó al anochecer. Aún quedaban muchos asuntos por resolver, detalles operativos y planes específicos, pero al menos habían logrado establecer una división preliminar de tareas, creando una estructura básica y definiendo la dirección de los preparativos. Todos tenían una idea general de lo que se debía hacer.
+La reunión duró casi todo el día y terminó al anochecer. Aún quedaban muchos asuntos por resolver, detalles operativos y planes específicos, pero al menos habían logrado establecer una división preliminar de tareas, creando una estructura básica y definiendo la dirección de los preparativos. Todos tenían una idea general de lo que se debía hacer.
 
 Incluso así, una sensación de excitación se extendió entre todos. El comité había especificado claramente que, una vez fuera del edificio de oficinas, no se podía hablar de ningún asunto relacionado con los viajeros temporales. Sin embargo, en la práctica, pequeños grupos de personas paseaban por la pista de atletismo, cubierta de maleza, y aún susurraban sobre la reunión y las diferentes opiniones. Entre ellos, algunos individuos con ideas afines aprovechaban la conversación para fortalecer sus lazos, aunque principalmente para expresar sus frustraciones.
 
-  Las razones para el descontento son muy variadas: pueden ser sobre la dirección de desarrollo de una industria, una lista de equipos, o incluso sobre la apariencia de una persona. Sin embargo, cualquier tipo de descontento tiende a fortalecer los lazos entre las personas, y en este mundo, no hay nada que pueda satisfacer a todos. Incluso los pequeños descontentos comienzan a acumularse desde el principio de cualquier proyecto.
+Las razones para el descontento son muy variadas: pueden ser sobre la dirección de desarrollo de una industria, una lista de equipos, o incluso sobre la apariencia de una persona. Sin embargo, cualquier tipo de descontento tiende a fortalecer los lazos entre las personas, y en este mundo, no hay nada que pueda satisfacer a todos. Incluso los pequeños descontentos comienzan a acumularse desde el principio de cualquier proyecto.
 
 El comité ejecutivo, inmerso en el ambiente de "una gran asamblea de victoria, una gran asamblea de unidad, una gran asamblea de éxito", no se percató de esto. En ese momento, los miembros del comité ejecutivo estaban teniendo conversaciones privadas con los miembros clave del departamento de deportes.
 
@@ -13,11 +13,11 @@ Lo que se conoce como "departamento de deportes", aunque actualmente se encarga 
 
 En toda la reunión, el departamento de deportes prácticamente no hizo ninguna declaración. De hecho, Wen Desi, uno de los tres miembros principales del comité ejecutivo, se había puesto en contacto con ellos previamente para informarles de esto. El ámbito de trabajo del departamento de deportes es demasiado delicado y no es apropiado discutirlo públicamente, ni siquiera entre los miembros más importantes de los viajeros temporales.
 
-El actual jefe del departamento de deportes es un gerente de ventas, aunque su puesto no se debe a esta profesión. Antes, fue un oficial en el ejército, graduado de la academia de infantería, donde sirvió como comandante de compañía en unidades de combate y también como oficial de estado mayor en oficinas administrativas. Es la mejor base militar entre los viajeros temporales.
+El actual jefe del departamento de deportes es un gerente de ventas, aunque su puesto no se debe a esta profesión. Antes, fue un oficial en el ejército, graduado de la academia de infantería, donde sirvió como comandante de compañía en unidades de combate y también como oficial de estado mayor en oficinas administrativas. Era la mejor base militar entre los viajeros temporales.
 
-  Él tiene un nombre muy impresionante, que es Xi Yazhou.
+Él tenía un nombre muy impresionante: Xi Yazhou.
 
-Xi Yazhou y sus colegas del departamento de deportes, la mayoría de los cuales son veteranos que se han retirado del ejército, no son muchos, pero la disciplina militar que adquirieron durante su servicio aún es evidente.
+Xi Yazhou y sus colegas del departamento de deportes, la mayoría de los cuales eran veteranos que se han retirado del ejército, no eran muchos, pero la disciplina militar que habían adquirido durante su servicio aún era evidente.
 
 "Wen Zong, este es Bei Wei, anteriormente del batallón de reconocimiento de la Región Militar XX, ahora con un nuevo empleo."
 
@@ -73,13 +73,13 @@ Xiao Zishan se movió inquieto, sintiendo que estaban a punto de abordar temas m
 
 "Tenemos los equipos, tenemos el talento, y los materiales no son difíciles de conseguir. Los productos que podemos fabricar no son inferiores a los de Hualong."
 
-"Wen Desi negó con la cabeza repetidamente: "Esto es demasiado peligroso. Los 'heiqiang' son objetivos prioritarios. Si realmente ocurre algo, en cuestión de días, los policías vendrán a la puerta".
+Wen Desi negó con la cabeza repetidamente: "Esto es demasiado peligroso. Las armas ilegales son objetivos prioritarios. Si realmente ocurre algo, en cuestión de días, los policías vendrán a la puerta".
 
 "¿Y qué hacemos? No tenemos forma de conseguir armas."
 
-"¿Qué tal si intercambiamos perros en el club de tiro por algo de hierro de verdad?", sugirió alguien, con una idea poco convencional.
+"¿Qué tal si sobornamos a alguien en el club de tiro por algo de hierro de verdad?", sugirió alguien, con una idea poco convencional.
 
-"Entonces, sería mejor que fueras directamente al Departamento de Artes Marciales," Xiao Zishan no pudo evitar expresar su fuerte oposición.
+"Entonces, sería mejor que fueras directamente al Ejército," Xiao Zishan no pudo evitar expresar su fuerte oposición.
 
 "Wen Zong, ¿cuántas armas podemos conseguir ahora? Por favor, dame una estimación. Así podré tener una idea clara de la situación."
 
@@ -87,7 +87,7 @@ Wen Desi dudó por un momento. En la situación actual, incluso esconder un perr
 
 "Hay muy pocas cosas." Estos números, Wen Desi nunca los anotaba en cuadernos o libretas, los memorizaba completamente.
 
-Actualmente, se han identificado más de diez armas de caza de diferentes marcas, calibres y modelos. Hay armas de caza de un solo disparo, así como las conocidas "fusil de repetición de cinco disparos" que a menudo aparecen en las noticias, con calibres de 12, 16 y 20. Todas son marcas nacionales de renombre, como "鸽", "鹰", "飞龙" y "Shuanghuan". Son reliquias de los antiguos aficionados a la caza, y se encuentran disponibles todos los accesorios, como cartuchos, fulminantes y cargadores. Sin embargo, la mayoría de las armas son bastante antiguas, algunas incluso con más de treinta años de antigüedad.
+Actualmente, se han identificado más de diez armas de caza de diferentes marcas, calibres y modelos. Hay armas de caza de un solo disparo, así como las conocidas "fusil de repetición de cinco disparos" que a menudo aparecen en las noticias, con calibres de 12, 16 y 20. Todas son marcas nacionales de renombre, como "Pichón", "Águila", "Dragón volador" y "Doble anillo". Son reliquias de los antiguos aficionados a la caza, y se encuentran disponibles todos los accesorios, como cartuchos, fulminantes y cargadores. Sin embargo, la mayoría de las armas son bastante antiguas, algunas incluso con más de treinta años de antigüedad.
 
 Verdaderamente, lo que se podría considerar un fusil son dos rifles deportivos de pequeño calibre de la marca Emei, en buenas condiciones, con todos los accesorios necesarios para competiciones, como miras, y una pequeña cantidad de munición.
 
@@ -103,15 +103,15 @@ También hay varias unidades de cartuchos de marcas "Shanghai" y "Gongzi", entre
 
 "No hay tantas armaduras, solo una simple prenda de vestir."
 
-"Eso es de la dinastía Manchu; mi gran dinastía Ming no puede ser tan humillante..."
+"Eso era la dinastía Manchu; la dinastía Ming no era tan humillante..."
 
-"Alguien comenzó una discusión sobre el tema de la armadura, una discusión que rápidamente se volvió improductiva y degeneró en debates sobre la dinastía Ming y sus facciones, cuando, desde un rincón, se escuchó una voz suave: "
+Alguien comenzó una discusión sobre el tema de la armadura, una discusión que rápidamente se volvió improductiva y degeneró en debates sobre la dinastía Ming y sus facciones, cuando, desde un rincón, se escuchó una voz suave:
 
-"Simplemente golpéalo en la cabeza."
+"Simplemente apunta a la cabeza."
 
-Este es Bei Wei, un ex-soldado de reconocimiento de complexión robusta, que había estado sentado allí, con el rostro inexpresivo, desde el comienzo de la reunión. En ese momento, todos sintieron un escalofrío.
+Era Bei Wei, un ex-soldado de reconocimiento de complexión robusta, que había estado sentado allí, con el rostro inexpresivo, desde el comienzo de la reunión. En ese momento, todos sintieron un escalofrío.
 
-"Xi Yazhou asintió: "El nivel de equipamiento del enemigo es algo que los historiadores aficionados deben investigar. El grupo de inteligencia debe proporcionarnos un informe detallado sobre la situación militar de las diferentes facciones al final de la dinastía Ming, que incluya su poderío militar, armamento, tácticas y ejemplos clásicos de batallas. De esta manera, podremos elaborar planes específicos".
+Xi Yazhou asintió: "El nivel de equipamiento del enemigo es algo que los historiadores aficionados deben investigar. El grupo de inteligencia debe proporcionarnos un informe detallado sobre la situación militar de las diferentes facciones al final de la dinastía Ming, que incluya su poderío militar, armamento, tácticas y ejemplos clásicos de batallas. De esta manera, podremos elaborar planes específicos".
 
 "No hay problema", respondieron inmediatamente los miembros del grupo de inteligencia.
 

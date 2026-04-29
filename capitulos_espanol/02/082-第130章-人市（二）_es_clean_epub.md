@@ -1,8 +1,8 @@
 ## Capítulo 126: El mercado de personas (II)
 
 
-  Como era de esperar, no se trataba de un mercado libre. Tan pronto como este grupo de personas elegantemente vestidas entró, varios individuos se acercaron para ofrecer sus productos:
-  "¿Qué le parece esto? Un arroz glutinoso tan fino que puede romper el oro y la jade con un solo bocado... ¿Qué le parece por quince tael?"
+Como era de esperar, no se trataba de un mercado libre. Tan pronto como este grupo de personas elegantemente vestidas entró, varios individuos se acercaron para ofrecer sus productos:
+"¿Qué le parece esto? Un arroz glutinoso tan fino que puede romper el oro y la jade con un solo bocado... ¿Qué le parece por quince tael?"
 
 "Miren el cabello de esta joven, es tan negro y brillante..."
 
@@ -10,7 +10,7 @@
 
 "¿Ustedes buscan a alguien que las atienda, verdad? Esta joven es perfecta. Originalmente era sirvienta de una familia adinerada en la provincia de Fujian, está bien educada y tiene buen aspecto y porte. Yo les ofrezco un precio fijo: veinticinco taels."
 
-  ……
+……
 
 Xiao Zishan y su grupo quedaron atónitos por el alboroto. Nunca habían presenciado una escena así. Vieron cómo siete u ocho personas, con la saliva volando, intentaban atraer a las jóvenes hacia ellas, algunas jugueteando con su cabello, otras tirando de sus brazos para mostrarles su piel. Estas jóvenes, de edades comprendidas entre los once o doce años y los veinte, tenían rostros decentes, pero estaban demacradas, y aunque estaban a punto de llorar, no se atrevían, mostrando una expresión de sufrimiento contenido. El corazón de Xiao Zishan se hundió; la situación era realmente terrible, y los que estaban a su alrededor también mostraban signos de incomodidad.
 
@@ -28,7 +28,7 @@ Xiao Zishan estaba un poco indeciso. Parecía que casi todas las chicas con cier
 
 Un grupo de personas escapó de la vigilancia y se dirigió directamente hacia el interior. A lo largo del camino, en los terrenos baldíos junto a las chozas, se veía a numerosos campesinos hambrientos que huían de la hambruna, acompañados de ancianos y niños. Se escuchaban constantemente los lamentos de aquellos que pedían ayuda a los que pasaban.
 
-  En la intersección, se había reunido una gran multitud de personas. Al acercarse, pudieron ver que una mujer estaba agarrando las piernas de un hombre y lloraba desconsoladamente, suplicándole. En el suelo, entre un montón de ropa vieja, había dos niños: uno de unos tres o cuatro años y el otro aún en pañales. Resulta que la mujer y su familia habían huido a este lugar, pero todos los miembros de su familia habían muerto, dejando solo a ella y a sus dos hijos. Algunos hombres se habían fijado en la mujer, pero no querían a los niños.
+En la intersección, se había reunido una gran multitud de personas. Al acercarse, pudieron ver que una mujer estaba agarrando las piernas de un hombre y lloraba desconsoladamente, suplicándole. En el suelo, entre un montón de ropa vieja, había dos niños: uno de unos tres o cuatro años y el otro aún en pañales. Resulta que la mujer y su familia habían huido a este lugar, pero todos los miembros de su familia habían muerto, dejando solo a ella y a sus dos hijos. Algunos hombres se habían fijado en la mujer, pero no querían a los niños.
 
 Una mujer, golpeada hasta sangrar por la nariz y la boca, yacía en el suelo. Ren Ya, con el pie, la pateaba mientras la insultaba: "¡Tú, prostituta inmunda! ¡Yo no tengo un asilo para mantener a tus hijos!". Agarrando el cabello de la mujer, estaba a punto de arrastrarla.
 
@@ -50,7 +50,7 @@ Xiao Zishan pensó que esto no era del todo bueno, por dos razones: primero, la 
 
 La multitud, al ver que varios comerciantes habían comprado a la mujer y a toda su familia, se agitó. La noticia se extendió rápidamente entre los refugiados, tanto jóvenes como ancianos, hombres y mujeres, que se agolpaban cada vez más, rodeándolos por completo, rogándoles que los acogieran y que no les pidieran dinero a cambio de su libertad, simplemente pidiendo un bocado de comida.
 
-  Por un momento, todo se volvió un caos. Afortunadamente, Liu Gang, que tenía cierta experiencia, se abrió paso entre los guardias y solicitó la ayuda de los guardias y los civiles presentes para mantener el orden. Xiao Zishan tenía una carta de presentación de Gao Ju y, de inmediato, ofreció varios miles de monedas. Los guardias, sin atreverse a descuidarlo, rápidamente buscaron a un funcionario y comenzaron a redactar contratos de servidumbre a precios estándar.
+Por un momento, todo se volvió un caos. Afortunadamente, Liu Gang, que tenía cierta experiencia, se abrió paso entre los guardias y solicitó la ayuda de los guardias y los civiles presentes para mantener el orden. Xiao Zishan tenía una carta de presentación de Gao Ju y, de inmediato, ofreció varios miles de monedas. Los guardias, sin atreverse a descuidarlo, rápidamente buscaron a un funcionario y comenzaron a redactar contratos de servidumbre a precios estándar.
 
 Las personas que estaban cerca pronto se dieron cuenta de que a estas personas les encantaban los niños, especialmente a los niños pequeños a los que antes nadie prestaba atención, y que recogían a cada uno que veían, y también acogían a los padres que querían acompañarlos. Los huérfanos eran especialmente bienvenidos. Zhang Xin era generoso en sus acciones, y como no había gastado ni un centavo de su propio dinero, por cada niño que compraba, daba a los funcionarios y agentes presentes quinientos wén. Los funcionarios encargados de reprimir la situación simplemente llevaron a todos los huérfanos que había en el lugar, sin importar si querían o no, y los obligaron a firmar contratos. En poco tiempo, ya habían reclutado a setenta u ochenta niños, además de unos cuarenta adultos. Los agentes, al ver la generosidad de estas personas, se apresuraron a pedirles que compraran más, pero Zhang Xin negó con la cabeza: "Examinar a cada uno individualmente sería una pérdida de tiempo. Todos los niños que tienen ustedes, yo los compro a todos".
 
@@ -67,8 +67,8 @@ Guo Yi preguntó: "¿Quién es este señor Liang?".
 Varias personas se miraron y pensaron que era necesario establecer contacto con estos dignatarios locales. Zhang Xin continuó con los preparativos para enviar a los sirvientes, mientras que los demás siguieron a los sirvientes hacia el exterior del recinto.
 
 En el borde de la tierra baldía, hay un pequeño puesto que vende té y bollos, originalmente un lugar de descanso para los funcionarios y soldados. Ahora, tanto dentro como fuera, ha sido reemplazado por los sirvientes y empleados traídos por el joven Liang. Hay más de veinte personas, y todos están sorprendidos: ¡este joven, que apenas es un "jǔrén" (graduado), tiene un séquito tan grande!
-  El joven Liang, de aproximadamente veintisiete u ochenta años, tenía la piel ligeramente pálida y la apariencia de un joven noble. Vestía una túnica de seda gris y sostenía un abanico dorado. Aunque no era ostentoso, era limpio, elegante y sin una sola mancha. Al verlos acercarse, no mostró arrogancia, se levantó y les hizo una reverencia:
-  "Soy Liang Cunhou", dijo el joven, sonriendo levemente. Sus cejas arqueadas ocultaban unos ojos negros y brillantes que parpadeaban. "Permítanme preguntar, ¿cuáles son sus nombres y de dónde vienen?".
+El joven Liang, de aproximadamente veintisiete u ochenta años, tenía la piel ligeramente pálida y la apariencia de un joven noble. Vestía una túnica de seda gris y sostenía un abanico dorado. Aunque no era ostentoso, era limpio, elegante y sin una sola mancha. Al verlos acercarse, no mostró arrogancia, se levantó y les hizo una reverencia:
+"Soy Liang Cunhou", dijo el joven, sonriendo levemente. Sus cejas arqueadas ocultaban unos ojos negros y brillantes que parpadeaban. "Permítanme preguntar, ¿cuáles son sus nombres y de dónde vienen?".
 
 "Por un lado, observaba cuidadosamente a Guo Yi y a los demás. Su mirada era muy perspicaz, y Guo Yi se sorprendió: esta persona tenía una mirada aguda, muy diferente a la de los jóvenes privilegiados comunes. Repitió varias veces: "No, no...". Luego, mencionó los nombres de cada uno de ellos."
 
@@ -84,6 +84,6 @@ Xiao Zishan había previsto esta situación: "En los últimos años, las condici
 
 "Liu Gang aprovechó la oportunidad para decir algunas palabras aduladoras: 'El señor Liang siempre ha sido generoso y benevolente en este condado. No solo aquí en el condado de Nanhai, sino en toda la prefectura de Guangzhou, todos conocen la gran bondad y rectitud del señor Liang. Ustedes no saben que la mayor parte del dinero utilizado para mantener los comedores sociales en esta zona proviene de la casa del señor Liang'."
 
-  Liang Cunhou, sin embargo, no le dio importancia y, agitando la mano, dijo: "En la actualidad, el mundo no está en paz, afortunadamente, la provincia de Guangdong es relativamente tranquila. Mi familia Liang ha recibido el favor del país y no es comparable a una familia humilde. Además, tenemos algunos bienes modestos, y con ellos, hacemos el bien y aliviamos un poco las preocupaciones de la corte. Es lamentable que, al hablar de mi participación en el alivio de la hambruna en este condado, incluso no he recibido el reconocimiento de los dignatarios locales, y hay muchas habladurías a mis espaldas". Dicho esto, suspiró profundamente.
+Liang Cunhou, sin embargo, no le dio importancia y, agitando la mano, dijo: "En la actualidad, el mundo no está en paz, afortunadamente, la provincia de Guangdong es relativamente tranquila. Mi familia Liang ha recibido el favor del país y no es comparable a una familia humilde. Además, tenemos algunos bienes modestos, y con ellos, hacemos el bien y aliviamos un poco las preocupaciones de la corte. Es lamentable que, al hablar de mi participación en el alivio de la hambruna en este condado, incluso no he recibido el reconocimiento de los dignatarios locales, y hay muchas habladurías a mis espaldas". Dicho esto, suspiró profundamente.
 
 "Guo Yi, al ver que él tenía sus razones, fingió no entender y dijo: "El señor Liang ayuda a los campesinos hambrientos, es una gran virtud. ¿Por qué habría comentarios innecesarios?""

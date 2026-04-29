@@ -1,4 +1,4 @@
-# Illumine Lingao
+# El amanecer de Lingao
 
 ## Traducción no oficial al español
 

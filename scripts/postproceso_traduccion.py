@@ -73,6 +73,7 @@ FIXED_REPLACEMENTS = {
     "纱布": "gasa",
     "防风打火机": "encendedor a prueba de viento",
     "...": "…",
+    "SKS": "Tipo 56"
 }
 
 BAD_LINES_PATTERNS = [

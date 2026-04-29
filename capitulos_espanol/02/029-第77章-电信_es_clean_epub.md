@@ -1,7 +1,7 @@
 ## Capítulo 73: Telecomunicaciones
 
 
-  También comenzó la construcción de viviendas para los viajeros temporales. Este proyecto era mucho más sencillo que las obras de infraestructura anteriores; las viviendas eran estructuras modulares estándar, como piezas de construcción, lo que hacía que la construcción no fuera difícil.
+También comenzó la construcción de viviendas para los viajeros temporales. Este proyecto era mucho más sencillo que las obras de infraestructura anteriores; las viviendas eran estructuras modulares estándar, como piezas de construcción, lo que hacía que la construcción no fuera difícil.
 
 Los cimientos de la zona residencial se habían elevado adecuadamente 2 metros, por una parte para prevenir posibles inundaciones, y por otra, para poder defender la zona desde una posición elevada en caso de ataque. Toda la pendiente de los cimientos estaba revestida con piedras, y la superficie se había endurecido. Las viviendas modulares adoptaban la disposición lineal común en el nuevo pueblo. Todas las casas estaban orientadas de norte a sur, dispuestas en siete grupos alrededor de una plaza central, numerados en sentido horario con números arábigos. Los grupos del uno al cinco eran dormitorios individuales para hombres, el grupo seis era para dormitorios individuales para mujeres, y el grupo siete era para unidades familiares. Cada dormitorio individual albergaba a 4 personas, y cada unidad familiar tenía una habitación. Dentro de las viviendas modulares, se había intentado crear un ambiente lo más confortable posible, instalando luces y enchufes, aunque no había muebles, ya que la madera disponible debía priorizarse para los proyectos de infraestructura. A pesar de esto, muchas personas estaban contentas, ya que por primera vez en más de diez días podían dormir en una verdadera casa, y sus computadoras portátiles podían recargarse, lo que hacía que la vida nocturna fuera menos monótona...
 
@@ -21,7 +21,7 @@ El grupo de comunicaciones adoptó, en el plan de comunicaciones previo al viaje
 
 Li Yunxing trajo consigo un conjunto de pequeñas estaciones base y controladores de la compañía de telecomunicaciones local que ya no se utilizaban, además de dos computadoras portátiles, servidores obsoletos de la compañía de telecomunicaciones, diversos cables, dispositivos de conexión, protocolos de comunicación y un conjunto completo de software de gestión de comunicaciones. Con todo esto, sería suficiente para construir una red de comunicaciones inalámbricas en esta época.
 
-  Un conjunto de estaciones base y controladores de "xiaolingtong" puede soportar miles de teléfonos "xiaolingtong" dentro de un radio de hasta varias decenas de kilómetros. Si se añaden algunos módulos de extensión, se puede soportar una distancia aún mayor, y durante un período de tiempo, la comunicación interna de la estación es suficiente.
+Un conjunto de estaciones base y controladores de "xiaolingtong" puede soportar miles de teléfonos "xiaolingtong" dentro de un radio de hasta varias decenas de kilómetros. Si se añaden algunos módulos de extensión, se puede soportar una distancia aún mayor, y durante un período de tiempo, la comunicación interna de la estación es suficiente.
 
 También hay más de mil teléfonos "xiaolingtong", todos comprados en grandes cantidades, con la misma señal y del mismo lote, para que, en caso de ser necesario, se puedan reemplazar o reparar sus componentes.
 

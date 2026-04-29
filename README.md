@@ -1,4 +1,4 @@
-# Illumine Lingao (临高启明) – Traducción al Español
+# El amanecer de Lingao (临高启明) – Traducción al Español
 
 Traducción no oficial al español de la novela web china **临高启明 (Lingao Qiming)**.
 

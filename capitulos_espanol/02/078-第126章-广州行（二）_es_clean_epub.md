@@ -1,7 +1,7 @@
 ## Capítulo 122: Viaje a Guangzhou (II)
 
 
-  Después de probar el barco, se descubrió que, con las velas completamente desplegadas y el viento favorable, la velocidad del barco podía alcanzar aproximadamente 12 nudos. La instalación del motor no mejoró significativamente la velocidad. Sin embargo, la maniobrabilidad del barco mejoró considerablemente, lo cual fue una buena noticia para los viajeros temporales que no tenían experiencia en la operación de barcos de vela.
+Después de probar el barco, se descubrió que, con las velas completamente desplegadas y el viento favorable, la velocidad del barco podía alcanzar aproximadamente 12 nudos. La instalación del motor no mejoró significativamente la velocidad. Sin embargo, la maniobrabilidad del barco mejoró considerablemente, lo cual fue una buena noticia para los viajeros temporales que no tenían experiencia en la operación de barcos de vela.
 
 "Por lo menos, nuestro barco tendrá una gran ventaja en condiciones de viento contrario", resumió Lin Shenhe.
 
@@ -37,13 +37,13 @@ Estimulados por la esperanza que encontraron en Shanglu, todos se esforzaron por
 
 "¿Cómo es que aún no desembarcan? ¿Qué están esperando?", una voz suave y reprochadora llegó desde la parte trasera del barco.
 
-  Todos volvieron la vista y vieron a una hermosa mujer de apariencia y gracia excepcionales, que estaba levantando la cortina del barco para mirar hacia afuera. Su elaborada peinado, que parecía casual, estaba perfectamente colocado, con algunos mechones de cabello cayendo sobre su pecho ligeramente ondulado, revelando una belleza serena e indescriptible. Su rostro ovalado, de belleza radiante, estaba cubierto por una tela ligera que resaltaba su piel clara y rosada, superando incluso la belleza de las flores de loto. Sus ojos, brillantes y profundos, eran claros y misteriosos, y debajo de su nariz delicada y elegante, había unos labios rosados y suaves como pétalos de rosa, llenos y tentadores. Cada expresión, cada sonrisa, irradiaba una miríada de encantos, una belleza que cautivaba y asombraba.
+Todos volvieron la vista y vieron a una hermosa mujer de apariencia y gracia excepcionales, que estaba levantando la cortina del barco para mirar hacia afuera. Su elaborada peinado, que parecía casual, estaba perfectamente colocado, con algunos mechones de cabello cayendo sobre su pecho ligeramente ondulado, revelando una belleza serena e indescriptible. Su rostro ovalado, de belleza radiante, estaba cubierto por una tela ligera que resaltaba su piel clara y rosada, superando incluso la belleza de las flores de loto. Sus ojos, brillantes y profundos, eran claros y misteriosos, y debajo de su nariz delicada y elegante, había unos labios rosados y suaves como pétalos de rosa, llenos y tentadores. Cada expresión, cada sonrisa, irradiaba una miríada de encantos, una belleza que cautivaba y asombraba.
 
 De repente, Mond y los demás se quedaron atónitos. Los marineros y los sirvientes estaban tan asustados que parecían haber perdido el alma, con los ojos muy abiertos y la boca entreabierta, y algunas lágrimas comenzaron a brotar. En ese momento, incluso si los mataban, probablemente no reaccionarían.
 
-  En ese momento, se escuchó una tos desde el interior de la cabina. Era Guo Yi, quien, con una falsa apariencia de experiencia, hizo una reverencia y dijo: "Hay muchas mujeres en mi hogar, y les causamos molestias. Esperamos que todos lo comprendan". Luego, hizo que la hermosa mujer regresara a la cabina para evitar más problemas.
+En ese momento, se escuchó una tos desde el interior de la cabina. Era Guo Yi, quien, con una falsa apariencia de experiencia, hizo una reverencia y dijo: "Hay muchas mujeres en mi hogar, y les causamos molestias. Esperamos que todos lo comprendan". Luego, hizo que la hermosa mujer regresara a la cabina para evitar más problemas.
 
-  Esta hermosa mujer es, de hecho, el arma secreta de la famosa sección de inteligencia de los viajeros temporales, con el código "Señorita P", y su verdadero género se considera un secreto de suma importancia. La habilidad de PEPEI para disfrazarse es de las mejores en la actualidad, y durante el viaje en barco, todos ya estaban completamente cautivados por sus continuas transformaciones, que oscilaban entre la apariencia de una niña, un adolescente y una mujer madura. Ahora, al aparecer nuevamente, incluso aquellos como Mond, que creían tener inmunidad, no pudieron resistirse, lo que demuestra la profundidad de su habilidad.
+Esta hermosa mujer es, de hecho, el arma secreta de la famosa sección de inteligencia de los viajeros temporales, con el código "Señorita P", y su verdadero género se considera un secreto de suma importancia. La habilidad de PEPEI para disfrazarse es de las mejores en la actualidad, y durante el viaje en barco, todos ya estaban completamente cautivados por sus continuas transformaciones, que oscilaban entre la apariencia de una niña, un adolescente y una mujer madura. Ahora, al aparecer nuevamente, incluso aquellos como Mond, que creían tener inmunidad, no pudieron resistirse, lo que demuestra la profundidad de su habilidad.
 
 En la cabina del barco, Guo Yi reprendió: "Señorita P, espero que entienda que, aunque usted ha sido enviada directamente por el departamento de inteligencia del Comité Ejecutivo, soy el responsable de la estación avanzada de Guangdong y tengo el derecho de coordinar y asegurar la unidad. Espero que no cause dificultades a nuestras operaciones generales." Guo Yi entendía que PEPEI era el arma secreta más importante en esta operación en Guangzhou, pero de todas formas, era necesario recordar que no podía afectar la implementación del plan general.
 
@@ -55,7 +55,7 @@ Xiao Zishan dijo: "Ahora, discutamos los planes de acción para después de lleg
 
 "Primero regresaré a la casa, y luego enviaré un coche y carros para llevar a todos a la casa, donde podrán relajarse un poco. Beiwai conoce a Sun Chang, así que le pediré que lidere el grupo". Xiao Zishan sabía que estos viajeros habían estado apretados en el barco durante cinco o seis días, y que permanecer en el barco podría provocar problemas, así que dejó a Beiwai para mantener el orden.
 
-  Después de que todos llegaron a un acuerdo, y tras una breve reorganización, Xiao Zishan, protegido por las fuerzas especiales y el contingente de América del Norte, se dirigió hacia la ciudad de Guangzhou.
+Después de que todos llegaron a un acuerdo, y tras una breve reorganización, Xiao Zishan, protegido por las fuerzas especiales y el contingente de América del Norte, se dirigió hacia la ciudad de Guangzhou.
 
 Xiao Zishan se sintió como si estuviera visitando un lugar familiar, mientras que para los demás, todo era pura curiosidad. La mayoría de las personas ni siquiera habían estado en la ciudad de Lingao, y ahora, de repente, se encontraban en la ciudad comercial más próspera del sur de China en aquel entonces. La expresión "deslumbrante" describe muy bien sus sensaciones.
 

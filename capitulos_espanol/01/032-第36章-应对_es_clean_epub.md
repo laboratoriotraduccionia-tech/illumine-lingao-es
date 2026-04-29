@@ -1,8 +1,8 @@
 ## Capítulo 32: Enfrentando la situación
 
-  El sueño es el estado más cercano a la muerte, y cuando Wen Zong despertó de su sueño, una frase apareció misteriosamente en su mente. Abrió los ojos y vio que el dosel de seda rosa claro con motivos de plantas acuáticas se balanceaba suavemente, y un ligero aroma flotaba en el aire. Por un momento, cerró los ojos, pero luego los volvió a abrir: ¡¿dónde estoy?!
+El sueño es el estado más cercano a la muerte, y cuando Wen Zong despertó de su sueño, una frase apareció misteriosamente en su mente. Abrió los ojos y vio que el dosel de seda rosa claro con motivos de plantas acuáticas se balanceaba suavemente, y un ligero aroma flotaba en el aire. Por un momento, cerró los ojos, pero luego los volvió a abrir: ¡¿dónde estoy?!
 
-  Si Wen Zong no hubiera experimentado el agujero de gusano, probablemente habría pensado que su alma había viajado a otro cuerpo. Su mente se aclaró un poco: ¿no vivo en la casa que Gao Ju le regaló? Esa cama, aunque tiene un dosel, es solo una cortina de tela azul común. ¿De dónde viene este aroma? ¿Dónde estoy?
+Si Wen Zong no hubiera experimentado el agujero de gusano, probablemente habría pensado que su alma había viajado a otro cuerpo. Su mente se aclaró un poco: ¿no vivo en la casa que Gao Ju le regaló? Esa cama, aunque tiene un dosel, es solo una cortina de tela azul común. ¿De dónde viene este aroma? ¿Dónde estoy?
 
 Se incorporó rápidamente, pero sintió que le daba vueltos la cabeza, sus extremidades estaban entumecidas y no tenía fuerzas. Miró a su alrededor y vio que era una habitación muy pequeña, sin ventanas. Además de la cama en la que estaba, solo había una mesa y una silla; sobre la mesa había jarrones y pequeños arreglos florales, y en las paredes había dos cuadros de paisajes.
 

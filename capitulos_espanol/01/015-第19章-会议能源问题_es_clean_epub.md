@@ -24,7 +24,7 @@ Chang Kaishen, que se levantó para hablar en el grupo de energía, es un emplea
 
 "Sonrió y dijo: "Por supuesto, la electricidad es mucho más compleja de lo que parece, e implica una serie de problemas relacionados con la transmisión, distribución y transformación. Es un tema muy especializado, así que no entraré en detalles. El plan específico requerirá bastante tiempo para ser elaborado"".
 
-  El siguiente tema, que también fue respondido por el grupo de energía, se refiere a las alternativas a los productos derivados del petróleo. Los viajeros temporales no solo necesitan generadores, sino que también necesitan usar motocicletas, automóviles y pequeñas embarcaciones. Tanto la gasolina como el diésel no se pueden almacenar a largo plazo, y si no pueden producir su propio combustible, no hay necesidad de llevar demasiados de estos artículos.
+El siguiente tema, que también fue respondido por el grupo de energía, se refiere a las alternativas a los productos derivados del petróleo. Los viajeros temporales no solo necesitan generadores, sino que también necesitan usar motocicletas, automóviles y pequeñas embarcaciones. Tanto la gasolina como el diésel no se pueden almacenar a largo plazo, y si no pueden producir su propio combustible, no hay necesidad de llevar demasiados de estos artículos.
 
 "Je, no me atrevo a estar de acuerdo con las palabras del moderador", dijo Luo Duo, quien se levantó para hablar a continuación. "Sin embargo, se dice que el moderador es de la facultad de humanidades, lo cual es comprensible."
 
@@ -90,6 +90,6 @@ Xiao Zishan se sonrojó de repente. Su mayor resentimiento era que la expresión
 
 "Si consideran que la tasa de producción de petróleo de Changpo es demasiado baja, las rocas bituminosas de la provincia de Shandong, específicamente de los condados de Huangxian y Penglai, son de la mejor calidad y tienen una tasa de contenido de petróleo del 22%. Si no poseemos la capacidad de extracción de petróleo en los próximos veinte años, podríamos considerar tomar el control de la provincia de Shandong primero."
 
-  La multitud de abajo murmuró de nuevo. Algunos miembros del equipo de deportes estaban revisando un mapa de China.
+La multitud de abajo murmuró de nuevo. Algunos miembros del equipo de deportes estaban revisando un mapa de China.
 
 "Esto, que ha sido incluido en el plan a largo plazo por el grupo de energía, nos permitirá ver qué nivel puede alcanzar nuestra manufactura", dijo Wen Desi. "Continuemos", añadió, mirando a Xiao Zishan, quien asintió.

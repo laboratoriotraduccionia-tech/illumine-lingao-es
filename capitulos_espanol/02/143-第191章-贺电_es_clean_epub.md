@@ -1,16 +1,16 @@
 ## Capítulo 187: Telegrama de felicitación
 
 
-  Para la proyección de películas, el departamento de ingeniería seleccionó hace unas semanas un terreno en Bairencheng y excavó una serie de terrazas a lo largo de la pendiente, que fueron pavimentadas con ladrillos y piedra, y se instalaron bancos de madera. Aproximadamente, puede albergar a 400 personas sentadas, y si se apilan un poco, puede albergar a 500 personas. La pantalla viene con el proyector de 16 mm, y se construyó un soporte de pantalla fijo para facilitar su montaje y desmontaje. Para satisfacer la necesidad de proyecciones de películas a largo plazo, se construyó una sala de proyección y se instalaron cables eléctricos. El sistema de sonido utiliza altavoces portátiles que vienen con el proyector, y su instalación y almacenamiento son muy convenientes.
+Para la proyección de películas, el departamento de ingeniería seleccionó hace unas semanas un terreno en Bairencheng y excavó una serie de terrazas a lo largo de la pendiente, que fueron pavimentadas con ladrillos y piedra, y se instalaron bancos de madera. Aproximadamente, puede albergar a 400 personas sentadas, y si se apilan un poco, puede albergar a 500 personas. La pantalla viene con el proyector de 16 mm, y se construyó un soporte de pantalla fijo para facilitar su montaje y desmontaje. Para satisfacer la necesidad de proyecciones de películas a largo plazo, se construyó una sala de proyección y se instalaron cables eléctricos. El sistema de sonido utiliza altavoces portátiles que vienen con el proyector, y su instalación y almacenamiento son muy convenientes.
 
 Mei Want especialemente diseñó un asiento VIP directamente frente a la pantalla, con un alero llamativo. Para que el cine pudiera tener otros usos, se construyó un escenario semicircular debajo de la pantalla, que podía utilizarse para reuniones y espectáculos cuando no se proyectaban películas.
 
 Dos horas antes del comienzo de la película, incontables personas se habían reunido tanto delante como detrás de la pantalla. Muchos vinieron directamente del comedor, llevando sus propios recipientes. Las luces no eran lo suficientemente brillantes, así que se instalaron temporalmente algunas lámparas de gas, iluminando todo el lugar. Las familias llegaban en parejas, y algunas llevaban a sus hijos. Había puestos cerca del cine que ofrecían jugo y nueces de betel de forma gratuita; estos eran los únicos alimentos disponibles para el entretenimiento. Era una escena bulliciosa y armoniosa, típica de la sociedad.
 
 Cuando la música del cine al aire libre recién construido comenzó a sonar, el bullicio de la gente desapareció de inmediato, y todos esperaban en silencio. En la pantalla apareció el título de la película:
-  "Matrix".
+"Matrix".
 
-  Todos quedaron atónitos, preguntándose si esto era una burla o un entretenimiento. Sin embargo, a pesar de eso, todos estaban muy concentrados en lo que veían. Cuando Keanu Reeves aparecía en la pantalla mostrando su estilo, muchos de los "empleados" que vivían en la ciudad de Bairen se sintieron atraídos por los impresionantes efectos de sonido y se reunieron silenciosamente. Cuando se dieron cuenta de que se estaba proyectando una "película" de gran formato, nadie quiso moverse, y algunos rápidamente regresaron para llamar a sus esposas e hijos para que la vieran juntos.
+Todos quedaron atónitos, preguntándose si esto era una burla o un entretenimiento. Sin embargo, a pesar de eso, todos estaban muy concentrados en lo que veían. Cuando Keanu Reeves aparecía en la pantalla mostrando su estilo, muchos de los "empleados" que vivían en la ciudad de Bairen se sintieron atraídos por los impresionantes efectos de sonido y se reunieron silenciosamente. Cuando se dieron cuenta de que se estaba proyectando una "película" de gran formato, nadie quiso moverse, y algunos rápidamente regresaron para llamar a sus esposas e hijos para que la vieran juntos.
 
 A medida que la noticia de que los "líderes" estaban viendo una "película" nunca antes vista se extendió, los trabajadores y sus familias que vivían en la comuna de Bairen corrieron para verla. No se atrevían a acercarse y sentarse en los escalones, pero como el cine era de planta abierta, podían ver muy claramente desde el exterior.
 
@@ -40,7 +40,7 @@ Luó Dué, debido a su poco interés en ver películas, se ofreció voluntariame
 
 Los nativos que ven la "película" no piensan en todo esto. Las imágenes y paisajes reales que aparecen en la tela blanca los sorprenden y despiertan su curiosidad: un occidental vestido de negro realiza giros impresionantes en el aire, muchos pulpos gigantes y extraños vuelan por el cielo, casas altas y densas, que parecen bosques, y vehículos que emiten llamas azules... Todo es algo que nunca antes han visto, pero parece real. Todo esto cautiva a Mapi.
 
-  A continuación, se encuentra el reino del terror. La torre gigante está adornada con pequeños farolillos rojos, y en cada farolillo hay una persona ahogada. Monstruos se mueven entre las torres, y largos tentáculos se agitan bajo el cielo negro. Mǎ Péng estaba tan asustado que temblaba; ¿era este el infierno de los Asuras?
+A continuación, se encuentra el reino del terror. La torre gigante está adornada con pequeños farolillos rojos, y en cada farolillo hay una persona ahogada. Monstruos se mueven entre las torres, y largos tentáculos se agitan bajo el cielo negro. Mǎ Péng estaba tan asustado que temblaba; ¿era este el infierno de los Asuras?
 
 Aunque el efecto era extremadamente impactante, la capacidad de comprensión de las personas de esa época no era limitada. Sabían que esto era simplemente un efecto de luz y sombra, y no algo real. Aunque de vez en cuando alguien intentaba pasar detrás de la pantalla para ver qué tipo de grupo estaba actuando en esta "obra de teatro" tan realista, nadie se atrevía a hacer un movimiento imprudente.
 
@@ -54,11 +54,11 @@ Aunque el efecto era extremadamente impactante, la capacidad de comprensión de 
 
 Luó Duó, sin querer, dijo algo que despertó la idea en Wú Dé. Por lo que se veía, las películas eran muy atractivas para la gente local. Si se usaban películas como un medio para enseñar el mandarín, ¿no sería una solución que beneficiaría en dos aspectos? Actualmente, en la comuna, Zhang Xīngqiǎo lidera clases nocturnas todos los días para enseñar mandarín, pero los resultados no son muy buenos. La mayoría de los trabajadores locales se dan cuenta de que para tener éxito con los "líderes", deben aprender el idioma de los "líderes". Sin embargo, el dialecto de Lingao, el dialecto de Fujian y el dialecto de Guangdong de la dinastía Ming son, en definitiva, muy diferentes del mandarín del siglo XXI. Aunque el vocabulario y las frases cortas pueden ser manejables, es muy difícil lograr una comunicación fluida.
 
-  Esta idea es buena, pensó Chang Shide. ¿Qué tipo de películas sería mejor mostrarles?
+Esta idea es buena, pensó Chang Shide. ¿Qué tipo de películas sería mejor mostrarles?
 
-  Justo cuando estaba pensando eso, Neo, en la película, estaba diciendo su frase más famosa:
+Justo cuando estaba pensando eso, Neo, en la película, estaba diciendo su frase más famosa:
 
-  ……
+……
 
 Puedo sentirlo. Sé que tienen miedo, que les da miedo nosotros; que les da miedo el cambio.
 
@@ -68,7 +68,7 @@ No sé qué depara el futuro.
 
 Sino que les digo que esto es solo el comienzo.
 
-  ……
+……
 
 "Después de que terminaron los diálogos, la película también llegó a su fin. Como sabían que habría otra proyección, la mayoría de las personas se estiraron y esperaron la siguiente película. Justo en ese momento, se vio a Ding Ding subir rápidamente al escenario debajo de la pantalla, vestido con un traje, con el pelo engominado y una expresión alegre en su rostro, como si estuviera a punto de asistir a una boda."
 
@@ -105,7 +105,7 @@ El cohete ascendía cada vez más alto, explotando en un instante en la oscurida
 
 Era como un trueno que sacudía el cielo, llamas rojas y brillantes se expandían en todas direcciones, creando un espectáculo deslumbrante. Era una celebración de fuegos artificiales que los habitantes de esta época nunca habían visto, obra de los viajeros temporales. La gente en el suelo no pudo evitar gritar de alegría y aplaudir.
 
-  No solo los habitantes de toda la ciudad de Bairen, sino también los de la ciudad del condado y de Bopu, presenciaron la escena espectacular sin precedentes que se desarrolló en el suelo de Lingao. Muchos residentes que ya estaban dormidos salieron corriendo de sus casas para ver este espectáculo inusual.
+No solo los habitantes de toda la ciudad de Bairen, sino también los de la ciudad del condado y de Bopu, presenciaron la escena espectacular sin precedentes que se desarrolló en el suelo de Lingao. Muchos residentes que ya estaban dormidos salieron corriendo de sus casas para ver este espectáculo inusual.
 
 Lin Shenhe y sus colegas del grupo de artillería que estaban detrás de él no vitorearon ni aplaudieron, pero estaban igualmente emocionados. Finalmente, se había demostrado que los cohetes eran utilizables.
 

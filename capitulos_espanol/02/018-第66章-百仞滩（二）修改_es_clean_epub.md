@@ -1,6 +1,6 @@
 ## Capítulo 62: Playa de Bai Ren (II) – Modificación
 
-  Se ha realizado una modificación importante al final de esta sección, que afecta a los eventos posteriores. Tenga en cuenta esto.
+Se ha realizado una modificación importante al final de esta sección, que afecta a los eventos posteriores. Tenga en cuenta esto.
 
 －－－－－－－－－－－－－－－－－－
 Durante una conversación informal, descubrí que esta familia había alquilado un barco para viajar a Hainan, pero de repente se encontraron con una tormenta que los desorientó, y luego fueron abordados por un barco. El señor Mingqiu había servido durante muchos años en la flota naval del Mar del Sur, estacionada en la isla de Hainan, y después de su retiro, trabajó en el departamento de asuntos civiles; la señora Liméi fue una líder durante muchos años en una empresa comercial, razón por la cual tiene una actitud tranquila y habla con elegancia; en cuanto al hijo, Minglang, que siempre permanecía callado, es un funcionario del departamento de supervisión de seguridad. Esta familia todavía no comprende completamente lo que les sucedió.
@@ -15,7 +15,7 @@ Pregunté durante mucho tiempo cómo estaba su salud, y finalmente el señor Min
 
 "Se acabó."
 
-  Esto causó mucha angustia a toda la familia. El anciano, normalmente de carácter obstinado y que nunca se rinde, ¿cómo podía decir algo así de repente?
+Esto causó mucha angustia a toda la familia. El anciano, normalmente de carácter obstinado y que nunca se rinde, ¿cómo podía decir algo así de repente?
 
 "Papá, por favor, no nos asuste..." Minglang rápidamente ayudó a su padre a levantarse.
 
@@ -33,9 +33,9 @@ Pregunté durante mucho tiempo cómo estaba su salud, y finalmente el señor Min
 
 "¡Mira lo que hay detrás!", exclamó el anciano, visiblemente preocupado.
 
-  Todos deben mirar de nuevo. En el fondo de la foto, se ve una presa. Si levantan la vista, detrás de la inscripción de Bairen Tan, que es exactamente igual, no hay ninguna presa.
-  (Nota: la inscripción de Bairen Tan está justo entre la presa de la central hidroeléctrica y la central de generación de energía. Por lo tanto, es completamente posible incluir la presa en la foto).
-  Ahora, todos sienten un escalofrío en la espalda. ¿Dónde está la presa? Mu Min dijo: "Ahora que están modernizando las pequeñas centrales hidroeléctricas, es posible que ya la hayan demolido..."
+Todos deben mirar de nuevo. En el fondo de la foto, se ve una presa. Si levantan la vista, detrás de la inscripción de Bairen Tan, que es exactamente igual, no hay ninguna presa.
+(Nota: la inscripción de Bairen Tan está justo entre la presa de la central hidroeléctrica y la central de generación de energía. Por lo tanto, es completamente posible incluir la presa en la foto).
+Ahora, todos sienten un escalofrío en la espalda. ¿Dónde está la presa? Mu Min dijo: "Ahora que están modernizando las pequeñas centrales hidroeléctricas, es posible que ya la hayan demolido..."
 
 "No, es imposible", dijo el anciano, negando con la cabeza con terquedad. "La central hidroeléctrica de Bairen Tan siempre ha sido la principal fuente de energía de Lingao, ¿cómo podrían desmantelarla? Ninguno de mis compañeros en Lingao ha mencionado algo así".
 
@@ -55,9 +55,9 @@ Guo Yi regresó con una expresión que causó aún más pánico entre todos. De 
 
 La situación actual refleja perfectamente la frase "estar en una encrucijada", nadie quería creer que esto fuera la antigua China, pero la evidencia era tan abrumadora que era imposible ignorarla. ¿Debían continuar remontando el río o regresar inmediatamente a la desembocadura? Un grupo de personas se sentía inseguro, con un vacío en el corazón.
 
-  Siguiendo adelante, nadie sabe qué se encontrará. Si hubo un primer ataque, habrá un segundo. Ni siquiera saben quiénes son los atacantes ni por qué están atacando. Después de discutirlo, algunas personas pensaron que, dado que ya estaban en la playa de Bairen, y que la distancia a la ciudad de Lingao era de solo 4-5 kilómetros, era mejor investigar. Además, estos pacientes heridos se sentirían más seguros en el hospital del pueblo. Si no hubiera un hospital del pueblo en Lingao, solo quedaría la oficina del condado, y entonces tendrían que regresar a Bopu. Al menos, parece que este grupo de personas excéntricas no tiene intención de matar, y en el campamento de la playa parece que todavía ondea una bandera de la Cruz Roja.
+Siguiendo adelante, nadie sabe qué se encontrará. Si hubo un primer ataque, habrá un segundo. Ni siquiera saben quiénes son los atacantes ni por qué están atacando. Después de discutirlo, algunas personas pensaron que, dado que ya estaban en la playa de Bairen, y que la distancia a la ciudad de Lingao era de solo 4-5 kilómetros, era mejor investigar. Además, estos pacientes heridos se sentirían más seguros en el hospital del pueblo. Si no hubiera un hospital del pueblo en Lingao, solo quedaría la oficina del condado, y entonces tendrían que regresar a Bopu. Al menos, parece que este grupo de personas excéntricas no tiene intención de matar, y en el campamento de la playa parece que todavía ondea una bandera de la Cruz Roja.
 
-  En ese momento, las tropas se dividieron en dos grupos. El señor Ming, junto con Xiao Guo y Xue Ziliang, se dirigieron a Lingao para realizar una exploración, mientras que el resto permaneció allí temporalmente. El terreno de Bairen Tan es complejo, por lo que no es difícil esconderse. Xiao Guo se opuso, argumentando que, debido a su edad, un viaje tan largo podría ser demasiado agotador. Ming Qiu respondió que él conocía bien el terreno y que, con solo echar un vistazo a Lingao, podría saber si era el lugar correcto, lo cual era mejor que simplemente ir a tientas. La preocupación de Xue Ziliang era que las mujeres que quedaban atrás estuvieran en peligro, pero Ming Qiu aseguró que no habría problemas, ya que su hijo y su nuera eran una fuerza de combate. Además de ser policía, su nuera, y su hijo, que solía ir a clase con un cuchillo para pelear, tenía mucha experiencia en peleas callejeras, lo que generó una gran duda en Xiao Guo.
+En ese momento, las tropas se dividieron en dos grupos. El señor Ming, junto con Xiao Guo y Xue Ziliang, se dirigieron a Lingao para realizar una exploración, mientras que el resto permaneció allí temporalmente. El terreno de Bairen Tan es complejo, por lo que no es difícil esconderse. Xiao Guo se opuso, argumentando que, debido a su edad, un viaje tan largo podría ser demasiado agotador. Ming Qiu respondió que él conocía bien el terreno y que, con solo echar un vistazo a Lingao, podría saber si era el lugar correcto, lo cual era mejor que simplemente ir a tientas. La preocupación de Xue Ziliang era que las mujeres que quedaban atrás estuvieran en peligro, pero Ming Qiu aseguró que no habría problemas, ya que su hijo y su nuera eran una fuerza de combate. Además de ser policía, su nuera, y su hijo, que solía ir a clase con un cuchillo para pelear, tenía mucha experiencia en peleas callejeras, lo que generó una gran duda en Xiao Guo.
 
 El recién formado equipo de reconocimiento de Lingao dejó atrás todo su equipaje, llevando consigo solo palos, cuchillos y una pequeña cantidad de alimentos. Mingqiu le dijo a su esposa: "Si no regresamos en dos horas, ustedes deben irse de inmediato". La separación de la familia fue un poco triste, y la anciana comenzó a llorar, instándolo a tener cuidado y a no excederse, y le pidió a dos caballeros que cuidaran del anciano. Estas palabras parecieron herir el orgullo del anciano, quien resopló, se levantó y se fue por su cuenta.
 

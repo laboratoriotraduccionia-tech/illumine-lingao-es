@@ -1,6 +1,6 @@
 ## Capítulo 16: Reunión – Mecánica y Química
 
-  La discusión se centró en la fabricación de maquinaria, un campo en el que Wen Zong tiene experiencia. El tema principal fue el debate sobre qué tipo de equipos se deberían llevar. Zhan Wuya ya había ofrecido una pequeña fábrica de maquinaria y comunicó los tipos de equipos disponibles.
+La discusión se centró en la fabricación de maquinaria, un campo en el que Wen Zong tiene experiencia. El tema principal fue el debate sobre qué tipo de equipos se deberían llevar. Zhan Wuya ya había ofrecido una pequeña fábrica de maquinaria y comunicó los tipos de equipos disponibles.
 
 "¿Estos equipos son capaces de producir los diversos tipos de maquinaria especializada que necesitamos? Hmm, por ejemplo, ¿calderas?"
 
@@ -22,9 +22,9 @@
 
 "Los materiales necesitan un horno de tratamiento térmico. Los retenedores de los rodamientos y la instalación de las bolas se pueden hacer a mano, y para fijarlos se puede usar una prensa."
 
-  ……
+……
 
-  A continuación, comenzó una fase de discusión más compleja. Después de un breve murmullo, la discusión del grupo industrial se calmó, y aparentemente se llegó a un acuerdo sobre los métodos y equipos de fabricación de engranajes y rodamientos. Alguien comenzó a escribir una lista, y Xiao Zishan supuso que podría ser una lista de equipos.
+A continuación, comenzó una fase de discusión más compleja. Después de un breve murmullo, la discusión del grupo industrial se calmó, y aparentemente se llegó a un acuerdo sobre los métodos y equipos de fabricación de engranajes y rodamientos. Alguien comenzó a escribir una lista, y Xiao Zishan supuso que podría ser una lista de equipos.
 
 Wen Desi habló en ese momento: "Propongo que, para estandarizar los componentes, dejemos de llevar máquinas como las de cortar y doblar, y podemos sustituirlas con más prensas. Es importante llevar la mayor cantidad posible de herramientas y muelas abrasivas. Además, la fábrica de maquinaria no tiene fresadoras ni hornos de tratamiento térmico, por lo que es necesario llevarlos".
 
@@ -36,7 +36,7 @@ Wen Desi habló en ese momento: "Propongo que, para estandarizar los componentes
 
 "¿Y la máquina de forjado? Eso tampoco puede faltar, ¿verdad?"
 
-  ……
+……
 
 Un intenso debate técnico se desarrollaba, mientras que muchas personas comenzaban a bostezar. Sin embargo, debido a la restricción de no poder abandonar la sala hasta que terminara el tema, comenzaron a realizar pequeñas reuniones dentro de sus respectivos grupos, llenando la sala con un zumbido constante.
 
@@ -48,9 +48,9 @@ Wang Luobin de repente se levantó, sin pedir la opinión del presentador, ya qu
 
 "No es tan exagerado. Lo que dices es sobre el presente; en el pasado, los diseños y los planos de los moldes eran creados por diseñadores e ingenieros, luego se mecanizaban las piezas y, finalmente, los técnicos los ensamblaban; la habilidad de los técnicos es muy importante."
 
-  ……
+……
 
-  Poco a poco, la discusión técnica se calmó, y se había utilizado bastante papel del grupo industrial; parecía que todos tenían una idea clara de lo que estaban haciendo. Wen Desi vio a Wang, el ingeniero, escribiendo con entusiasmo, y no pudo evitar preocuparse de si esa solicitud de compra sería demasiado extensa.
+Poco a poco, la discusión técnica se calmó, y se había utilizado bastante papel del grupo industrial; parecía que todos tenían una idea clara de lo que estaban haciendo. Wen Desi vio a Wang, el ingeniero, escribiendo con entusiasmo, y no pudo evitar preocuparse de si esa solicitud de compra sería demasiado extensa.
 
 "Soy Jì Sītuì", dijo un hombre con barba incipiente, que a pesar de la barba, tenía un rostro juvenil. "Represento al grupo de ingeniería química y expreso una fuerte protesta". Hizo hincapié en las palabras "grupo de ingeniería química", y continuó: "La industria de la ingeniería química es una rama industrial muy importante. ¿Cómo se puede incluir en el grupo industrial sin distinguir entre lo correcto y lo incorrecto? Ellos se dedican a la mecánica, y no tienen nada que ver con nosotros".
 

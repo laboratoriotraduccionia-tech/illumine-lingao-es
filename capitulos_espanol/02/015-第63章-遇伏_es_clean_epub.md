@@ -1,6 +1,6 @@
 ## Capítulo 59: Emboscada
 
-  "¿De verdad? ¿Quién es quién aquí? ¿No es así, Li Ge?", dijo.
+"¿De verdad? ¿Quién es quién aquí? ¿No es así, Li Ge?", dijo.
 
 "No intentes jugar conmigo así", dijo Li Jun, sacó un chicle y lo usó como si fuera un cepillo de dientes, evitando la mano codiciosa de Xiao Wei. "Ya eres un joven de veinte años, incluso eres dos años mayor que yo cuando estaba en el escuadrón de maniobras. Deberías estar trabajando, pero estás durmiendo. En la unidad, ya te habría dado una paliza el jefe de pelotón. ¿Cómo te atreves a decir eso?"
 
@@ -40,14 +40,14 @@ El carrito también se observó con claridad. El primero tenía montada una piez
 
 "Xiao Wei, ¡toma una foto!"
 
-  Wei Aiwen levantó su cámara digital y comenzó a tomar fotografías con un lente de largo alcance, capturando imágenes de cerca de la formación, los soldados, los cañones, el oficial que lideraba la unidad y varios soldados armados.
+Wei Aiwen levantó su cámara digital y comenzó a tomar fotografías con un lente de largo alcance, capturando imágenes de cerca de la formación, los soldados, los cañones, el oficial que lideraba la unidad y varios soldados armados.
 
 "¡Miren!", exclamó repentinamente Li Yunxing, con una voz tan alta que asustó a todos los que estaban cerca. "¡Hay un extranjero!".
 
 Bei Wei ajustó la dirección de su observación. Efectivamente, al final de la fila, había un extranjero, con el pelo castaño y desordenado, que destacaba. Estaba atado de manos y siendo arrastrado, descalzo, con sangre en las piernas. Llevaba una parte de un impermeable de pescador, y un soldado de la retaguardia le pinchaba el trasero con un arma para que caminara más rápido.
 
 ¿Un comerciante? ¿Un misionero? ¿Un pirata? Una serie de preguntas cruzaron la mente de Beini. En la costa de Guangdong y Fujian durante la dinastía Ming, no era raro ver a extranjeros, pero ¿cómo había llegado este individuo a Lingao? ¿Podría ser un pirata extranjero?
-  "Llamen al Comandante General."
+"Llamen al Comandante General."
 
 Cuando el sol comenzaba a salir, la familia Ming y el equipo de tres agentes estadounidenses ya se habían reunido en la playa frente a la entrada del campamento, con expresiones de confusión en sus rostros.
 
@@ -55,7 +55,7 @@ Después de levantarse por la mañana y desayunar, llegó Xiao Zishan, quien sie
 
 Aún sin reaccionar, una embarcación de transporte, junto con los pasajeros y sus equipajes, los llevó directamente a la orilla.
 
-  El campamento en la playa, los barcos en la bahía, los vehículos y maquinaria que recorrían la arena, los soldados con armas... Todo parecía irreal. Este grupo de bandidos es realmente muy audaz. Si no fuera por la bahía, esta familia pensaría que había llegado a la legendaria región del Triángulo de Oro.
+El campamento en la playa, los barcos en la bahía, los vehículos y maquinaria que recorrían la arena, los soldados con armas... Todo parecía irreal. Este grupo de bandidos es realmente muy audaz. Si no fuera por la bahía, esta familia pensaría que había llegado a la legendaria región del Triángulo de Oro.
 
 "Miren, los equipajes están todos aquí, sin moverse. Pueden revisarlos si quieren", dijo Xiao Zishan con una sonrisa a la familia, que aún parecía aturdida.
 

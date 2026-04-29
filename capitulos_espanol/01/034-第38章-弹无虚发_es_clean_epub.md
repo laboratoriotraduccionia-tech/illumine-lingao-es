@@ -1,9 +1,9 @@
 ## Capítulo 34: Cada disparo tiene su propósito
 
 
-  Debido a que el capítulo 33 original ha sido modificado sustancialmente, les pedimos a los lectores que hayan visto la versión anterior del capítulo 33 que lo revisen nuevamente y luego lean este capítulo. Gracias.
+Debido a que el capítulo 33 original ha sido modificado sustancialmente, les pedimos a los lectores que hayan visto la versión anterior del capítulo 33 que lo revisen nuevamente y luego lean este capítulo. Gracias.
 
-  －－－－－－－－－－－－－－－－－－－－－
+－－－－－－－－－－－－－－－－－－－－－
 
 "Este es el barco 'Xuanzhu'," dijo Ran Yao, señalando un barco decorado que estaba en la orilla, a través de las cortinas de bambú Xiangfei.
 
@@ -27,7 +27,7 @@ Lin Shen observaba cuidadosamente la pendiente inferior, ajustando el enfoque y 
 
 ¿Qué tenían estos individuos contra él? Aunque no eran personas buenas, desde un punto de vista emocional, eran tan ajenos a él como Wen Zong. Lin Shenhe negó con la cabeza, esforzándose por no dejarse llevar por pensamientos descabellados. Como miembro de los viajeros temporales, cualquiera que perjudicara los intereses de los viajeros temporales podía ser eliminado.
 
-  Verificó cuidadosamente la ubicación y la distancia de cada objetivo. Dejó el telescopio y acercó una mesa. Colocó un cojín modificado sobre la mesa; la precisión al disparar en posición prona era mucho mayor que al disparar de rodillas, y así podía apoyarse en la mesa para disparar.
+Verificó cuidadosamente la ubicación y la distancia de cada objetivo. Dejó el telescopio y acercó una mesa. Colocó un cojín modificado sobre la mesa; la precisión al disparar en posición prona era mucho mayor que al disparar de rodillas, y así podía apoyarse en la mesa para disparar.
 
 "Cuando escuchen el sonido de los fuegos artificiales abajo, disparen", recordó Ran Yao, y rápidamente bajó las escaleras. Miró su reloj: eran las 5:20.
 
@@ -61,7 +61,7 @@ Entró corriendo en la cabina y encontró a varias mujeres arrodilladas en el su
 
 Aunque su rostro estaba cubierto de sangre y carne debido a las balas, su complexión, apariencia y vestimenta, junto con el grito de la prostituta momentos antes, indicaban claramente que este era el líder de apellido Wang, el responsable de la secuestro. Ran Yaoshu suspiró aliviado, el principal culpable no había escapado. Justo cuando estaba a punto de continuar la búsqueda, escuchó la voz urgente de Lin Shen a través del walkie-talkie: "¡Rápido, vayan a rescatar a Wen Zong! ¡Un bote pequeño que estaba amarrado a la lancha se ha escapado!"
 
-  Desde esa posición, podía ver la pequeña embarcación moverse, pero estaba bloqueada por otra embarcación, lo que le impedía alcanzar a la persona que manejaba los remos.
+Desde esa posición, podía ver la pequeña embarcación moverse, pero estaba bloqueada por otra embarcación, lo que le impedía alcanzar a la persona que manejaba los remos.
 
 "Afortunadamente, Beǐ Wěi estaba allí para interceptar, y tan pronto como Lín Shēn hé terminó de hablar, él detectó la pequeña embarcación en movimiento y disparó dos veces hacia la parte trasera de la embarcación, inmediatamente después de lo cual se escucharon gritos de dolor."
 
@@ -69,7 +69,7 @@ Aunque su rostro estaba cubierto de sangre y carne debido a las balas, su comple
 
 Dos barqueros, completamente atónitos, reaccionaron al fuerte llamado de atención y comenzaron a remar con todas sus fuerzas.
 
-  Las dos embarcaciones se acercaron gradualmente. Bei Wei estimó la distancia y saltó a bordo. Para su sorpresa, apenas había logrado estabilizarse cuando un hombre salió de la cabina y lo atacó con un cuchillo directamente en la cara, con una rapidez y ferocidad asombrosas. En lo que respecta a las habilidades de combate en esa pequeña embarcación, Bei Wei estaba muy por debajo de esta persona, pero él tenía un arma de 5 disparos. De forma casi instintiva, presionó el gatillo, y la diferencia en el armamento fue trágica: casi 16 perdigones impactaron directamente en el hombre, que quedó reducido a un colador, y la sangre salpicó la cara de Bei Wei debido a la cercanía.
+Las dos embarcaciones se acercaron gradualmente. Bei Wei estimó la distancia y saltó a bordo. Para su sorpresa, apenas había logrado estabilizarse cuando un hombre salió de la cabina y lo atacó con un cuchillo directamente en la cara, con una rapidez y ferocidad asombrosas. En lo que respecta a las habilidades de combate en esa pequeña embarcación, Bei Wei estaba muy por debajo de esta persona, pero él tenía un arma de 5 disparos. De forma casi instintiva, presionó el gatillo, y la diferencia en el armamento fue trágica: casi 16 perdigones impactaron directamente en el hombre, que quedó reducido a un colador, y la sangre salpicó la cara de Bei Wei debido a la cercanía.
 
 Bei Wei no dudó ni un instante y se precipitó dentro del compartimento. Esta pequeña embarcación se utilizaba como alojamiento para los pasajeros del barco, y el compartimento era muy pequeño, apenas cabía una cama y una mesita. Sobre la cama, yacía precisamente Wen Zong.
 
@@ -85,6 +85,6 @@ Bei Wei no dudó ni un instante y se precipitó dentro del compartimento. Esta p
 
 "Entendido."
 
-  El comandante Bei Wei ordenó a los miembros del equipo y a los guardias que sacaran a Wen Zong, y él mismo registró la cabina. Además de algunos cosméticos de mujeres en los cajones, no encontró nada de valor. Salió a la cubierta, recogió los casquillos de la escopeta y revisó cuidadosamente los dos cadáveres ensangrentados. No importaba qué objetos encontrara, los metía en una bolsa de nylon que llevaba en la cintura. Rápidamente regresó al bote y remó hacia el punto de encuentro.
+El comandante Bei Wei ordenó a los miembros del equipo y a los guardias que sacaran a Wen Zong, y él mismo registró la cabina. Además de algunos cosméticos de mujeres en los cajones, no encontró nada de valor. Salió a la cubierta, recogió los casquillos de la escopeta y revisó cuidadosamente los dos cadáveres ensangrentados. No importaba qué objetos encontrara, los metía en una bolsa de nylon que llevaba en la cintura. Rápidamente regresó al bote y remó hacia el punto de encuentro.
 
-  Desde que los fuegos artificiales comenzaron a sonar hasta que Wen Zong fue ayudado a subir a un carro de mula, todo el proceso duró solo cuatro segundos y fracción. Los bandidos no pudieron defenderse ante una operación sorpresa tan cuidadosamente planificada. Cuando el carro de mula se puso en marcha, los fuegos artificiales aún resonaban, como celebrando la primera victoria de los viajeros temporales.
+Desde que los fuegos artificiales comenzaron a sonar hasta que Wen Zong fue ayudado a subir a un carro de mula, todo el proceso duró solo cuatro segundos y fracción. Los bandidos no pudieron defenderse ante una operación sorpresa tan cuidadosamente planificada. Cuando el carro de mula se puso en marcha, los fuegos artificiales aún resonaban, como celebrando la primera victoria de los viajeros temporales.

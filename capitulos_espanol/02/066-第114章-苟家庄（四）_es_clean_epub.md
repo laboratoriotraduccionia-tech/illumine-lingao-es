@@ -1,7 +1,7 @@
 ## Capítulo 110: Goujiazhuan (IV)
 
 
-  Esa noche, el grupo militar, basándose en los resultados de la exploración y los interrogatorios, celebró una reunión sencilla de planificación. La reunión fue encabezada por Wu Deta, quien era el responsable de esta operación; según la terminología del siglo XXI, sería el "gerente del proyecto de reubicación de Goujiazhuan".
+Esa noche, el grupo militar, basándose en los resultados de la exploración y los interrogatorios, celebró una reunión sencilla de planificación. La reunión fue encabezada por Wu Deta, quien era el responsable de esta operación; según la terminología del siglo XXI, sería el "gerente del proyecto de reubicación de Goujiazhuan".
 
 Wu De quería llevar a cabo el proyecto de reubicación, y por supuesto, necesitaba gente a su disposición. No se sabe si fue una coincidencia o algo intencionado, pero varios líderes importantes del grupo militar no estaban en la ciudad de Bairen. De los jefes del ejército que quedaron después de que la cúpula del grupo militar se fuera, solo estaba He Ming. He Ming es un veterano militar, conocido por su disciplina y su capacidad para seguir órdenes. Coordinarse con Wu De, que proviene de la marina, era relativamente fácil para él.
 
@@ -20,7 +20,7 @@ En términos sencillos, se podría hacer que los miembros del equipo de asalto u
 
 "No es tan básico", dijo Ji Siyu con una sonrisa de suficiencia. Durante los últimos dos meses, el grupo de ingeniería química, debido a la falta de materias primas y energía esenciales, se ha centrado principalmente en proyectos de infraestructura: la instalación de los equipos de producción. Actualmente, la instalación de los equipos de la fábrica está casi completa, y este grupo de personas con una gran capacidad práctica pronto comenzará la producción experimental de "zha yao", una herramienta crucial para los viajeros temporales.
 
-  La base de la "zha药" es la industria química. Actualmente, el departamento de química tiene equipos y tecnología completos, pero carece de materias primas, especialmente carbón y sal. Por lo tanto, hasta ahora, los tres ácidos y dos álcalis básicos aún no se han podido poner en producción. Afortunadamente, el departamento de química había considerado las necesidades militares y, al comprar materias primas químicas, compró intencionalmente un lote de fertilizantes de nitrato de amonio ya fabricados, que no son para Wu Nanhai. Ahora, utilizando este lote de fertilizantes como materia prima, se ha producido una versión mejorada: la "zha药" de nitrato de amonio.
+La base de la "zha药" es la industria química. Actualmente, el departamento de química tiene equipos y tecnología completos, pero carece de materias primas, especialmente carbón y sal. Por lo tanto, hasta ahora, los tres ácidos y dos álcalis básicos aún no se han podido poner en producción. Afortunadamente, el departamento de química había considerado las necesidades militares y, al comprar materias primas químicas, compró intencionalmente un lote de fertilizantes de nitrato de amonio ya fabricados, que no son para Wu Nanhai. Ahora, utilizando este lote de fertilizantes como materia prima, se ha producido una versión mejorada: la "zha药" de nitrato de amonio.
 
 Cualquier persona con un conocimiento básico sobre explosivos sabe que el nitrato de amonio es, en sí mismo, un explosivo de baja potencia. El departamento de ingeniería química, por supuesto, no se conforma con simplemente usar fertilizantes como explosivos, ya que esto no demuestra su nivel de habilidad y también es un desperdicio de recursos limitados. El método para mejorar el nitrato de amonio y convertirlo en un explosivo más potente es agregarle otros componentes; existen varias fórmulas, algunas incluyen explosivos de alta potencia y otras aumentan los materiales combustibles. El nitrato de amonio se utiliza principalmente en proyectos de demolición y también puede usarse para llenar minas terrestres, granadas y otros explosivos. Durante la guerra de resistencia, el Ejército del Norte y el Ejército del Cuarto compraron nitrato de amonio en áreas ocupadas por el enemigo y lo procesaron para usarlo como explosivo. La ventaja es que tiene una potencia decente, es poco sensible y no explota por impactos de balas, fuego, o vibraciones.
 
@@ -38,13 +38,13 @@ En cuanto al explosivo, el grupo de ingeniería química no tenía mercurio disp
 
 "Zhang Bailin planteó una pregunta contundente: "¿Entonces, quiénes están dispuestos a llevar los paquetes de medicina? El enemigo tiene arcos, cañones a distancia, y de cerca, utilizan troncos, rocas y, además, botellas de ceniza, líquidos calientes y excrementos."
 
-"He Ming se rió: "Hay 50 rifles SKS bloqueando la muralla, la potencia de fuego es suficiente".
+"He Ming se rió: "Hay 50 rifles Tipo 56 bloqueando la muralla, la potencia de fuego es suficiente".
 
 "¡Pero los enemigos podrían esconderse detrás de los almenas!"
 
 "¿No sabes el poder del proyectil M43?", sonrió Lin Shenhe, el francotirador presente. "Este proyectil puede atravesar la capa de ladrillo que cubre las almenas a una distancia de 100 metros."
 
-  El fuego continuo de un SKS-D semiautomático con cargadores de 20 balas es comparable al de una ametralladora; ni siquiera el invencible "Tie Jin Gang" podría soportarlo, y mucho menos lanzar proyectiles desde su parte superior.
+El fuego continuo de un Tipo 56-D semiautomático con cargadores de 20 balas es comparable al de una ametralladora; ni siquiera el invencible "Tie Jin Gang" podría soportarlo, y mucho menos lanzar proyectiles desde su parte superior.
 
 "Sin los cañones, todavía no estoy completamente satisfecho", dijo Zhang Berlin, con un dejo de insatisfacción en su voz.
 

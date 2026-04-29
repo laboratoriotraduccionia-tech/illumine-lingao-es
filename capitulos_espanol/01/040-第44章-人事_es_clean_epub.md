@@ -1,6 +1,6 @@
 ## Capítulo 40: Asuntos de personal
 
-  "Ya he organizado todo, está en el apartamento 106 de la torre número 7", dijo Xiao Zishan, tomando una carpeta y fingiendo leerla. En realidad, él la recordaba todo, pero ese era un hábito que había adquirido por estar tantos años como empleado de oficina asistiendo a reuniones.
+"Ya he organizado todo, está en el apartamento 106 de la torre número 7", dijo Xiao Zishan, tomando una carpeta y fingiendo leerla. En realidad, él la recordaba todo, pero ese era un hábito que había adquirido por estar tantos años como empleado de oficina asistiendo a reuniones.
 
 "Meng Xian, de veinticinco años, ha vivido en el extranjero, domina el inglés y estudió finanzas y contabilidad."
 
@@ -104,7 +104,7 @@ Las otras personas permanecieron en silencio. Es una paradoja: ¿es mejor tener 
 
 Meng Xian estaba acostado en la cama de metal de su dormitorio, mirando la maleta grande que estaba en la cama de arriba. Afuera, todo estaba muy tranquilo, y se podían escuchar claramente los sonidos de una película para adultos que alguien estaba viendo en el piso de arriba.
 
-  Toda la pasión que sentía en el camino, una vez que se calmó, fue reemplazada por una inquietud difícil de disipar.
+Toda la pasión que sentía en el camino, una vez que se calmó, fue reemplazada por una inquietud difícil de disipar.
 
 ¿Qué me está pasando? ¿Me he vuelto loco? Dejé un buen trabajo en Estados Unidos para venir a esta zona rural de Guangdong. ¿Qué estoy tratando de lograr?
  ⃟ ¿Cambiar el destino? ¿Reconstruir la historia?

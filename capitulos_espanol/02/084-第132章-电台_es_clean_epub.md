@@ -5,8 +5,8 @@ Zhang Yuchen sabía que, en algún lugar al aire libre, en algún rincón oscuro
 
 Imaginemos esto hasta aquí, porque el rastreador de señales que tenía en la mente vestía un traje de buzo, pensó Zhang Yuchen, sacudiendo la cabeza para liberarse de esa fantasía de película de espías. Los agentes secretos no usan radios laterales. Sin embargo, en este momento, él y los técnicos de comunicaciones que estaban frente a la estación de radio, rastreando las señales, estaban haciendo el mismo trabajo.
 
-  Informe de evaluación personal de Zhang Yuchen, realizado por la División de Protección Política para viajeros temporales (confidencial):
-  "Nacido en el año XXXX, mes X, día X. Se unió al programa de viajes temporales en el año XXXX, mes X. Etnia: Han. Tendencia política: socialismo moderado. Personalidad: carácter amable, cercano a sus amigos, poco hablador; implacable con los enemigos. Moralidad: alta, sin malos hábitos, relaciones sociales claras. Especialidades: comunicaciones y criptografía. Desempeño: es un experto excepcional."
+Informe de evaluación personal de Zhang Yuchen, realizado por la División de Protección Política para viajeros temporales (confidencial):
+"Nacido en el año XXXX, mes X, día X. Se unió al programa de viajes temporales en el año XXXX, mes X. Etnia: Han. Tendencia política: socialismo moderado. Personalidad: carácter amable, cercano a sus amigos, poco hablador; implacable con los enemigos. Moralidad: alta, sin malos hábitos, relaciones sociales claras. Especialidades: comunicaciones y criptografía. Desempeño: es un experto excepcional."
 
 Zhang Yuchen originalmente trabajaba en el departamento de comunicaciones, y debido a su conocimiento de los códigos, fue transferido al departamento de inteligencia para participar en esta operación de inteligencia subterránea en Guangzhou, donde desempeñó el cargo de operador de comunicaciones.
 
@@ -36,7 +36,7 @@ Al escuchar esa llamada, también se estableció un vínculo de seguridad con la
 
 La cadena central ya ha preparado todo para recibir la respuesta. Zhang Yuchen miró el reloj y presionó los dedos sobre las teclas. Después de unos segundos, ya había olvidado su propia identidad, concentrando completamente su mente y cuerpo en sus ágiles dedos, y en los sonidos cortos y largos que emitía la máquina de telegrafía al presionar las teclas.
 
-  El estado parecía sorprendentemente bueno; su velocidad de transmisión era más rápida que en cualquier práctica anterior. A las 16:22, después de enviar el último grupo de códigos, emitió la señal de llamada GDA, indicando que la transmisión había terminado. Estaba medio apoyado en la silla, prestando atención a la respuesta de la central. En el edificio de oficinas de "Lingao Telecom" en Bairencheng, Zhang Yu, que recién comenzaba su carrera, probablemente estaba decodificando el mensaje grupo por grupo, para asegurarse de que no hubiera errores ni omisiones. Si los hubiera, tendría que volver a transmitirlo.
+El estado parecía sorprendentemente bueno; su velocidad de transmisión era más rápida que en cualquier práctica anterior. A las 16:22, después de enviar el último grupo de códigos, emitió la señal de llamada GDA, indicando que la transmisión había terminado. Estaba medio apoyado en la silla, prestando atención a la respuesta de la central. En el edificio de oficinas de "Lingao Telecom" en Bairencheng, Zhang Yu, que recién comenzaba su carrera, probablemente estaba decodificando el mensaje grupo por grupo, para asegurarse de que no hubiera errores ni omisiones. Si los hubiera, tendría que volver a transmitirlo.
 
 Seis quince minutos, la llamada de confirmación de la transmisión exitosa de BRL sonó. Así se completó la primera transmisión telegráfica de larga distancia de los viajeros temporales.
 
@@ -66,9 +66,9 @@ Guo Yi de rostro de repente se sonrojó: "¿De qué estás hablando? Rara vez te
 * 2000 kilogramos de grasa de cerdo, grasa de vaca u otros aceites vegetales.
 * 10 caballos.
 
-  Diez burros.
+Diez burros.
 
-  ……”
+……”
 
 "¡Dios mío, Wu Nanhai cree que este es un mercado agrícola!", exclamó Lu Rong. "¿Una burra? ¡Nunca he visto una burra en Liangguang!".
 
@@ -92,7 +92,7 @@ Aún más desconcertante es la pregunta de para qué se utilizarían 2000 kilogr
 
 Yán Màodá dijo: "Primero, debemos saber qué puede suministrar Guangzhou, y luego, qué podemos vender a Guangzhou."
 
-  Durante diversas reuniones, se recopilaron numerosas propuestas sobre los productos a comercializar. Según el informe del Ministerio de Industria, los productos que podrían estar disponibles a corto plazo son: sal, cigarrillos, cristalería, azúcar refinada, cerillas, jabón y productos de hierro, como agujas de coser. También se propuso la venta de alcohol destilado, pero como el alcohol destilado ya era común en la época Ming, no se podía obtener una gran rentabilidad como producto especial.
+Durante diversas reuniones, se recopilaron numerosas propuestas sobre los productos a comercializar. Según el informe del Ministerio de Industria, los productos que podrían estar disponibles a corto plazo son: sal, cigarrillos, cristalería, azúcar refinada, cerillas, jabón y productos de hierro, como agujas de coser. También se propuso la venta de alcohol destilado, pero como el alcohol destilado ya era común en la época Ming, no se podía obtener una gran rentabilidad como producto especial.
 
 "Tengo una opinión sobre el alcohol, pero este asunto requiere la cooperación de los departamentos de agricultura e industria", dijo Zhang Hongda.
 

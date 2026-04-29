@@ -1,7 +1,7 @@
 ## Capítulo 156: Entrenamiento
 
 
-  Los estudiantes de policía abrieron mucho la boca y sus ojos se agrandaron. Ya pensaban que la policía era simplemente funcionarios, y que, incluso si los australianos no consideraban a los funcionarios como gente de baja clase, no había nada digno de elogio. Para su sorpresa, los australianos primero mencionaron una idea tan grandiosa como "servir al pueblo", elevando la idea de "que la gente de baja clase consiga una comida" al nivel de "héroes que actúan con justicia".
+Los estudiantes de policía abrieron mucho la boca y sus ojos se agrandaron. Ya pensaban que la policía era simplemente funcionarios, y que, incluso si los australianos no consideraban a los funcionarios como gente de baja clase, no había nada digno de elogio. Para su sorpresa, los australianos primero mencionaron una idea tan grandiosa como "servir al pueblo", elevando la idea de "que la gente de baja clase consiga una comida" al nivel de "héroes que actúan con justicia".
 
 "En cuanto a por qué uno se convierte en policía, estoy seguro de que las respuestas de todos serán muy variadas. La mayoría de la gente viene aquí simplemente para ganarse la vida, para poder mantener a su familia, para comer bien y llevarse algo de dinero a casa", dijo. Aún sin terminar, la audiencia ya estaba riendo. Pan Jiexin también sonrió: "Y no están equivocados. Somos personas, necesitamos comer y tener placeres, tenemos una familia que mantener. Pero recuerden, nuestra comida y nuestra ropa son proporcionadas por el Yuanlao Yuan y el pueblo. Es cierto que uno se convierte en policía para su propio desarrollo y beneficios, pero lo más importante es devolver el favor al Yuanlao Yuan y al pueblo. No importa de dónde vengan, ni a qué se dedicaban antes, deben recordar esto siempre". Su mirada recorrió la sala: "Deben recordar siempre ser leales al Yuanlao Yuan, leales al país, leales al pueblo, leales a la ley".
 
@@ -39,7 +39,7 @@ Li Ziyu finalmente reaccionó y gritó: "¡Informe!".
 
 "¡Mantén el codo plano! ¡Presiona hacia abajo con el pecho! ¡Así... las piernas no deben flexionarse."
 
-  Un sargento se acercó a Li Ziyu y le habló durante unos siete u ocho minutos, mientras que los demás permanecían de pie, inmóviles.
+Un sargento se acercó a Li Ziyu y le habló durante unos siete u ocho minutos, mientras que los demás permanecían de pie, inmóviles.
 
 Pan Jiexin observaba todo el patio de recreo. Este lugar, originalmente un terreno vacío donde se realizaban ceremonias en el templo Wanshou, ahora había sido nivelado para convertirse en un patio. Sin embargo, aún parecía un poco pequeño. Algunos trabajadores estaban instalando barras y un puente colgante al lado del patio.
 
@@ -51,11 +51,11 @@ Pan Jiexin se acercó sigilosamente a la cocina, que había sido remodelada reci
 
 "Dame ropa", dijo él, sin rodeos ni formalidades. "No paren, sigan trabajando".
 
-  Pan Jexin se puso el uniforme de trabajo y el gorro, y comenzó a inspeccionar la cocina. Esta cocina fue enviada por el cuartel general de logística. Para reducir los problemas de eslabones intermedios y construcción redundante, actualmente, el trabajo de logística en la provincia de Guangdong es responsabilidad del cuartel general de logística. El ministro Hong predijo que, una vez que los diferentes grupos llegaran a la ciudad, la comida sería un problema importante, por lo que abrió con anticipación un "curso de capacitación en alimentación" en Hong Kong, para formar a varios grupos de cocina que pudieran satisfacer los estándares de alimentación e higiene del Consejo de Ancianos.
+Pan Jexin se puso el uniforme de trabajo y el gorro, y comenzó a inspeccionar la cocina. Esta cocina fue enviada por el cuartel general de logística. Para reducir los problemas de eslabones intermedios y construcción redundante, actualmente, el trabajo de logística en la provincia de Guangdong es responsabilidad del cuartel general de logística. El ministro Hong predijo que, una vez que los diferentes grupos llegaran a la ciudad, la comida sería un problema importante, por lo que abrió con anticipación un "curso de capacitación en alimentación" en Hong Kong, para formar a varios grupos de cocina que pudieran satisfacer los estándares de alimentación e higiene del Consejo de Ancianos.
 
 La comida se suministraba a través de la cocina de Lianqin, lo que al menos permitía a los "yuanlao" sentirse seguros. Los estándares de higiene de las diferentes épocas son completamente diferentes, y los conceptos de higiene de los nativos, que son muy meticulosos, presentan serios problemas incluso según los estándares de la época anterior. Lo más importante es que los chefs de origen inmigrante son mucho más confiables que los chefs nativos, que están acostumbrados a la idea de que "los cocineros no roban, y los granos no se pierden".
 
-  No subestimes la importancia de administrar la cafetería, incluso si parece algo pequeño; si se hace mal, puede convertirse en un problema grave. Aunque Wanshougong (Palacio de la Longevidad) es solo un programa de capacitación a corto plazo, Pan Jiexin lo considera la base para que la policía nacional se establezca en la provincia de Guangdong, y concede mucha importancia a los estudiantes.
+No subestimes la importancia de administrar la cafetería, incluso si parece algo pequeño; si se hace mal, puede convertirse en un problema grave. Aunque Wanshougong (Palacio de la Longevidad) es solo un programa de capacitación a corto plazo, Pan Jiexin lo considera la base para que la policía nacional se establezca en la provincia de Guangdong, y concede mucha importancia a los estudiantes.
 
 Se retiró la gran tapa de la vaporera, revelando dentro una serie de recipientes de hojalata, perfectamente alineados. Pan Jiexin tomó un tenedor y sacó uno de los recipientes, lo abrió de inmediato, tomó un palillo y lo introdujo dentro, esperó unos segundos, lo retiró y lo examinó cuidadosamente.
 
@@ -65,9 +65,9 @@ El arroz estaba perfectamente cocido, ni demasiado blando ni demasiado duro, y n
 
 "Sí, señor", respondió el jefe de cocina. Aunque ya estaba acostumbrado a todo tipo de inspecciones sorpresa, el hecho de que el jefe viniera personalmente a inspeccionar la cocina lo ponía muy nervioso; todos sabían que las exigencias del jefe eran muy altas.
 
-  Los platos ya estaban preparados. La comida para los estudiantes de la academia de policía se proporcionaba según los nuevos estándares de suministro para reclutas, establecidos por el cuartel general de operaciones conjuntas. Debido a que los reclutas de esta época generalmente tenían una condición física más baja, este estándar de comida era más alto y aumentaba la ingesta de proteínas.
+Los platos ya estaban preparados. La comida para los estudiantes de la academia de policía se proporcionaba según los nuevos estándares de suministro para reclutas, establecidos por el cuartel general de operaciones conjuntas. Debido a que los reclutas de esta época generalmente tenían una condición física más baja, este estándar de comida era más alto y aumentaba la ingesta de proteínas.
 
-  En una gran bandeja de metal, se colocaban los pasteles de pescado recién sacados del horno, con un aroma delicioso y un color dorado brillante. A un lado, había un guiso preparado en una olla grande. El guiso se hacía con verduras, "puré de carne congelado" y residuos de frijoles. El llamado puré de carne congelado son los residuos que se recogen diariamente de las líneas de producción de salchichas y pescado, y que se mezclan y se congelan. Se utilizan específicamente para preparar el guiso de la olla grande.
+En una gran bandeja de metal, se colocaban los pasteles de pescado recién sacados del horno, con un aroma delicioso y un color dorado brillante. A un lado, había un guiso preparado en una olla grande. El guiso se hacía con verduras, "puré de carne congelado" y residuos de frijoles. El llamado puré de carne congelado son los residuos que se recogen diariamente de las líneas de producción de salchichas y pescado, y que se mezclan y se congelan. Se utilizan específicamente para preparar el guiso de la olla grande.
 
 Finalmente, se sirvieron verduras frescas, "cocinadas" en agua salada. En teoría, estas verduras eran "de origen local", pero en realidad, todas provenían de Hong Kong. El ministro Hong descubrió que era mucho más barato y conveniente importar verduras cultivadas por la empresa agrícola desde Hong Kong que comprarlas en las cuatro áreas rurales de Guangzhou. Según los estándares de suministro habituales de esta época, esta comida se consideraba bastante abundante.
 

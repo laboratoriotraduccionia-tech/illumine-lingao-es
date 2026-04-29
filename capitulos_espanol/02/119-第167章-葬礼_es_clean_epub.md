@@ -1,7 +1,7 @@
 ## Capítulo 163: El funeral
 
 
-  Después de completar el entrenamiento básico de 4 semanas, el batallón de instrucción de la infantería se formó oficialmente. Aunque es solo un batallón, debido a su naturaleza como unidad modelo, su nivel de integración es muy alto, e incluye, además de infantería y fuerzas de reconocimiento, también artillería y unidades de apoyo.
+Después de completar el entrenamiento básico de 4 semanas, el batallón de instrucción de la infantería se formó oficialmente. Aunque es solo un batallón, debido a su naturaleza como unidad modelo, su nivel de integración es muy alto, e incluye, además de infantería y fuerzas de reconocimiento, también artillería y unidades de apoyo.
 
 El organigrama establecido por el comité militar imitaba, en gran medida, a los ejércitos europeos de principios del siglo XIX. La compañía era la unidad operativa básica, y cada batallón de infantería estaba compuesto por 6 compañías. Cada sección de infantería estaba formada por 3 escuadrones, y cada escuadrón tenía 9 hombres, lo que daba un total de 30 hombres por sección. Tres secciones formaban una compañía, con un total de 100 hombres. Cada compañía tenía un abanderado, un tamborilero y un flautista, además de un destacamento de cocina de 5 hombres.
 
@@ -17,7 +17,7 @@ Sin embargo, durante un ejercicio de lanzamiento de granadas en la nueva unidad,
 
  La fabricación de la mecha es técnicamente sencilla, basta con usar papel y fuego. Sin embargo, la fabricación manual requiere mucha habilidad. Nadie en la fábrica de explosivos tenía experiencia, y simplemente siguiendo los libros, las mechas fabricadas tenían una carga de pólvora desigual, algunas apretadas y otras sueltas, lo que provocaba una combustión irregular. Este problema existía desde antes y causaba que la explosión no fuera precisa en el tiempo, por lo que a menudo se usaban mechas más largas. Sin embargo, en las granadas, no se podía permitir demasiado margen de seguridad, de lo contrario, si la granada caía y tardaba mucho en explotar, la mecha podría apagarse.
 
-  Este problema, aunque no era ni muy grande ni muy pequeño, requirió que el equipo de ingeniería realizara experimentos durante varios días, buscando mejorar el proceso. Sin embargo, la solución resultó ser sorprendentemente sencilla: un día, un vendedor ambulante llegó al mercado de Dongmen con un producto que nadie había visto antes: fuegos artificiales. Dongmen Chuayu, al darse cuenta del valor de estos productos, los compró todos y, tras probarlos, los resultados fueron satisfactorios. Al día siguiente, este fabricante de fuegos artificiales fue obligado por los viajeros temporales a trasladar a toda su familia, junto con las herramientas y materiales necesarios para fabricar los fuegos artificiales, a la comuna de Bairen.
+Este problema, aunque no era ni muy grande ni muy pequeño, requirió que el equipo de ingeniería realizara experimentos durante varios días, buscando mejorar el proceso. Sin embargo, la solución resultó ser sorprendentemente sencilla: un día, un vendedor ambulante llegó al mercado de Dongmen con un producto que nadie había visto antes: fuegos artificiales. Dongmen Chuayu, al darse cuenta del valor de estos productos, los compró todos y, tras probarlos, los resultados fueron satisfactorios. Al día siguiente, este fabricante de fuegos artificiales fue obligado por los viajeros temporales a trasladar a toda su familia, junto con las herramientas y materiales necesarios para fabricar los fuegos artificiales, a la comuna de Bairen.
 
 El invierno de Lingao llegó sin ser anunciado, y aunque se le llama "pequeña era de hielo", Lingao, ubicada en la zona subtropical, mantiene una temperatura diurna que no baja de 20 grados Celsius, lo que la hace sentir mucho más fresca que durante el "Día". Actualmente, es la estación seca en Lingao, casi no llueve, y todos los días son soleados.
 
@@ -47,7 +47,7 @@ El ataúd, sujeto por cuerdas, fue descendido lentamente hasta la tumba.
 
 "¡Levanten las armas, ¡fuego!"
 
-  Siete soldados cuidadosamente seleccionados de la unidad de cazadores levantaron sus armas y dispararon al aire simultáneamente, realizando tres disparos. El sonido claro de las armas resonó en la ladera, y el silencio reinó a su alrededor. En ese silencio, la señal de "apaguen las luces" comenzó a sonar, con sus veinticuatro sílabas. Incluso entre los "viajeros temporales" que habían venido a participar en la representación propagandística, algunos se emocionaron hasta las lágrimas; la atmósfera, sin duda, podía ser contagiosa.
+Siete soldados cuidadosamente seleccionados de la unidad de cazadores levantaron sus armas y dispararon al aire simultáneamente, realizando tres disparos. El sonido claro de las armas resonó en la ladera, y el silencio reinó a su alrededor. En ese silencio, la señal de "apaguen las luces" comenzó a sonar, con sus veinticuatro sílabas. Incluso entre los "viajeros temporales" que habían venido a participar en la representación propagandística, algunos se emocionaron hasta las lágrimas; la atmósfera, sin duda, podía ser contagiosa.
 
 Después, comenzaron a cubrir el ataúd con tierra.
 
@@ -85,8 +85,8 @@ La hermosa hada te llama desde la lejanía.
 
 Viento caliente soplaba directamente.
 
-  Algo que conmueve mi alma.
-  Una sonrisa fría apareció en tu rostro.
+Algo que conmueve mi alma.
+Una sonrisa fría apareció en tu rostro.
 
 Con una mirada indiferente, observaba la tierra. Enfrenta la muerte con serenidad.
 
@@ -102,7 +102,7 @@ La hermosa hada te llama desde la lejanía.
 
 Para mañana, los hombres deben ir a luchar contra el enemigo.
 
-  Como la muerte, vagando en el cielo azul, abrazando la batalla, liberando toda la energía.
+Como la muerte, vagando en el cielo azul, abrazando la batalla, liberando toda la energía.
 
 Para mañana, por favor, no dudes más.
 

@@ -13,13 +13,13 @@ Si no fuera porque ya habían llegado a la capital algunos "viajeros temporales"
 
 "Zheng Cai", para decirlo en términos modernos, ocupó puestos de liderazgo importantes durante mucho tiempo dentro del grupo de Zheng Zhibao. Aunque esta persona pertenece a la rama colateral de la familia Zheng, después de que Zheng Zhibao fue capturado por la dinastía Qing, el grupo Zheng se quedó sin un líder claro. Él pudo destacar por sí mismo, retirándose a Xiamen para hacer frente a Zheng Chenggong. Su influencia es considerable.
 
-  Este líder de la banda, cuyo apellido es Wang, tenía una carta de un gerente profesional de la familia Zheng, y mucha información indicaba que eran originarios de la región de Minnan. Así, la figura de Zheng Zhibao se hizo evidente.
+Este líder de la banda, cuyo apellido es Wang, tenía una carta de un gerente profesional de la familia Zheng, y mucha información indicaba que eran originarios de la región de Minnan. Así, la figura de Zheng Zhibao se hizo evidente.
 
 "Aún antes de comenzar formalmente mi viaje como viajero temporal, me he enemistado con el clan Zheng, el mayor grupo marítimo de China durante la dinastía Ming y el principio de la dinastía Qing. Esto no es algo agradable."
 
 Yu Eshuui, dirigiéndose a los miembros preocupados del comité ejecutivo, dijo: "Esto es como el miedo infundado del hombre que se preocupaba por un muro". En la costa de Guangdong y Fujian durante la dinastía Ming, había tantos piratas como granos de arena. Aparte del grupo de los Zheng, existen actualmente entre veinte y treinta grupos de piratas/comerciantes marítimos reconocidos en la historia, sin mencionar a los pequeños piratas sin nombre que, motivados por la codicia, buscan oportunidades en cualquier momento y lugar, además de los holandeses, ingleses y portugueses... Es un verdadero paraíso de la ley de la selva. Para que los viajeros temporales se establezcan en Hainan, es imprescindible someter a todos ellos. Con quién te enemistes, ya sea ahora o más tarde, al final es lo mismo. Este tipo de personas, que son a la vez comerciantes y piratas, no se preocupan por si tienes una enemistad con ellos o no; si hay dinero que ganar, intervendrán, y si no tienen poder, serán robados. Las relaciones comerciales pacíficas se basan completamente en la disuasión mutua. Por lo tanto, no hay nada de malo en haberlos atacado; al menos, les hace saber que los viajeros temporales no son fáciles de provocar, y así evitarán ser tan descarados en el futuro.
 
-  Aunque se dijera eso, el Comité Ejecutivo, para prevenir posibles represalias de la familia Zheng, implementó un nivel de alerta máximo en la base de Guangzhou. Se remodelaron las viviendas, se instalaron vallas y puertas antirrobo, y se almacenaron varios extintores.
+Aunque se dijera eso, el Comité Ejecutivo, para prevenir posibles represalias de la familia Zheng, implementó un nivel de alerta máximo en la base de Guangzhou. Se remodelaron las viviendas, se instalaron vallas y puertas antirrobo, y se almacenaron varios extintores.
 
 Xiao Zishan fue a visitar a Gao Ju y le explicó en términos generales lo sucedido, lo cual dejó a señor Gao muy sorprendido. No esperaba que los comerciantes marítimos australianos tuvieran ese tipo de recursos, y que pudieran obtener información tan fácilmente en un lugar desconocido. Después de que se supo el asunto, aunque se envió un palanquín y un carro de mula a su disposición, como Xiao Zishan había solicitado, siempre hubo cierta reticencia a brindar una ayuda total. La idea original era esperar a que llegara la carta de rescate y que ellos vinieran a pedir ayuda, de modo que se pudiera ofrecer un gran favor.
 
@@ -56,13 +56,13 @@ Gao Ju se sobresaltó y rápidamente miró a su alrededor, pero no vio a nadie m
 
 Gao Ju, como era de esperar, aceptó la propuesta: "Sabes, hermano, a qué me dedico", suspiró. "Que este negocio haya podido prosperar hasta ahora se debe al favor de un eunuco llamado Yang, que trabaja en la corte."
 
-"Entonces, le expliqué ael eunuco Yang la relación que teníamos, aunque de forma general. Básicamente, le dije queel eunuco Yang era mi apoyo. Por supuesto, no mencioné los detalles de cómo se repartirían las cosas, pero Xiao Zishan seguramente lo entendió: este tipo de relación es algo que cualquier persona en China podría imaginar, y no importa si insistes en que es una relación de pura amistad, no serviría de nada."
+"Entonces, le expliqué al eunuco Yang la relación que teníamos, aunque de forma general. Básicamente, le dije que el eunuco Yang era mi apoyo. Por supuesto, no mencioné los detalles de cómo se repartirían las cosas, pero Xiao Zishan seguramente lo entendió: este tipo de relación es algo que cualquier persona en China podría imaginar, y no importa si insistes en que es una relación de pura amistad, no serviría de nada."
 
 "Sin embargo, actualmente, Yang Gong ya no tiene tanta influencia en el palacio", dijo Gao Ju en voz baja, casi como un susurro. "No es bien visto por el gerente de la fábrica."
 
 "¿Estos objetos son para intentar ganarse el favor de alguien?"
 
-"¿Quién se atrevería a decir que esto es un buen augurio? Con altares en todas direcciones, simplemente pedir un poco de tranquilidad ya es lo mejor que se puede esperar", dijo Gao Ju, secándose el sudor de la frente. "Yo yel eunuco Yang somos uno solo; sin importar cuánto cueste, debemos hacer todo lo posible para servir".
+"¿Quién se atrevería a decir que esto es un buen augurio? Con altares en todas direcciones, simplemente pedir un poco de tranquilidad ya es lo mejor que se puede esperar", dijo Gao Ju, secándose el sudor de la frente. "Yo y el eunuco Yang somos uno solo; sin importar cuánto cueste, debemos hacer todo lo posible para servir".
 
 "No te preocupes, hermano", dijo.
 
@@ -76,7 +76,7 @@ Gao Ju, como era de esperar, aceptó la propuesta: "Sabes, hermano, a qué me de
 
 "…Me gustaría pedirle, estimado hermano, que hable con los encargados de las sucursales en Australia y vea si es posible cambiar el sistema de liquidación a una vez al mes. Si puede lograrlo, le estaré muy agradecido y le ofreceré una compensación."
 
-  Esto es querer obtener un crédito, e incluso querer sobornar a este humilde servidor. Xiao Zishan pensó: la condición propuesta por Gao Ju no es algo inusual, en cualquier época. Para la mayoría de las empresas del siglo XXI, esto sería motivo de risa: el pago mensual es una regla establecida, y en Taiwan, los comerciantes aún están tratando de implementar un plazo de 120 días. Mientras tanto, en el siglo XVII y XVIII, los comerciantes extranjeros que comerciaban con China tardaban uno o dos años en recibir el pago por los bienes, y a menudo no recibían el pago, lo que provocaba muchos conflictos comerciales entre China y el extranjero.
+Esto es querer obtener un crédito, e incluso querer sobornar a este humilde servidor. Xiao Zishan pensó: la condición propuesta por Gao Ju no es algo inusual, en cualquier época. Para la mayoría de las empresas del siglo XXI, esto sería motivo de risa: el pago mensual es una regla establecida, y en Taiwan, los comerciantes aún están tratando de implementar un plazo de 120 días. Mientras tanto, en el siglo XVII y XVIII, los comerciantes extranjeros que comerciaban con China tardaban uno o dos años en recibir el pago por los bienes, y a menudo no recibían el pago, lo que provocaba muchos conflictos comerciales entre China y el extranjero.
 
 El problema es que el objetivo de su comercio de viajes en el tiempo es recaudar dinero lo más rápido posible, y las deudas aumentarían la inestabilidad en la recepción de pagos, algo que quizás el comité ejecutivo no aprobaría.
 

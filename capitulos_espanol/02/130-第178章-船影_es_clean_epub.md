@@ -1,9 +1,9 @@
 ## Capítulo 174: Reflejo de un barco
 
 
-  La reunión semanal del comité ejecutivo del barco "Fengcheng" estaba en curso. Originalmente, las reuniones semanales se celebraban en la sala de conferencias del patio del comité ejecutivo. Sin embargo, debido a que varios departamentos han realizado un buen trabajo en la construcción de infraestructura, se decidió que los departamentos que cumplen con los requisitos rotaran para ser anfitriones. Actualmente, los departamentos que rotan son la Comisión de Agricultura, el Ministerio de Marina, el Ministerio de Salud y el Centro de Comunicaciones, siendo este último el que recientemente completó un edificio de comunicaciones de tres pisos.
+La reunión semanal del comité ejecutivo del barco "Fengcheng" estaba en curso. Originalmente, las reuniones semanales se celebraban en la sala de conferencias del patio del comité ejecutivo. Sin embargo, debido a que varios departamentos han realizado un buen trabajo en la construcción de infraestructura, se decidió que los departamentos que cumplen con los requisitos rotaran para ser anfitriones. Actualmente, los departamentos que rotan son la Comisión de Agricultura, el Ministerio de Marina, el Ministerio de Salud y el Centro de Comunicaciones, siendo este último el que recientemente completó un edificio de comunicaciones de tres pisos.
 
-  Estimados miembros del comité directivo, jefes de los grupos especializados y asesores, hace poco disfrutaron de un helado de leche y miel preparado con productos del refrigerador del barco, adornado con muchos trozos de frutas tropicales. La miel y las frutas fueron traídas por el equipo de exploración a distancia.
+Estimados miembros del comité directivo, jefes de los grupos especializados y asesores, hace poco disfrutaron de un helado de leche y miel preparado con productos del refrigerador del barco, adornado con muchos trozos de frutas tropicales. La miel y las frutas fueron traídas por el equipo de exploración a distancia.
 
 De repente, mientras disfrutaba de la comida, una persona irrumpió en la habitación.
 
@@ -27,7 +27,7 @@ Dos minutos después, el teléfono se comunicó con Lelin.
 
 "¿A dónde fue?", Chen Haiyang estaba a punto de enojarse, pero entonces recordó que hoy no era el turno de Mond. "Voy enseguida".
 
-  Todos se acercaron juntos. Vieron que había entre cinco y seis puntos de luz en la pantalla, y que se estaban moviendo a una velocidad muy lenta. Por la trayectoria, parecía que no tenían intención de acercarse al puerto de Bolu. El radar de colisión del buque de carga mostraba un mapa muy claro, y después de analizar las ondas de reflexión de la tierra, Chen Haiyang determinó que el objetivo se encontraba aproximadamente a seis millas náuticas al este del puerto.
+Todos se acercaron juntos. Vieron que había entre cinco y seis puntos de luz en la pantalla, y que se estaban moviendo a una velocidad muy lenta. Por la trayectoria, parecía que no tenían intención de acercarse al puerto de Bolu. El radar de colisión del buque de carga mostraba un mapa muy claro, y después de analizar las ondas de reflexión de la tierra, Chen Haiyang determinó que el objetivo se encontraba aproximadamente a seis millas náuticas al este del puerto.
 
 "¿Qué tipo de embarcación?"
 
@@ -39,7 +39,7 @@ Dos minutos después, el teléfono se comunicó con Lelin.
 
 "Mingqiu asintió con la cabeza: "En noches como esta, sin estrellas ni luna, es realmente un buen momento para el contrabando y la infiltración"."
 
-  El control de los "viajeros temporales" sobre Bopu es limitado; ya sea en los puestos de observación de las baterías de cañones o en los puestos de avanzada ocultos en la costa, siempre habrá numerosos puntos ciegos. Sin mencionar la extensa zona de manglares a lo largo de la costa, que es prácticamente un canal de infiltración natural.
+El control de los "viajeros temporales" sobre Bopu es limitado; ya sea en los puestos de observación de las baterías de cañones o en los puestos de avanzada ocultos en la costa, siempre habrá numerosos puntos ciegos. Sin mencionar la extensa zona de manglares a lo largo de la costa, que es prácticamente un canal de infiltración natural.
 
 "Envíen a alguien con equipo de visión nocturna a buscar en la costa."
 
@@ -53,11 +53,11 @@ Ma Qianzhu observó que su forma de actuar era correcta y que no había nada má
 
 Después de un rato, la pantalla del radar mostró que estas embarcaciones no presentaban movimientos inusuales, simplemente continuaban navegando lentamente a una velocidad de 2 a 3 nudos en la costa de la península de Leizhou.
 
-  Durante la noche, la marina no podía enviar más barcos para realizar inspecciones, por lo que decidió fortalecer temporalmente la vigilancia. Al mismo tiempo, se reforzaron los puestos de observación encubiertos en las áreas clave.
+Durante la noche, la marina no podía enviar más barcos para realizar inspecciones, por lo que decidió fortalecer temporalmente la vigilancia. Al mismo tiempo, se reforzaron los puestos de observación encubiertos en las áreas clave.
 
 Después de que la reunión terminó, Wu Dexie rechazó la invitación de quedarse a dormir en el barco en Fengcheng. Él sentía que era más cómodo en el campamento de Bopu, ya que los camarotes del barco eran demasiado pequeños.
 
-  El campamento de Bopu ahora es prácticamente una base. Las tiendas han sido reemplazadas por filas de edificios de ladrillo, las carreteras están pavimentadas y las lámparas de biogás a lo largo del camino iluminan todo el campamento. Incluso la ciudad de Bairen no tiene estas instalaciones; aunque los estanques de biogás de Bairen son mucho más grandes, la mayor parte de su producción se utiliza en la cocina. Los sencillos baños naturales junto al río también han desaparecido. Aunque Wu De se mudó a la comuna de Bairen hace mucho tiempo, la tienda de estilo indio que construyó en el bosque cerca del centro de salud del campamento se mantuvo. Cada vez que Wu De venía a Bopu, arrancaba la hierba, limpiaba la tienda y se quedaba allí unos días, como de vacaciones. De hecho, el entorno es muy bueno: al salir del bosque, hay una playa y rocas, con buena exposición al sol y sin mosquitos.
+El campamento de Bopu ahora es prácticamente una base. Las tiendas han sido reemplazadas por filas de edificios de ladrillo, las carreteras están pavimentadas y las lámparas de biogás a lo largo del camino iluminan todo el campamento. Incluso la ciudad de Bairen no tiene estas instalaciones; aunque los estanques de biogás de Bairen son mucho más grandes, la mayor parte de su producción se utiliza en la cocina. Los sencillos baños naturales junto al río también han desaparecido. Aunque Wu De se mudó a la comuna de Bairen hace mucho tiempo, la tienda de estilo indio que construyó en el bosque cerca del centro de salud del campamento se mantuvo. Cada vez que Wu De venía a Bopu, arrancaba la hierba, limpiaba la tienda y se quedaba allí unos días, como de vacaciones. De hecho, el entorno es muy bueno: al salir del bosque, hay una playa y rocas, con buena exposición al sol y sin mosquitos.
 
 Caminó pasando por el centro de salud de Bolu, cuyas luces aún estaban encendidas; esta carpa médica se había transformado en un pequeño edificio de dos pisos de ladrillo y madera. El camino que conduce a la "villa" ya había sido reparado y estaba cuidadosamente pavimentado con piedras. Sonrió un poco, sintiéndose incómodo. Después de todo, ser funcionario es algo bueno.
 
@@ -65,7 +65,7 @@ Caminó pasando por el centro de salud de Bolu, cuyas luces aún estaban encendi
 
 La habitación estaba impecablemente limpia y ordenada, con pocos objetos pero colocados cuidadosamente. Sobre la mesa, destacaba un jarrón de porcelana que, en otro tiempo y lugar, valdría al menos unos cien mil yuanes, pero ahora contenía un gran ramo de flores silvestres. Wu De sabía que era obra de Chuyü; desde que esta joven le había ayudado una vez en una tienda, casi cada pocos días venía a ordenar esta villa.
 
-  Chūyǔ, desde que llegó a su lado, ha mostrado una actitud de total compromiso, cuidando de su vida y haciéndolo con gran diligencia. En varias ocasiones, antes de que él se durmiera, ella se quedaba en su habitación, con el rostro sonrojado. Sin embargo, Wú Dé no ha tomado ninguna acción. No es que no sienta atracción por las mujeres, pero Chūyǔ parece demasiado joven, y él no se siente cómodo. Además, actualmente nadie tiene una asistente personal, y sería inapropiado que él fuera el primero en tener una relación.
+Chūyǔ, desde que llegó a su lado, ha mostrado una actitud de total compromiso, cuidando de su vida y haciéndolo con gran diligencia. En varias ocasiones, antes de que él se durmiera, ella se quedaba en su habitación, con el rostro sonrojado. Sin embargo, Wú Dé no ha tomado ninguna acción. No es que no sienta atracción por las mujeres, pero Chūyǔ parece demasiado joven, y él no se siente cómodo. Además, actualmente nadie tiene una asistente personal, y sería inapropiado que él fuera el primero en tener una relación.
 
 Dejando el barco, sentía un poco de hambre, y justo 马千瞩 había dicho que quería venir a tomar algo y charlar, así que decidí pedir mariscos, hacía mucho que no las comía. 邬德舒 se estiró, se quitó la chaqueta y la colgó. Desde detrás de la cama, sacó un cofre de madera y lo abrió. Dentro del cofre, además de sacos de dormir y otros artículos de aseo, había un conjunto completo de equipos de supervivencia para uso en exteriores, todo bien organizado. En la parte inferior había una funda de lona negra. Dentro había un fusil de 56 milímetros y dos cargadores. En caso de cualquier imprevisto, podía ponerse el equipo, tomar el fusil y sobrevivir por sí mismo: en estos tiempos, es importante confiar en la organización, pero aún más en uno mismo.
 
@@ -77,11 +77,11 @@ Sacó la lámpara de la caja, extendió la red de nylon de 2 metros de ancho, co
 
 "Sí, claro. Por favor, espere un momento."
 
-  Al salir, llegó a la orilla de la bahía y, con la red de pesca, se adentró en el agua hasta la cintura. Extendió la red y hundió el extremo con peso en el barro, luego regresó a la orilla para colocar piedras que sujetaran el bambú. Colgó una linterna en otra vara y esperó a que llegaran las cangrejos. Esta red es una red de pescadores, con mallas tan finas como un colador; incluso un tiburón blanco quedaría atrapado, los peces pequeños mueren directamente y los peces grandes quedan cada vez más enredados. Lo más sorprendente es que esta red de nylon no se deteriora durante siglos, por lo que apenas requiere mantenimiento.
+Al salir, llegó a la orilla de la bahía y, con la red de pesca, se adentró en el agua hasta la cintura. Extendió la red y hundió el extremo con peso en el barro, luego regresó a la orilla para colocar piedras que sujetaran el bambú. Colgó una linterna en otra vara y esperó a que llegaran las cangrejos. Esta red es una red de pescadores, con mallas tan finas como un colador; incluso un tiburón blanco quedaría atrapado, los peces pequeños mueren directamente y los peces grandes quedan cada vez más enredados. Lo más sorprendente es que esta red de nylon no se deteriora durante siglos, por lo que apenas requiere mantenimiento.
 
 En la orilla, fumé un cigarrillo y me dirigí al lugar donde se estaba pescando. Ya se habían atrapado entre siete y ocho cangrejos. Me puse unos gruesos guantes de lona para quitar los cangrejos, usé una rama puntiaguda de sauce para ensartar los peces y cangrejos, y luego fui a la bahía a recoger algunas ostras. Regresé a la villa.
 
-  De vuelta en el corredor, se encendieron las lámparas y se añadieron más leña al hogar, que se avivó.
+De vuelta en el corredor, se encendieron las lámparas y se añadieron más leña al hogar, que se avivó.
 
 "Aquí no hay ni ollas, ni sal, ni aceite. Comamos cangrejos asados."
 

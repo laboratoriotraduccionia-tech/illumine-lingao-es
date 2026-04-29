@@ -3,20 +3,20 @@
 
 La información relacionada con las operaciones de la corte contra la rebelión, proveniente de canales comerciales y de inteligencia, comenzó a fluir constantemente hacia la sección de inteligencia. Rápidamente, los miembros del consejo, a través de reuniones de asuntos de seguridad, también se enteraron de esta situación.
 
-  En cuanto a la campaña de Ming, aparte de los asuntos militares, la mayoría de los ancianos simplemente lo ignoraban, e incluso no sentían que tuviera mucha relación con ellos. En primer lugar, nadie creía que el ejército Fubo sufriría una derrota militar; en segundo lugar, la línea de frente ya había avanzado hasta las Cinco Montañas, y no solo los ancianos de Hainan, sino incluso en Guangzhou, apenas sentían la amenaza de Ming. Guangzhou era aún más próspera que antes, y debido a los nuevos productos de los australianos y la afluencia de numerosas empresas, el nivel de lujo y disfrute había aumentado considerablemente, creando una atmósfera de opulencia y decadencia.
+En cuanto a la campaña de Ming, aparte de los asuntos militares, la mayoría de los ancianos simplemente lo ignoraban, e incluso no sentían que tuviera mucha relación con ellos. En primer lugar, nadie creía que el ejército Fubo sufriría una derrota militar; en segundo lugar, la línea de frente ya había avanzado hasta las Cinco Montañas, y no solo los ancianos de Hainan, sino incluso en Guangzhou, apenas sentían la amenaza de Ming. Guangzhou era aún más próspera que antes, y debido a los nuevos productos de los australianos y la afluencia de numerosas empresas, el nivel de lujo y disfrute había aumentado considerablemente, creando una atmósfera de opulencia y decadencia.
 
 Sin embargo, para el ejército y las agencias de inteligencia, la responsabilidad es primordial y no se puede tomar a la ligera. Inmediatamente se entrará en una fase de "preparación".
 
 El proceso de preparación de las fuerzas armadas es complejo y abarca muchos aspectos, pero la preparación de la unidad de inteligencia es mucho más sencilla; básicamente, se trata de saber qué planea hacer el emperador y cómo piensa hacerlo.
 
-  Según la información recibida, la dinastía Ming efectivamente estaba comenzando los preparativos para un ataque. Su intención ofensiva, incluso, se podía decir que no era un secreto. En esta época, el concepto de engaño estratégico aún era muy vago, y era difícil llevar a cabo operaciones con una seguridad absoluta. Por lo tanto, Jiangshan consideraba que este asunto era una conclusión inevitable y no había lugar para la discusión.
+Según la información recibida, la dinastía Ming efectivamente estaba comenzando los preparativos para un ataque. Su intención ofensiva, incluso, se podía decir que no era un secreto. En esta época, el concepto de engaño estratégico aún era muy vago, y era difícil llevar a cabo operaciones con una seguridad absoluta. Por lo tanto, Jiangshan consideraba que este asunto era una conclusión inevitable y no había lugar para la discusión.
 
 "La verdadera importancia radica en la siguiente pregunta: ¿cómo llevar a cabo la operación? Para ser precisos, la forma en que la dinastía Ming podría atacar no es el principal objetivo de los servicios de inteligencia. Existen solo algunas rutas posibles para atacar las provincias de Guangdong y Guangxi en el siglo XVII, y el ejército Ming carece de la capacidad para realizar operaciones anfibias o de desembarco aéreo. El estado mayor general puede analizar fácilmente las posibles rutas de avance y planes de operaciones del ejército Ming. Las tareas que pueden realizar los servicios de inteligencia son limitadas."
 
-  Lo que realmente despertó el interés de los servicios de inteligencia fueron algunos datos especiales que aparecían mezclados en la información que llegaba de diversas fuentes: ¿es realmente necesario que la dinastía Ming "descienda al sur", o mejor dicho, cuál es el verdadero propósito de esta expedición al sur?
-  Cualquier funcionario de la dinastía Ming que no estuviera mintiendo a plena luz del día sabía que la probabilidad de éxito de una campaña al sur contra los "kun" no era mayor que la de recuperar Shenyang o eliminar a los Manchúes, e incluso se podría decir que, con esfuerzo, aún era posible intentar eliminar a los Manchúes. Después de todo, Huang Taiji y su grupo de saqueadores tampoco estaban teniendo un buen momento. Una estrategia de desgaste y retraso era ventajosa para la dinastía Ming. En cambio, expulsar a los australianos era algo imposible.
+Lo que realmente despertó el interés de los servicios de inteligencia fueron algunos datos especiales que aparecían mezclados en la información que llegaba de diversas fuentes: ¿es realmente necesario que la dinastía Ming "descienda al sur", o mejor dicho, cuál es el verdadero propósito de esta expedición al sur?
+Cualquier funcionario de la dinastía Ming que no estuviera mintiendo a plena luz del día sabía que la probabilidad de éxito de una campaña al sur contra los "kun" no era mayor que la de recuperar Shenyang o eliminar a los Manchúes, e incluso se podría decir que, con esfuerzo, aún era posible intentar eliminar a los Manchúes. Después de todo, Huang Taiji y su grupo de saqueadores tampoco estaban teniendo un buen momento. Una estrategia de desgaste y retraso era ventajosa para la dinastía Ming. En cambio, expulsar a los australianos era algo imposible.
 
-  Iniciar una ofensiva con pocas posibilidades de éxito es, desde un punto de vista estratégico, muy perjudicial para la dinastía Ming.
+Iniciar una ofensiva con pocas posibilidades de éxito es, desde un punto de vista estratégico, muy perjudicial para la dinastía Ming.
 
 "Los miembros más antiguos podían ver esto, ¿acaso los hombres de visión de la dinastía Ming no podían verlo? ¿Acaso tenían algún arma secreta?"
 
@@ -50,7 +50,7 @@ Un problema de formalidades se convirtió en un obstáculo insuperable.
 
 "Es imposible que el Consejo de Ancianos reconozca a la dinastía Ming como la principal.
 
-  Para que la dinastía Ming aceptara al Consejo de Ancianos y su estatus equivalente, la propia dinastía Ming no podía aceptarlo.
+Para que la dinastía Ming aceptara al Consejo de Ancianos y su estatus equivalente, la propia dinastía Ming no podía aceptarlo.
 
 En Macao, la situación de los portugueses es especial; en realidad, ellos solo son residentes temporales, y la administración Ming siempre ha estado presente allí.
 
@@ -62,7 +62,7 @@ Los rebeldes, que solo controlaban las provincias de Guangzhou y Hainan, causaro
 
 Además, como se autodenominan "de la dinastía Song", es más fácil aceptarlo desde el punto de vista emocional.
 
-  Sin embargo, la cuestión de cómo proceder concretamente y qué excusas utilizar para negociar la paz es un problema muy difícil.
+Sin embargo, la cuestión de cómo proceder concretamente y qué excusas utilizar para negociar la paz es un problema muy difícil.
 
 Especialmente en la época de la dinastía Ming, siempre se había mantenido la política de "no ceder territorio, no pagar indemnizaciones, no establecer alianzas matrimoniales", y incluso si el emperador era capturado, se continuaría con esa política. Además, ahora la situación de la corte aún no ha llegado a un punto crítico.
 
@@ -88,7 +88,7 @@ Especialmente en la época de la dinastía Ming, siempre se había mantenido la 
 
 "Esto es lo que mencioné antes, la reputación del gobierno." Xǔ Kě continuó diciendo: "Quizás debería decir, la reputación de Chóngzhēn. Todos han asistido a las conferencias del profesor Chang, y probablemente tienen cierta comprensión de la personalidad y las acciones de Chóngzhēn. Él espera mucho convertirse en un gobernante sabio y virtuoso, y no quiere tener ninguna imperfección. Por lo tanto, es muy poco probable que él pueda iniciar este debate."
 
-  Los presentes asintieron, pues todos habían escuchado a Yu Eshuai hablar sobre el "incidente de Chen Xinjia".
+Los presentes asintieron, pues todos habían escuchado a Yu Eshuai hablar sobre el "incidente de Chen Xinjia".
 
 "Por eso, él esperaba que alguien influyente en la corte tomara la iniciativa de proponer esta sugerencia. De hecho, él ya había insinuado esto a Wen Tiren durante varios meses, pero Wen Tiren no había hecho caso de sus insinuaciones."
 

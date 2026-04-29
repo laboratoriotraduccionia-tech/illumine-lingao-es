@@ -23,7 +23,7 @@ Aún era un oficial del ejército Ming. Esto sorprendió un poco a Li Yunxing. E
 
 "Huang Xiong" vaciló un momento: "Este humilde sirviente, debido a una discusión con su superior, mató accidentalmente a esta última."
 
-  Sigue siendo un asesino. Ahora entiendo por qué tuvo que huir tan lejos.
+Sigue siendo un asesino. Ahora entiendo por qué tuvo que huir tan lejos.
 
 "¿Por qué surgieron conflictos?"
 
@@ -87,7 +87,7 @@ Los soldados dispararon de nuevo. La bala dio en el blanco.
 
 Dongmen asintió con la cabeza y se paró junto al soldado. Luego, sacó una pistola "Jielinde" de su cinturón, la recargó con balas vacías y dijo: "Hagámoslo de nuevo".
 
-  Los soldados comenzaron a limpiar los cañones, y fue entonces cuando Dongmen Zhaotian disparó. El movimiento repentino de los soldados provocó que algo de pólvora se derramara.
+Los soldados comenzaron a limpiar los cañones, y fue entonces cuando Dongmen Zhaotian disparó. El movimiento repentino de los soldados provocó que algo de pólvora se derramara.
 
 El único miembro del estado mayor comenzó a presionar: "Rápido".
 
@@ -107,7 +107,7 @@ La pistola volvió a disparar. Inmediatamente después, escuchó su urgencia: "�
 
 Los soldados, temblorosos, introdujeron las balas en los cañones.
 
-  Otro disparo. Todos pudieron ver que la mano del soldado temblaba al colocar la tapa del arma.
+Otro disparo. Todos pudieron ver que la mano del soldado temblaba al colocar la tapa del arma.
 
 "¡Disparen, disparen rápido!", continuaba él.
 

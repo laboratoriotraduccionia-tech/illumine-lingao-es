@@ -1,6 +1,6 @@
 ## Capítulo 44: La noche anterior
 
-  El cielo al atardecer era de un color amarillo pálido y tranquilo, con nubes flotando en la lejanía, bordeadas de un ligero brillo dorado. La brisa marina de la tarde acariciaba suavemente, mientras el barco "Fengcheng Lun" navegaba con estabilidad. El clima en el estrecho de Qiongzhou era bueno, con olas de menos de 1.5 metros, por lo que incluso las personas sin experiencia en navegación no sentían náuseas.
+El cielo al atardecer era de un color amarillo pálido y tranquilo, con nubes flotando en la lejanía, bordeadas de un ligero brillo dorado. La brisa marina de la tarde acariciaba suavemente, mientras el barco "Fengcheng Lun" navegaba con estabilidad. El clima en el estrecho de Qiongzhou era bueno, con olas de menos de 1.5 metros, por lo que incluso las personas sin experiencia en navegación no sentían náuseas.
 
 La proa de la enorme embarcación cortaba las olas, avanzando con fuerza. Los viajeros temporales, que se hacían pasar por mochileros, se encontraban en grupos pequeños, sentados o de pie en la cubierta, observando el paisaje a ambos lados del estrecho. El estrecho de Qiongzhou es una vía marítima muy estrecha, y desde el barco se pueden ver las costas de la península de Leizhou al norte y de la isla de Hainan al sur.
 
@@ -16,7 +16,7 @@ Afortunadamente, todos aún estaban inmersos en la emoción de estar a punto de 
 
 Los miembros del Comité Ejecutivo que estaban en la azotea no tenían la tranquilidad para reflexionar sobre este momento histórico. Según el plan, los barcos de pesca y las embarcaciones de desembarco que salieron del puerto pesquero, así como el yate de la supuesta sucursal norteamericana, deberían reunirse con ellos a las 17:00. En ese momento, constantemente usaban binoculares para buscar en el mar, pero solo veían pequeños grupos de barcos pesqueros costeros que regresaban.
 
-  La sede de Norteamérica llegó primero, diez minutos antes de lo previsto, en un yate de colores azul y blanco, con velas triangulares blancas que se extendían a lo largo de la embarcación. El yate se deslizó elegantemente sobre el agua, provocando una oleada de vítores y silbidos entre los viajeros temporales. A través de los binoculares del comité ejecutivo, se podía ver a Shì Niǎo Rén agitando los brazos en la cubierta, mientras que desde la escotilla debajo de las velas, una mujer extranjera con los ojos muy abiertos y una expresión de confusión, salía a la vista. Claramente, ella no entendía lo que estaba sucediendo.
+La sede de Norteamérica llegó primero, diez minutos antes de lo previsto, en un yate de colores azul y blanco, con velas triangulares blancas que se extendían a lo largo de la embarcación. El yate se deslizó elegantemente sobre el agua, provocando una oleada de vítores y silbidos entre los viajeros temporales. A través de los binoculares del comité ejecutivo, se podía ver a Shì Niǎo Rén agitando los brazos en la cubierta, mientras que desde la escotilla debajo de las velas, una mujer extranjera con los ojos muy abiertos y una expresión de confusión, salía a la vista. Claramente, ella no entendía lo que estaba sucediendo.
 
 "Esta chica tiene una buena figura", murmuró Wang Luobin mientras sostenía unos binoculares.
 
@@ -42,7 +42,7 @@ Esta extraña flota avanzaba lentamente a lo largo de la costa de Hainan. El pue
 
 Con una serie de órdenes, Mond, asumiendo el papel de armador, reunió a toda la tripulación en la cubierta. Inmediatamente después, los miembros del equipo militar sacaron sus escopetas de cinco cañones. Sin necesidad de más explicaciones, más de 20 miembros de la tripulación cooperaron y bajaron a un bote salvavidas especialmente preparado, dirigiéndose hacia la costa.
 
-  En ese momento, todas las luces de los barcos estaban encendidas, y los focos de los barcos iluminaban la cubierta, haciéndola resplandecer. Los viajeros temporales se dieron cuenta de que un momento histórico estaba a punto de ocurrir, y se levantaron, abriendo sus ojos para mirar fijamente la parte trasera del barco.
+En ese momento, todas las luces de los barcos estaban encendidas, y los focos de los barcos iluminaban la cubierta, haciéndola resplandecer. Los viajeros temporales se dieron cuenta de que un momento histórico estaba a punto de ocurrir, y se levantaron, abriendo sus ojos para mirar fijamente la parte trasera del barco.
 
 高音喇叭中响起试音的“喂喂”声，紧接着，传来一个高亢、略显过分的男声：
 “注意，穿越五分钟准备！全体人员穿救生衣，进入舱内！”
@@ -53,7 +53,7 @@ Se estima que el agujero de gusano, al ser atravesado, podría generar oscilacio
 
 "De acuerdo, empecemos."
 
-  A medida que el agujero de gusano, suspendido en la proa del barco, era lentamente empujado por la misma, esta enorme superficie reflectante emitía un brillo sin precedentes, iluminando una vasta área del mar circundante. Los bordes del agujero de gusano irradiaban energía como fuegos artificiales.
+A medida que el agujero de gusano, suspendido en la proa del barco, era lentamente empujado por la misma, esta enorme superficie reflectante emitía un brillo sin precedentes, iluminando una vasta área del mar circundante. Los bordes del agujero de gusano irradiaban energía como fuegos artificiales.
 
 "Aguanta", murmuró Wen Desi, pensando para sí mismo: "Espero que esto no explote de repente. No ir a otra dimensión no es un problema grave, pero si ocurre una explosión de energía, probablemente sería tan poderosa como una bomba atómica".
 
@@ -65,7 +65,7 @@ Los "viajeros temporales" en la cabina no sabían que afuera estaba ocurriendo a
 
 Nadie respondió a su llamada; muchas personas cerraron los ojos en el instante en que las luces parpadearon.
 
-  Poco después de que el barco de pesca, situado detrás del buque principal, atravesara el agujero de gusano, el canal del agujero de gusano, que originalmente reflejaba la luz de los barcos como un espejo, comenzó a brillar. En cuestión de segundos, se expandió desde una superficie plana hasta convertirse en una esfera que emitía una luz intensa, y luego... desapareció. El agua de mar se precipitó rápidamente para llenar el vacío de agua de más de 50 metros de diámetro que había dejado el agujero de gusano. El agua que caía chocó entre sí y se elevó a más de 10 metros, produciendo un sonido como el de un tambor gigante. El barco de pesca que seguía al buque principal, a unos 100 metros del agujero de gusano, fue azotado sin piedad por olas de 4 a 5 metros de altura. Afortunadamente, la preparación fue exhaustiva y no hubo pérdidas.
+Poco después de que el barco de pesca, situado detrás del buque principal, atravesara el agujero de gusano, el canal del agujero de gusano, que originalmente reflejaba la luz de los barcos como un espejo, comenzó a brillar. En cuestión de segundos, se expandió desde una superficie plana hasta convertirse en una esfera que emitía una luz intensa, y luego... desapareció. El agua de mar se precipitó rápidamente para llenar el vacío de agua de más de 50 metros de diámetro que había dejado el agujero de gusano. El agua que caía chocó entre sí y se elevó a más de 10 metros, produciendo un sonido como el de un tambor gigante. El barco de pesca que seguía al buque principal, a unos 100 metros del agujero de gusano, fue azotado sin piedad por olas de 4 a 5 metros de altura. Afortunadamente, la preparación fue exhaustiva y no hubo pérdidas.
 
 "¡Todos los barcos, informen su estado!", gritó Mengde por la radio.
 
@@ -83,40 +83,40 @@ Nadie respondió a su llamada; muchas personas cerraron los ojos en el instante 
 
 "América del Norte, todo normal... ¡Ah, hay un bote a motor acercándose rápidamente a mi embarcación!"
 
-  Los miembros del comité ejecutivo sintieron un vuelco en el corazón. ¿Un bote a motor? ¿De dónde podía haber salido un bote a motor en el siglo XVII?
-  Sin esperar a que Wen Desi hablara, Xi Yajiang ya estaba llamando a través del comunicador al líder de la flota de barcos de pesca, Zhao De.
+Los miembros del comité ejecutivo sintieron un vuelco en el corazón. ¿Un bote a motor? ¿De dónde podía haber salido un bote a motor en el siglo XVII?
+Sin esperar a que Wen Desi hablara, Xi Yajiang ya estaba llamando a través del comunicador al líder de la flota de barcos de pesca, Zhao De.
 
 "Zhao, reúna a un equipo y vaya a la embarcación en América del Norte para brindar apoyo."
 
 "¡Entendido!"
 
-  Posteriormente, el buque "Fengcheng" encendió dos potentes faros, y la brillante luz iluminó instantáneamente la superficie del mar, donde ya se había instalado la noche. Dos de los barcos de la flota de barcos de pesca liderada por Zhao De se separaron de la formación y, con la proa cortando las olas, se dirigieron a toda velocidad hacia los lados del velero, uno hacia el sur y otro hacia el norte.
+Posteriormente, el buque "Fengcheng" encendió dos potentes faros, y la brillante luz iluminó instantáneamente la superficie del mar, donde ya se había instalado la noche. Dos de los barcos de la flota de barcos de pesca liderada por Zhao De se separaron de la formación y, con la proa cortando las olas, se dirigieron a toda velocidad hacia los lados del velero, uno hacia el sur y otro hacia el norte.
 
-  La luz iluminaba toda la superficie del agua. Wen Desi, a través del telescopio, vio una lancha que se acercaba al velero norteamericano. Era una pequeña moto de agua, diseñada para uso marítimo y con capacidad para 8 personas. ¿Estaban ellos también dentro, o simplemente no habían logrado llegar?
+La luz iluminaba toda la superficie del agua. Wen Desi, a través del telescopio, vio una lancha que se acercaba al velero norteamericano. Era una pequeña moto de agua, diseñada para uso marítimo y con capacidad para 8 personas. ¿Estaban ellos también dentro, o simplemente no habían logrado llegar?
 
-  Él miró a las personas que estaban a su alrededor y descubrió que cada miembro del Comité Ejecutivo tenía el rostro serio; era evidente que todos pensaban lo mismo.
+Él miró a las personas que estaban a su alrededor y descubrió que cada miembro del Comité Ejecutivo tenía el rostro serio; era evidente que todos pensaban lo mismo.
 
 El personal del comité ejecutivo, casi todos mayores de treinta años, se consideraban a sí mismos como personas con años de experiencia en el mundo, y la calma y la serenidad eran lo mínimo que se esperaba de ellos. Sin embargo, incluso ellos estaban empezando a perder la compostura. El agujero de gusano había desaparecido, y si no se lograba cruzarlo, sería una catástrofe.
 
-  Chang Shide miraba desesperadamente a través de los prismáticos, observando los alrededores. No se veía la luna en la superficie del agua, y todo estaba sumido en la oscuridad. Solo la zona marítima centrada en el barco "Fengcheng" estaba iluminada, lo que hacía que la oscuridad circundante pareciera aún más profunda.
+Chang Shide miraba desesperadamente a través de los prismáticos, observando los alrededores. No se veía la luna en la superficie del agua, y todo estaba sumido en la oscuridad. Solo la zona marítima centrada en el barco "Fengcheng" estaba iluminada, lo que hacía que la oscuridad circundante pareciera aún más profunda.
 
 "Probablemente ya llegaron", murmuró para sí mismo, y de repente recordó algo, así que rápidamente comenzó a revisar los equipos.
 
 "¡El GPS ha perdido la señal!", exclamó.
 
-  Este gesto también sirvió como una advertencia para los demás, y varios sacaron sus teléfonos móviles. En la pantalla aparecía el mensaje: "Buscando señal". La señal de los teléfonos móviles debería ser normal en el estrecho de Qiongzhou.
+Este gesto también sirvió como una advertencia para los demás, y varios sacaron sus teléfonos móviles. En la pantalla aparecía el mensaje: "Buscando señal". La señal de los teléfonos móviles debería ser normal en el estrecho de Qiongzhou.
 
-  Las diferentes frecuencias de la radio estaban completamente vacías, solo se escuchaba el chillido del eco de la corriente.
+Las diferentes frecuencias de la radio estaban completamente vacías, solo se escuchaba el chillido del eco de la corriente.
 
 "¡Lo logramos!" Los miembros del comité ejecutivo, dejando de lado la compostura, estallaron en vítores.
 
-  Dado que estamos en el siglo XVII, no importa quién suba a bordo de la lancha a motor, no afectará el panorama general.
+Dado que estamos en el siglo XVII, no importa quién suba a bordo de la lancha a motor, no afectará el panorama general.
 
 "Se ha tomado el control de toda la embarcación y se han capturado a 4 personas. Parece que son viajeros temporales", anunció la voz de Zhao De a través de la radio.
 
 "Por favor, envíen todo a la línea de producción de productos estrella."
 
-  La noche aún era larga, y acercarse a la costa en esas condiciones era una acción arriesgada. El Comité Ejecutivo decidió que todos los barcos permanecieran anclados, y que la operación de desembarco se llevaría a cabo al amanecer. Era el siglo XVII, y ningún barco tenía la capacidad de causar daños significativos. Por precaución, las luces de todos los barcos se encendieron, iluminando el área. El personal del grupo militar había desembarcado un lote de armas del barco de vela norteamericano y las distribuyó entre los diferentes barcos. Ahora, con armas y personal, no temían a nada.
+La noche aún era larga, y acercarse a la costa en esas condiciones era una acción arriesgada. El Comité Ejecutivo decidió que todos los barcos permanecieran anclados, y que la operación de desembarco se llevaría a cabo al amanecer. Era el siglo XVII, y ningún barco tenía la capacidad de causar daños significativos. Por precaución, las luces de todos los barcos se encendieron, iluminando el área. El personal del grupo militar había desembarcado un lote de armas del barco de vela norteamericano y las distribuyó entre los diferentes barcos. Ahora, con armas y personal, no temían a nada.
 
 "¡Oídme, ustedes! ¡Bandidos! ¡Piratas! ¡Alborotadores! ¡Basta!", exclamó una voz de anciano con gran fuerza justo cuando Xiao Zishan abrió la puerta.
 

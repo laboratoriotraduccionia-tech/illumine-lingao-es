@@ -1,7 +1,7 @@
 ## Capítulo 168: Análisis de la batalla
 
 
-  En la playa, fuera del pueblo, dentro de la tienda del cuartel general, se reunieron oficiales, suboficiales y cadetes de la unidad "Baotu Yuanzheng". Las enfermeras del equipo médico servían té a todos. Todos estaban de buen humor, aunque hubo algunos momentos embarazosos, pero la batalla se desarrolló de manera muy estándar, siguiendo el proceso perfecto descrito en los manuales, y no hubo bajas.
+En la playa, fuera del pueblo, dentro de la tienda del cuartel general, se reunieron oficiales, suboficiales y cadetes de la unidad "Baotu Yuanzheng". Las enfermeras del equipo médico servían té a todos. Todos estaban de buen humor, aunque hubo algunos momentos embarazosos, pero la batalla se desarrolló de manera muy estándar, siguiendo el proceso perfecto descrito en los manuales, y no hubo bajas.
 
 "Debemos adquirir el hábito de analizar y mejorar nuestras estrategias después de cada operación. En las reuniones, todos deben sentirse libres de expresar sus opiniones sin restricciones."
 
@@ -45,7 +45,7 @@ Wei Aiwen parecía estar sentado sobre una estufa, y la situación se había con
 
 "Huang Xiong pensó que la forma en que estos extranjeros administraban el ejército era realmente diferente: después de una victoria, en lugar de recompensar a los soldados por sus méritos, organizaban grandes banquetes para celebrar a las tres ramas del ejército, y luego encontraban fallas, como buscar defectos en un huevo. ¿Cómo se puede esperar que la gente te sea leal con este tipo de liderazgo?"
 
-  Huang Xiong no negó que esta nueva unidad militar le había causado muchas impresiones, especialmente en lo que respecta a los armamentos, y la palabra "extremadamente avanzados" probablemente no era una exageración. Sin embargo, siempre había considerado que sus métodos de disciplina y sus estrategias de combate eran ingenuos y ridículos, y probablemente la forma de pensar de los bárbaros extranjeros era diferente a la de la civilización china.
+Huang Xiong no negó que esta nueva unidad militar le había causado muchas impresiones, especialmente en lo que respecta a los armamentos, y la palabra "extremadamente avanzados" probablemente no era una exageración. Sin embargo, siempre había considerado que sus métodos de disciplina y sus estrategias de combate eran ingenuos y ridículos, y probablemente la forma de pensar de los bárbaros extranjeros era diferente a la de la civilización china.
 
 "El efecto de la pieza de artillería de montaña de 12 libras fue mejor de lo esperado, aunque la desventaja es que no puede transportar suficientes proyectiles; afortunadamente, fue en un combate de baja intensidad, de lo contrario no serían suficientes. El nivel de mecanización de la unidad es bajo, pero el número de efectivos está establecido según los estándares de mecanización. Además de llevar su equipo y armas, los soldados deben transportar una parte considerable del equipo de artillería, lo que consume mucha energía. Afortunadamente, contamos con los enlaces de cada aldea que actúan como porteadores, de lo contrario, muchos soldados se quedarían atrás durante las marchas", concluyó Ying Yu sobre la artillería.
 
@@ -112,7 +112,7 @@ Todos comenzaron a reír, y el ambiente se volvió un poco más relajado.
 
 "Hay muy pocas verduras, ¡comer así por la mañana causará problemas de calor!"
 
-  Sobre las opiniones relacionadas con la comida, hubo muchas, pero no fueron tan intensas como se esperaba, probablemente porque aún no habían probado el "caocheng wuhao", unas galletas de arroz instantáneas. Dongmen Chuiyu ya había probado una, y el sabor era bastante terrible.
+Sobre las opiniones relacionadas con la comida, hubo muchas, pero no fueron tan intensas como se esperaba, probablemente porque aún no habían probado el "caocheng wuhao", unas galletas de arroz instantáneas. Dongmen Chuiyu ya había probado una, y el sabor era bastante terrible.
 
 Después de que la reunión terminara, varios ancianos del pueblo fueron llevados frente a la tienda de campaña del cuartel general y se arrodillaron juntos. Luego, fueron ayudados a levantarse por Wen Desi, quien los recibió y los hizo entrar.
 
@@ -120,9 +120,9 @@ Los habitantes y los recursos de Baotucun son necesarios para los viajeros tempo
 
 Tres personas entraron. Dos de ellas pertenecían a las familias más importantes del pueblo, y eran de la provincia de Fujian: una se llamaba Lin, era carpintero, y la otra se llamaba Lu, era herrero. Estas dos familias llegaron enteras y tenían la mayor influencia en el pueblo. La tercera persona, de apellido Zhang, era de la provincia de Guangdong y era constructor naval, pero solo vino con su esposa e hijos.
 
-  La familia Lin también sabe construir barcos, pero su habilidad es limitada y solo puede construir barcos pequeños. Zhang Chuangjian es el técnico principal aquí. Solo Zhang Chuangjian sabe cómo construir los barcos de 400 "liao" que son los más populares. Zhang Chuangjian sabe que está solo y, siendo de Guangdong, mantiene en secreto sus técnicas de construcción naval, no admite aprendices, y él mismo se encarga de las tareas esenciales como el diseño y la creación de prototipos. Los demás solo realizan trabajos manuales y no conocen los detalles.
+La familia Lin también sabe construir barcos, pero su habilidad es limitada y solo puede construir barcos pequeños. Zhang Chuangjian es el técnico principal aquí. Solo Zhang Chuangjian sabe cómo construir los barcos de 400 "liao" que son los más populares. Zhang Chuangjian sabe que está solo y, siendo de Guangdong, mantiene en secreto sus técnicas de construcción naval, no admite aprendices, y él mismo se encarga de las tareas esenciales como el diseño y la creación de prototipos. Los demás solo realizan trabajos manuales y no conocen los detalles.
 
-  Los residentes del pueblo, a excepción de los clanes principales de las familias Lin y Lu, eran en su mayoría campesinos y artesanos que habían huido de las provincias de Fujian y Guangdong. En realidad, el poder real en todo el pueblo estaba en manos de las familias Lin y Lu, y Zhang, el carpintero, también tenía una gran influencia debido a sus habilidades. Wen Desi recorrió el pueblo y, tras interrogar a varios aldeanos, descubrió que la mayoría de la gente era explotada: los talleres, las herramientas e incluso los barcos... casi todas las instalaciones de producción pertenecían a las familias Lin y Lu.
+Los residentes del pueblo, a excepción de los clanes principales de las familias Lin y Lu, eran en su mayoría campesinos y artesanos que habían huido de las provincias de Fujian y Guangdong. En realidad, el poder real en todo el pueblo estaba en manos de las familias Lin y Lu, y Zhang, el carpintero, también tenía una gran influencia debido a sus habilidades. Wen Desi recorrió el pueblo y, tras interrogar a varios aldeanos, descubrió que la mayoría de la gente era explotada: los talleres, las herramientas e incluso los barcos... casi todas las instalaciones de producción pertenecían a las familias Lin y Lu.
 
 Después de comprender la situación, Wen Desi ya había ideado un plan para desestabilizar a esos individuos. Zhang, el carpintero, era claramente el más fácil de manipular entre los tres ancianos.
 

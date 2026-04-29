@@ -31,7 +31,7 @@ Dugu, furioso, agarró un porrazo policial.
 
 "¿Cómo se llama el líder de tu organización?"
 
-  ……
+……
 
 "¿Cómo se llama tu jefe?"
 
@@ -41,7 +41,7 @@ Dugu, furioso, agarró un porrazo policial.
 
 "¿La primera vez que fuiste pirata?"
 
-  ……
+……
 
 "¿La primera vez que fuiste pirata?"
 
@@ -53,7 +53,7 @@ Dugu, furioso, agarró un porrazo policial.
 
 "¿De dónde eres originario?"
 
-  ……
+……
 
 "¿Dices que eres de Nan'an, en la provincia de Fujian?"
 
@@ -69,7 +69,7 @@ Dugu, furioso, agarró un porrazo policial.
 
 "¡Dime tu nombre!"
 
-  ……
+……
 
 Después de 4 horas de un intenso interrogatorio, Han Yiping finalmente abrió la boca. En la 25ª respuesta a la pregunta "¿Quién es el líder de tu familia?", por fin pronunció el nombre "Liu Xiang".
 
@@ -115,7 +115,7 @@ Claro, debe ser ella. Ran Yao pensó: este mundo es realmente pequeño. Sin emba
 
 Ran Yao preguntó muchas cosas sobre la fuerza, la base de operaciones y los nombres de los principales líderes del Grupo Liu Xiang, y Han Yiping respondió a todo con detalle. Para algunas cosas que no sabía o no podía decir, Ran Yao no lo presionó, ya que, según su experiencia, la información que podía obtener de Han Yiping era limitada.
 
-  Se interrogó a algunas personas más, pero no se obtuvo información relevante. Luego, se comenzó a interrogar a algunos "A San", quienes hablaban en un idioma incomprensible. Finalmente, se recordó que, dado que trabajaban para los españoles, probablemente hablarían español, así que rápidamente se buscaron personas que entendieran español para que actuaran como intérpretes.
+Se interrogó a algunas personas más, pero no se obtuvo información relevante. Luego, se comenzó a interrogar a algunos "A San", quienes hablaban en un idioma incomprensible. Finalmente, se recordó que, dado que trabajaban para los españoles, probablemente hablarían español, así que rápidamente se buscaron personas que entendieran español para que actuaran como intérpretes.
 
 "No entiende español", respondió Xiao Zishan después de consultar los archivos de personal.
 
@@ -145,7 +145,7 @@ Diana Mendoza, por supuesto, no creía ni una palabra de sus mentiras. Después 
 
 En un momento dado, después de una larga serie de contratiempos, llantos y agotamiento, y gracias a la persuasión constante de las esposas de los hermanos Qian, ella llegó a comprender claramente su situación: sin Zhou Weishen, no podría siquiera conseguir comida. Diana Mendoza, al igual que todas las mujeres en situaciones similares, finalmente se resignó. Zhou Weishen, por supuesto, no fue delicado; aprovechó el miedo y la vulnerabilidad de una hermosa mujer en un entorno desconocido para convertir fácilmente a Diana Mendoza en su mujer.
 
-  Para el comité ejecutivo, era una buena noticia que los problemas emocionales y físicos de Zhou Weishen estuvieran resueltos. Sin embargo, Xiao Zishan no podía entender qué utilidad tenía esta joven latina que estudiaba inglés y literatura; además, apenas hablaba chino. Xiao Zishan solo pudo incluirla en la lista de "personas a cargo", un privilegio que solo disfrutaban los hijos traídos por algunos viajeros temporales. En esta ocasión, su trabajo como traductora de español fue muy útil, ya que hablaba inglés y español con fluidez.
+Para el comité ejecutivo, era una buena noticia que los problemas emocionales y físicos de Zhou Weishen estuvieran resueltos. Sin embargo, Xiao Zishan no podía entender qué utilidad tenía esta joven latina que estudiaba inglés y literatura; además, apenas hablaba chino. Xiao Zishan solo pudo incluirla en la lista de "personas a cargo", un privilegio que solo disfrutaban los hijos traídos por algunos viajeros temporales. En esta ocasión, su trabajo como traductora de español fue muy útil, ya que hablaba inglés y español con fluidez.
 
 "Cuando esos hombres vieron a esa hermosa mujer, de apariencia alta y atractiva, con rasgos de ascendencia indo-europea, aparecer en la oficina, sus ojos se iluminaron. No es sorprendente que la gente diga que Venezuela es el país de la belleza; es simplemente la combinación de las virtudes de tres razas diferentes: amarilla, blanca y negra. ¡Zhou Weishen, eres un depravado!"
 
@@ -163,7 +163,7 @@ Dos españoles fueron reclutados para embarcarse en Manila. Uno era marinero y e
 
 A través de sus palabras, Ran Yao finalmente comprendió cómo los barcos de vela españoles se habían involucrado en esta batalla. También conoció el nombre del comandante: Aragones Cidonía. Era un "caballero" español, encargado de reclutar a un comandante para una gran embarcación española que debía navegar a las costas chinas para comerciar o saquear, y, si era posible, establecer una base comercial con la ayuda de piratas chinos locales.
 
-  Alarigones no tenía los recursos para equipar una expedición de este tamaño, por lo que esta expedición se organizó como una sociedad anónima. El virrey español de Manila y algunos funcionarios, terratenientes, eran los inversores, y el equipamiento de los barcos, el reclutamiento del personal y la compra de suministros y armas se dividían según las acciones. Alarigones Cidonía, como comandante, tenía derecho a una quinta parte de las ganancias totales. Si lograba obtener un puesto avanzado en la costa, recibiría una bonificación adicional.
+Alarigones no tenía los recursos para equipar una expedición de este tamaño, por lo que esta expedición se organizó como una sociedad anónima. El virrey español de Manila y algunos funcionarios, terratenientes, eran los inversores, y el equipamiento de los barcos, el reclutamiento del personal y la compra de suministros y armas se dividían según las acciones. Alarigones Cidonía, como comandante, tenía derecho a una quinta parte de las ganancias totales. Si lograba obtener un puesto avanzado en la costa, recibiría una bonificación adicional.
 
 En cuanto a todos los soldados y marineros que participaron en la expedición, no recibían salario ni paga, pero sí tenían derecho a una quinta parte de los ingresos totales, distribuidos según el rango.
 
@@ -173,4 +173,4 @@ Ran Yao no estaba interesado en eso; lo que más le preocupaba era la capacidad 
 
 Según sus propias declaraciones, el barco "Lady Scarborough" contaba con 400 personas a bordo, incluyendo soldados, marineros, médicos, artilleros, artesanos, sirvientes, entre otros. Una parte de la tripulación era de origen español, portugués, italiano, chino, indio, africano y mestizo, mientras que el resto eran malayos reclutados localmente.
 
-  Es realmente muy internacional. No es de extrañar que Yu Eshuui haya dicho que, en esta época, los marineros eran una colección de toda clase de personas de diferentes etnias. Además de este grupo peculiar, el barco "Escarlote, Condesa de Scarborough" transportaba muchos suministros, incluyendo productos para el comercio, una gran cantidad de armas y explosivos, que ya se habían vendido a parte a Liu Xiang, así como herramientas y materiales necesarios para construir fortalezas. Llevaban relativamente poca comida y agua, ya que principalmente operaban a lo largo de la costa y podían desembarcar para reponerlos. Después de aliarse con el líder local de los piratas, Liu Xiang, fue más fácil reponer estos suministros. Se dice que, en el próximo paso, planean atacar a un pirata chino llamado "Yi Guan".
+Es realmente muy internacional. No es de extrañar que Yu Eshuui haya dicho que, en esta época, los marineros eran una colección de toda clase de personas de diferentes etnias. Además de este grupo peculiar, el barco "Escarlote, Condesa de Scarborough" transportaba muchos suministros, incluyendo productos para el comercio, una gran cantidad de armas y explosivos, que ya se habían vendido a parte a Liu Xiang, así como herramientas y materiales necesarios para construir fortalezas. Llevaban relativamente poca comida y agua, ya que principalmente operaban a lo largo de la costa y podían desembarcar para reponerlos. Después de aliarse con el líder local de los piratas, Liu Xiang, fue más fácil reponer estos suministros. Se dice que, en el próximo paso, planean atacar a un pirata chino llamado "Yi Guan".

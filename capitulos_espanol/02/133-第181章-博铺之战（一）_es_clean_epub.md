@@ -8,8 +8,8 @@
 
 La marina, tras recibir el informe de Xueziliang, había elevado el nivel de alerta de amarillo a naranja. Todo el personal de combate se reunió y se desplegó en los puntos estratégicos, al mismo tiempo que se enviaron patrullas a lugares potencialmente vulnerables.
 
-  El sonido de los disparos transformó los caballos de color naranja en rojo. ¡Estado de combate!
-  "¡Ataque en la playa! ¡Todos los presentes deben reunirse frente a la oficina del puerto!"
+El sonido de los disparos transformó los caballos de color naranja en rojo. ¡Estado de combate!
+"¡Ataque en la playa! ¡Todos los presentes deben reunirse frente a la oficina del puerto!"
 
 "¡Ataque en la playa! ¡Todos los presentes deben reunirse frente a la oficina del puerto!", se escuchó en el campamento, que de repente se llenó de actividad. Personas con atuendos desordenados salieron corriendo de los dormitorios y barracones.
 
@@ -73,7 +73,7 @@ La primera incursión de los piratas en el cabo de Lingao fue rápidamente repel
 
 Varios viajeros temporales, acompañados de infantes de marina, se dieron la vuelta y corrieron. Toda la península de Lingao estaba dentro del alcance de los cañones de este barco, y continuar defendiendo el lugar equivalía a una muerte segura.
 
-  Alagónnes, aprovechando el resplandor de las bocas de cañón, observó con satisfacción cómo decenas de personas huían. Los piratas que habían desembarcado emergían de entre los arbustos para perseguir a los fugitivos. Ninguna escopeta, por potente que fuera, podía igualar la fuerza de estos cañones de 24 libras. Alagónnes, con el ánimo elevado, ordenó que los botes continuaran avanzando, manteniendo el barco paralelo al promontorio de Lingao, mientras que este escupía fuego y humo sin cesar.
+Alagónnes, aprovechando el resplandor de las bocas de cañón, observó con satisfacción cómo decenas de personas huían. Los piratas que habían desembarcado emergían de entre los arbustos para perseguir a los fugitivos. Ninguna escopeta, por potente que fuera, podía igualar la fuerza de estos cañones de 24 libras. Alagónnes, con el ánimo elevado, ordenó que los botes continuaran avanzando, manteniendo el barco paralelo al promontorio de Lingao, mientras que este escupía fuego y humo sin cesar.
 
 En medio del caos, un rayo de luz brillante, como una espada, descendió desde la plataforma de vigilancia y, después de dar algunas vueltas sobre la superficie del mar, se fijó firmemente en el gran barco español.
 
@@ -81,7 +81,7 @@ El barco "Lady Scarborough" se movía lentamente bajo el faro, como una dama ele
 
 "¡Fuego!", exclamó Li Di, sin tiempo para apreciar el momento.
 
-  Los cañones de 12 libras de la batería costera resonaron, y las balas cayeron cerca del barco "Condesa de Scarborough", levantando olas. Inmediatamente después, las baterías costeras ya construidas a lo largo de la costa, y los cañones que acababan de ser arrastrados a la orilla, comenzaron a disparar en sucesión.
+Los cañones de 12 libras de la batería costera resonaron, y las balas cayeron cerca del barco "Condesa de Scarborough", levantando olas. Inmediatamente después, las baterías costeras ya construidas a lo largo de la costa, y los cañones que acababan de ser arrastrados a la orilla, comenzaron a disparar en sucesión.
 
 "¡Dios mío! ¡Esto es brujería!" Cuando el intenso resplandor atrapó firmemente la gran embarcación española, Aragones gritó desesperadamente. Era como si el sol más abrasador del verano castellano apareciera en medio de la noche; algunos marineros, al intentar buscar la fuente de la luz, quedaron cegados y se retorcían de dolor en la cubierta.
 
@@ -102,4 +102,4 @@ Los artilleros improvisados rápidamente levantaron el obús de montaña que hab
 
 "¡75 metros, doble carga de perdigones!"
 
-  Todas las luces de los puestos de guardia que rodeaban el campamento estaban encendidas. Estas luces, diseñadas para eventos y decoración urbana, aunque no eran para defensa antiaérea, eran lo suficientemente brillantes y tenían un alcance considerable, desorientando a los piratas. Los cartuchos de escopeta dobles disparados continuamente desde las fortificaciones eran como una red de muerte, cobrando vidas entre la multitud. Los piratas en el promontorio de Lingao se retiraron una vez más. Algunos escaparon nadando hacia la orilla, esperando subir a bordo de los barcos, mientras que otros, presa del pánico, corrieron hacia los manglares cercanos. El fuego de las armas del campamento pronto los siguió, y las ramas y hojas fueron destrozadas por las balas y los proyectiles.
+Todas las luces de los puestos de guardia que rodeaban el campamento estaban encendidas. Estas luces, diseñadas para eventos y decoración urbana, aunque no eran para defensa antiaérea, eran lo suficientemente brillantes y tenían un alcance considerable, desorientando a los piratas. Los cartuchos de escopeta dobles disparados continuamente desde las fortificaciones eran como una red de muerte, cobrando vidas entre la multitud. Los piratas en el promontorio de Lingao se retiraron una vez más. Algunos escaparon nadando hacia la orilla, esperando subir a bordo de los barcos, mientras que otros, presa del pánico, corrieron hacia los manglares cercanos. El fuego de las armas del campamento pronto los siguió, y las ramas y hojas fueron destrozadas por las balas y los proyectiles.

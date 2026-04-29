@@ -5,7 +5,7 @@ Fu Bueri se puso en camino. En el momento de partir, sentía sentimientos encont
 
 En el pueblo de Meiyang, el mayor terrateniente y la persona con mayor autoridad no era Fú Buer, sino su tío, Fú Yousan, un anciano. La invitación para la reunión se le envió a él. Sin embargo, este tío era mayor, tenía poca experiencia y rara vez salía de casa; incluso la llegada de una oficina de libros del condado era un evento importante para él. Ni hablar de la llegada de visitantes extranjeros en grandes barcos. Además, había escuchado historias sobre los "kunzei" (piratas), que consideraba seres malignos con cejas verdes y ojos rojos, y se negaba rotundamente a ir. Ante la imposibilidad de convencerlo, la familia recurrió a Fú Buer, la única persona que había tenido contacto con los "kunzei". Las esposas y los hijos de Fú Yousan lloraban y se arrodillaban en el salón de su casa, rogándole que aceptara la tarea y le ofrecieron muchas riquezas.
 
-  Fú Bù'er sentía cierto temor, pero recordaba que él mismo había sido prisionero de los "fanáticos", y sabía que, aunque eran poderosos, no eran gente malvada. Eran justos y sabían distinguir entre el bien y el mal. Ahora, lo que querían era una "reunión de negociación", que probablemente se trataba de enviar suministros y personal. Él mismo había sido capturado por un escuadrón de ataque y no había sido asesinado, así que ir a la reunión no sería peligroso. Había oído que su antiguo empleado, Mǎ Péng, también trabajaba para los "de pelo corto", y que este último se había llevado a su esposa. Un grupo que permitía a sus subordinados mantener a sus esposas no podía ser tan malo. Además, no pudo resistir la tentación de los bienes que Fú Yǒusān le envió y las súplicas de sus familiares, así que finalmente aceptó.
+Fú Bù'er sentía cierto temor, pero recordaba que él mismo había sido prisionero de los "fanáticos", y sabía que, aunque eran poderosos, no eran gente malvada. Eran justos y sabían distinguir entre el bien y el mal. Ahora, lo que querían era una "reunión de negociación", que probablemente se trataba de enviar suministros y personal. Él mismo había sido capturado por un escuadrón de ataque y no había sido asesinado, así que ir a la reunión no sería peligroso. Había oído que su antiguo empleado, Mǎ Péng, también trabajaba para los "de pelo corto", y que este último se había llevado a su esposa. Un grupo que permitía a sus subordinados mantener a sus esposas no podía ser tan malo. Además, no pudo resistir la tentación de los bienes que Fú Yǒusān le envió y las súplicas de sus familiares, así que finalmente aceptó.
 
 "La esposa de Fu Buerui sabía que él iba a una reunión, y en secreto lo molestó varias veces, no queriendo que fuera, especialmente después de que la última vez insistió en acompañar a la familia Huang a la guerra y resultó herida. Finalmente, se necesitó dinero para rescatarla. Ahora, de nuevo, iba a meterse en problemas. Esto causó muchos problemas a Fu Buerui durante varios días. Finalmente, se fue a la reunión con un niño pequeño."
 
@@ -15,7 +15,7 @@ El invierno es una buena época para viajar lejos desde Lingao. En invierno, la 
 
 Aunque así se diga, salir de casa no es algo fácil. En Hainan, no hay muchos burros o mulas, a menos que se trate de personas con recursos que puedan permitirse palanquines o, aún más raramente, caballos. Tanto los terratenientes como los trabajadores, sin importar su posición, generalmente se desplazan a pie. Fú Bueri tenía una ventaja sobre los campesinos comunes: tenía a un joven criado que lo ayudaba a llevar las cosas. El chico, de catorce o quince años, estaba muy entusiasmado con la idea de acompañarlo al mercado de Dongmen, mucho más que el señor. La noche anterior, ya había preparado todas las cosas.
 
-  En la antigüedad, salir de casa era muy difícil. Las posadas eran algo raro; no existían establecimientos como "Yuelai Guanzhan" que estuvieran por todas partes, como en las películas de artes marciales. Para alojarse, era necesario llegar a ciudades o mercados más grandes. Tampoco existía la posibilidad de pedir una "habitación superior" de forma despreocupada, como en las series de televisión; de hecho, incluso las habitaciones individuales eran escasas. Incluso si había habitaciones individuales, las posadas no proporcionaban ropa de cama ni otros artículos de tocador; estos debían ser llevados por el viajero.
+En la antigüedad, salir de casa era muy difícil. Las posadas eran algo raro; no existían establecimientos como "Yuelai Guanzhan" que estuvieran por todas partes, como en las películas de artes marciales. Para alojarse, era necesario llegar a ciudades o mercados más grandes. Tampoco existía la posibilidad de pedir una "habitación superior" de forma despreocupada, como en las series de televisión; de hecho, incluso las habitaciones individuales eran escasas. Incluso si había habitaciones individuales, las posadas no proporcionaban ropa de cama ni otros artículos de tocador; estos debían ser llevados por el viajero.
 
 Comer y beber, así como otras necesidades básicas, no podían ser satisfechas sin llegar a un mercado más grande. Por lo tanto, todo, desde la comida hasta la ropa, debía llevarse consigo. Preparar el equipaje resultaba en una bolsa bastante grande.
 
@@ -35,13 +35,13 @@ Se podía ver que, afuera de la estructura, había cuatro o cinco niños de unos
 
 "No lo sé, estas personas son muy astutas, y estoy en peligro en Lingao", dijo el erudito, fingiendo estar muy sorprendido.
 
-  Fú Bueri no podía ocuparse de tantas cosas, así que simplemente siguió a la multitud. Cuando le tocó su turno, la persona que estaba detrás de la mesa revisó su invitación, sacó de un cajón una pequeña lámina de papel muy rígida, a la que estaba atada una cuerda delgada, y comenzó a escribir el nombre de su aldea y su nombre.
+Fú Bueri no podía ocuparse de tantas cosas, así que simplemente siguió a la multitud. Cuando le tocó su turno, la persona que estaba detrás de la mesa revisó su invitación, sacó de un cajón una pequeña lámina de papel muy rígida, a la que estaba atada una cuerda delgada, y comenzó a escribir el nombre de su aldea y su nombre.
 
 "¿Es este tu acompañante?"
 
 "Sí." Fú Buerji se apresuró a decir: "Es un joven que trabaja en mi casa."
 
-  La persona encargada de procesar el trámite echó un vistazo y escribió en la sección de notas de la solicitud: "Acompañado por una persona, un joven de sexo masculino."
+La persona encargada de procesar el trámite echó un vistazo y escribió en la sección de notas de la solicitud: "Acompañado por una persona, un joven de sexo masculino."
 
 "Llévalo puesto, alrededor del cuello", dijo la persona vestida de gris. "Este es tu comprobante para las reuniones; con él, puedes obtener alojamiento y comida gratis en los lugares designados. No lo pierdas; si van a los lugares a los que deben ir y no tienen esta tarjeta, serán arrestados."
 
@@ -57,7 +57,7 @@ Se podía ver que, afuera de la estructura, había cuatro o cinco niños de unos
 
 La multitud comenzó a agitarse, y entonces, detrás de la estructura, apareció un "zhen kun" (un término despectivo), vestido con una túnica corta de colores llamativos, y dijo en voz baja: "¿Quién quiere rebelarse?".
 
-  De repente, todos se quedaron en silencio. Varios "falsos castrados" que estaban de servicio se pusieron rígidos y alguien gritó: "Informe al superior..."
+De repente, todos se quedaron en silencio. Varios "falsos castrados" que estaban de servicio se pusieron rígidos y alguien gritó: "Informe al superior..."
 
 "No es necesario hacer un informe", dijo Dugu Qiuhong, y sus ojos se posaron en los funcionarios reunidos alrededor de la mesa. "¿Estás planeando una rebelión?"
 
@@ -69,18 +69,18 @@ Este funcionario, por supuesto, entendió sus palabras. Al ver que este "verdade
 
 "Dugu Qiuhun" escuchó a alguien decir que él era un ciudadano modelo, y se sintió un poco incómodo, como si estuviera comparado con los "monstruos japoneses". Entonces, levantó la mano y dijo: "¡Continúen con el registro!"
 
-  Los hombres de la nobleza fueron ayudados a apartarse, y algunos, con intenciones aduladoras, les ofrecieron agua y los abanicaron para que se recuperaran. Naturalmente, su actitud desafiante desapareció, y obedientemente registraron a cinco sirvientes para que los acompañaran.
+Los hombres de la nobleza fueron ayudados a apartarse, y algunos, con intenciones aduladoras, les ofrecieron agua y los abanicaron para que se recuperaran. Naturalmente, su actitud desafiante desapareció, y obedientemente registraron a cinco sirvientes para que los acompañaran.
 
-  Fú Bù'er observó esta representación y se sintió bastante complacido. En el pasado, estos hombres de la nobleza parecían tener los ojos en la frente, pero incluso frente a los "calvos", no podían evitar ser humillados.
+Fú Bù'er observó esta representación y se sintió bastante complacido. En el pasado, estos hombres de la nobleza parecían tener los ojos en la frente, pero incluso frente a los "calvos", no podían evitar ser humillados.
 
 "Observen el mundo de hoy..." Un joven estudioso, con una expresión amarga, estaba a punto de decir algo, pero alguien lo agarró del brazo y le dijo: "¡¿Quieres morir?!"
 
 "Fú Buer no entendía el significado de esas palabras y, sin prestar atención, se dirigió hacia adelante."
 
-  Bairun Tan es un lugar donde Fu Bueri estuvo como prisionero durante un tiempo. En ese momento, estuvo en una choza improvisada dentro del alambrado que rodeaba el campamento de los invasores durante varios días. Ahora, al regresar, no lo reconoce en absoluto; hay casas por todas partes, todas construidas con ladrillos rojos y tejas, aunque el estilo es un poco diferente al de la zona, pero parecen sólidas y bonitas. En comparación, la casa de su tío, Fu Yousan, parece muy sencilla. Las calles del mercado están pavimentadas con ladrillos y piedras, y hay muchas tiendas a lo largo de ellas. Hay mucha gente en las calles, incluyendo personas de diferentes lugares que vienen a comprar y vender, y también hay muchos invasores, tanto reales como falsos, caminando y hablando. Fu Bueri estaba fascinado y le preguntó a un empleado de una tienda: "¿Dónde estamos?". El empleado lo miró como si fuera un idiota:
-  "Aquí es el mercado de Dongmen, ¿no sabes que has venido?".
+Bairun Tan es un lugar donde Fu Bueri estuvo como prisionero durante un tiempo. En ese momento, estuvo en una choza improvisada dentro del alambrado que rodeaba el campamento de los invasores durante varios días. Ahora, al regresar, no lo reconoce en absoluto; hay casas por todas partes, todas construidas con ladrillos rojos y tejas, aunque el estilo es un poco diferente al de la zona, pero parecen sólidas y bonitas. En comparación, la casa de su tío, Fu Yousan, parece muy sencilla. Las calles del mercado están pavimentadas con ladrillos y piedras, y hay muchas tiendas a lo largo de ellas. Hay mucha gente en las calles, incluyendo personas de diferentes lugares que vienen a comprar y vender, y también hay muchos invasores, tanto reales como falsos, caminando y hablando. Fu Bueri estaba fascinado y le preguntó a un empleado de una tienda: "¿Dónde estamos?". El empleado lo miró como si fuera un idiota:
+"Aquí es el mercado de Dongmen, ¿no sabes que has venido?".
 
-  ¡Así que este es el famoso Dongmen Shi! Fú Buerui conocía este lugar; incluso había enviado a sus trabajadores para vender granos y moler arroz aquí. Él se enteró de los trabajadores de que este lugar era muy próspero, que había sal barata y muchas cosas buenas para comprar, y que había casas grandes que nunca antes había visto.
+¡Así que este es el famoso Dongmen Shi! Fú Buerui conocía este lugar; incluso había enviado a sus trabajadores para vender granos y moler arroz aquí. Él se enteró de los trabajadores de que este lugar era muy próspero, que había sal barata y muchas cosas buenas para comprar, y que había casas grandes que nunca antes había visto.
 
 Mientras miraba a su alrededor, alguien se acercó y preguntó: "¿Usted es un delegado que viene a la reunión?".
 

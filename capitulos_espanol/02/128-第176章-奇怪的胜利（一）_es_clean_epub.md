@@ -4,7 +4,7 @@ Luego, inmediatamente cambió al canal público y envió una alerta de combate a
 
 Además del personal clave de los departamentos de electricidad, comunicaciones y otros servicios esenciales, todos los viajeros temporales masculinos capaces de moverse se organizaron en grupos de combate según la distribución de los dormitorios. La fuerza de defensa interna, que inicialmente contaba con 20 personas, se expandió instantáneamente a 400. Cada grupo ocupó las posiciones defensivas previstas. El número de personas dentro de los búnkeres se duplicó. Al mismo tiempo, se envió un pelotón de defensa interna a la orilla del río para proteger la central eléctrica y las fuentes de agua. Xi Yazhou se dirigió al puesto de mando en la muralla de la ciudad de Bairen para supervisar y dirigir las operaciones.
 
-  Ma Qianzhu se comunicó con la estación de Bo Pu a través del canal de comunicación. Aunque Bo Pu contaba con la protección de una flota naval y había construido recientemente varias baterías, solo tenía un batallón de tropas. En el ejército, solo había una pequeña cantidad de artillería. Si el enemigo lanzaba un ataque conjunto por tierra y mar, es probable que la zona de Bai Ren no pudiera recibir apoyo en poco tiempo.
+Ma Qianzhu se comunicó con la estación de Bo Pu a través del canal de comunicación. Aunque Bo Pu contaba con la protección de una flota naval y había construido recientemente varias baterías, solo tenía un batallón de tropas. En el ejército, solo había una pequeña cantidad de artillería. Si el enemigo lanzaba un ataque conjunto por tierra y mar, es probable que la zona de Bai Ren no pudiera recibir apoyo en poco tiempo.
 
 "Soy Mingqiu", dijo la persona que contestó el teléfono, y sorprendentemente, era un asesor de la marina.
 
@@ -16,19 +16,19 @@ Además del personal clave de los departamentos de electricidad, comunicaciones 
 
 "Entendido."
 
-  Ma Qianzhu volvió a llamar a Dugu Qiuhun, ordenándole que evacuara inmediatamente a la gente y los puestos del mercado de Dongmen. Se distribuyeron escopetas a los miembros de la oficina de comercio e industria, y un grupo de armas frías, formado por agentes de la comisaría, patrullaba el mercado. Cualquier persona que actuara como informante o que intentara saquear en medio del caos sería ejecutada inmediatamente.
+Ma Qianzhu volvió a llamar a Dugu Qiuhun, ordenándole que evacuara inmediatamente a la gente y los puestos del mercado de Dongmen. Se distribuyeron escopetas a los miembros de la oficina de comercio e industria, y un grupo de armas frías, formado por agentes de la comisaría, patrullaba el mercado. Cualquier persona que actuara como informante o que intentara saquear en medio del caos sería ejecutada inmediatamente.
 
-  Recuperando la compostura, me tranquilicé. De hecho, actualmente, la ciudad de Bairen tiene más de 300 rifles modernos, además de más de 300 soldados y alrededor de diez cañones de avancarga. Con la defensa de los muros y las torres de artillería, no hay por qué temer a estos cientos de enemigos que no tienen cañones. Además, tenemos 1 a 2 horas para prepararnos. Recién entonces me di cuenta de que el objetivo principal de todas las batallas es aniquilar al enemigo y capturar prisioneros; una defensa pasiva es inaceptable. Acabo de asustarme a mí mismo. Calma, debo mantener la calma.
+Recuperando la compostura, me tranquilicé. De hecho, actualmente, la ciudad de Bairen tiene más de 300 rifles modernos, además de más de 300 soldados y alrededor de diez cañones de avancarga. Con la defensa de los muros y las torres de artillería, no hay por qué temer a estos cientos de enemigos que no tienen cañones. Además, tenemos 1 a 2 horas para prepararnos. Recién entonces me di cuenta de que el objetivo principal de todas las batallas es aniquilar al enemigo y capturar prisioneros; una defensa pasiva es inaceptable. Acabo de asustarme a mí mismo. Calma, debo mantener la calma.
 
 Ma Qianzhu cambió de canal y ordenó abrir el garaje, que llenaran el combustible de los tractores, que se asignaran cuatro grupos de la unidad de asuntos internos, que llevaran escopetas y armas de defensa personal, y que los vehículos fueran llevados a las afueras de la puerta este para estar listos. En dirección noreste se encontraba una llanura fluvial. Los viajeros temporales no tenían caballería, solo podían defenderse y contraatacar con esto. Después de un tiempo, y a petición insistente de Wu Nanhai, envió un pelotón más de la unidad de asuntos internos para ayudar a defender los campos de la granja.
 
-  En ese momento, Ma Qianzhu notó un problema. El equipo de reconocimiento de Beivei debía tener un grupo de tres personas, liderado por Ye Mengyan, encargado de la vigilancia a larga distancia en dirección noreste. ¿Por qué no habían emitido ninguna alerta? ¿Acaso ya habían sido eliminados? Sin embargo, ahora ya no había tiempo para preocuparse por eso. Simplemente se alegró de que el enemigo no contara con caballería.
+En ese momento, Ma Qianzhu notó un problema. El equipo de reconocimiento de Beivei debía tener un grupo de tres personas, liderado por Ye Mengyan, encargado de la vigilancia a larga distancia en dirección noreste. ¿Por qué no habían emitido ninguna alerta? ¿Acaso ya habían sido eliminados? Sin embargo, ahora ya no había tiempo para preocuparse por eso. Simplemente se alegró de que el enemigo no contara con caballería.
 
 Todo estaba preparado. Se le pidió a Wu Nanhai que comenzara a cocinar rápidamente y que enviara la comida a la muralla. Todas las personas con experiencia en el manejo de armas no podían bajar a comer. Además, el equipo médico estaba listo para atender a los heridos. Wu De reunió a los miembros de la milicia de la comuna, les entregó armas frías y los designó como reserva. Los trabajadores estaban organizados para estar listos en todo momento para transportar heridos y municiones.
 
 Finalmente, se instruyó al equipo de reconocimiento de Beiwai para que asignara a varios francotiradores, equipados con rifles de precisión, radios y motocicletas, quienes se desplegarían a lo largo de la ruta de avance para emboscar y eliminar a los principales líderes enemigos.
 
-  Una vez que todo estuvo listo, las filas del enemigo finalmente aparecieron en el horizonte. Xi Yazhou estimó que había como máximo 400 soldados enemigos; ¿qué podían lograr con tan pocos? Los prisioneros de Zhuo Cai, que habían estado en el campo de prisioneros durante unos días, habían visto bastante y sabían que los viajeros temporales tenían miles de trabajadores, además de excelentes armas. Incluso para buscar venganza, ¿no sería necesario traer al menos dos o tres mil personas?
+Una vez que todo estuvo listo, las filas del enemigo finalmente aparecieron en el horizonte. Xi Yazhou estimó que había como máximo 400 soldados enemigos; ¿qué podían lograr con tan pocos? Los prisioneros de Zhuo Cai, que habían estado en el campo de prisioneros durante unos días, habían visto bastante y sabían que los viajeros temporales tenían miles de trabajadores, además de excelentes armas. Incluso para buscar venganza, ¿no sería necesario traer al menos dos o tres mil personas?
 
 "Cuanto más lo pensaba, más dudas tenía, así que rápidamente llamé a Ma Qianzhu, quien estaba en el centro de comunicaciones: sospechaba que el enemigo tenía otras fuerzas, y este grupo era solo una distracción."
 
@@ -62,12 +62,12 @@ El equipo de francotiradores sabía muy bien que aquellos que montaban a caballo
 
 "La respuesta fue siempre la misma: "No se observaron fenómenos sospechosos", "Todo está normal", "No se avistaron barcos sospechosos en el mar"...".
 
-  Ma Qianzhu cada vez entendía menos la forma de pensar de Zhucai Lao en este ataque. ¿Acaso había enviado a cientos de personas a la muerte?
-  Los rifles de los francotiradores disparaban continuamente, y muchos piratas caían, pero esto no los hizo retroceder y huir. El poder de los tres rifles Saiga-308 era limitado, y además, estos francotiradores no tenían la habilidad de arrebatar armas y quitar vidas.
+Ma Qianzhu cada vez entendía menos la forma de pensar de Zhucai Lao en este ataque. ¿Acaso había enviado a cientos de personas a la muerte?
+Los rifles de los francotiradores disparaban continuamente, y muchos piratas caían, pero esto no los hizo retroceder y huir. El poder de los tres rifles Saiga-308 era limitado, y además, estos francotiradores no tenían la habilidad de arrebatar armas y quitar vidas.
 
 De repente, todos se dirigieron hacia el este de la ciudad, aparentemente hacia una pequeña colina donde se escondían varios francotiradores. Todos se sorprendieron, sin saber cómo lo habían descubierto. Solo había 6 personas allí, y no tenían muchas balas. Su misión era eliminar al líder, no atacar a las fuerzas principales enemigas. A medida que los enemigos corrían hacia la base de la montaña, Ma Qianzhu solo pudo ordenar su retirada.
 
-  El rugido de las motocicletas asustó a los enemigos, y los piratas no intentaron perseguirlos, sino que se detuvieron al pie de la montaña. Unos quince hombres subieron por la ladera, y luego comenzaron a talar árboles y apilar piedras. ¿Estaban intentando establecer un campamento? A juzgar por la apariencia, solo llevaban provisiones para unos pocos días, y no había carros de suministros...
+El rugido de las motocicletas asustó a los enemigos, y los piratas no intentaron perseguirlos, sino que se detuvieron al pie de la montaña. Unos quince hombres subieron por la ladera, y luego comenzaron a talar árboles y apilar piedras. ¿Estaban intentando establecer un campamento? A juzgar por la apariencia, solo llevaban provisiones para unos pocos días, y no había carros de suministros...
 
 "La artillería debe destruir el campamento enemigo y forzarlos a una batalla decisiva", ordenó Xi Yazhou. Era evidente que el objetivo de este grupo de piratas era "ganar tiempo".
 
@@ -83,7 +83,7 @@ La batería de artillería se puso inmediatamente en marcha. Delante de la líne
 
 La tierra temblaba, los piratas corrían en todas direcciones, y una segunda salva de cañones, como la mismísima muerte, silbaba acercándose, creando "flores" de carne y sangre entre la multitud de tonos grises, mientras los gritos de agonía y los llantos de terror resonaban en el cielo. Los piratas se dispersaban. Los cañones de campaña emitían un rugido constante, y las balas rebotaban en el suelo endurecido por el invierno, segando vidas rápidamente.
 
-  La batalla terminó de manera abrupta, sin ninguna táctica ni estrategia. Los piratas, dejando tras de sí un montón de cadáveres, se retiraron precipitadamente hacia el este. Xi Yazhou ordenó que la primera y segunda compañía persiguieran al enemigo, mientras que la tercera compañía mantuvo su posición.
+La batalla terminó de manera abrupta, sin ninguna táctica ni estrategia. Los piratas, dejando tras de sí un montón de cadáveres, se retiraron precipitadamente hacia el este. Xi Yazhou ordenó que la primera y segunda compañía persiguieran al enemigo, mientras que la tercera compañía mantuvo su posición.
 
 El campo de batalla se convirtió en una persecución cómica, con un lado persiguiendo sin cesar y el otro huyendo a toda velocidad. El batallón de entrenamiento, bien alimentado y descansado, tenía la ventaja. Los piratas, que habían estado activos durante mucho tiempo, no podían competir en una carrera, y pronto comenzaron a caer exhaustos. Afortunadamente, Xí Āzhōu dio la orden de capturar a muchos prisioneros, ofreciendo recompensas por cada uno capturado, lo que evitó que los soldados atacaran indiscriminadamente con sus bayonetas.
 

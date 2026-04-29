@@ -36,7 +36,7 @@ Si se tratara de un camino normal, 12 kilómetros son una distancia que incluso 
 
 En realidad, se movían más rápido de lo que habían imaginado. Con los equipos de visión nocturna, el equipo avanzaba a lo largo del río, sin detenerse, y en solo 3 horas ya podían ver las luces de Lingao.
 
-  Gējiāng eligió una pequeña colina, un lugar con un bosque mixto, situado entre la puerta sur y la puerta este de la ciudad. Desde allí, se podía ver claramente la muralla de la ciudad y vigilar tanto la puerta sur como la puerta este. Los miembros del equipo de reconocimiento construyeron allí un puesto de observación y esparcieron polvo para ahuyentar serpientes e insectos. En septiembre, las noches en Lingao ya eran muy frías, con mucha humedad. Los miembros del equipo construyeron pequeños refugios con lonas impermeables y comenzaron sus turnos de guardia.
+Gējiāng eligió una pequeña colina, un lugar con un bosque mixto, situado entre la puerta sur y la puerta este de la ciudad. Desde allí, se podía ver claramente la muralla de la ciudad y vigilar tanto la puerta sur como la puerta este. Los miembros del equipo de reconocimiento construyeron allí un puesto de observación y esparcieron polvo para ahuyentar serpientes e insectos. En septiembre, las noches en Lingao ya eran muy frías, con mucha humedad. Los miembros del equipo construyeron pequeños refugios con lonas impermeables y comenzaron sus turnos de guardia.
 
 "Capitán, el cuartel general ha contactado y quiere que informemos sobre la situación", informó Li Yunxing, quien se desempeñaba como oficial de comunicaciones.
 
@@ -76,7 +76,7 @@ Wen Desi frunció el ceño. La situación de los recursos humanos era bastante p
 
 El cielo comenzó a iluminarse, y el amanecer del día D+1 llegó sobre el primer escuadrón de reconocimiento. Cada persona llevaba una capa de camuflaje, y el rocío las había empapado por completo.
 
-  A través del telescopio, se podía ver a las personas en la muralla bostezando mientras retiraban y apagaban los faroles. Las llamas de las antorchas se habían extinguido, y en la luz del amanecer, se elevaba un ligero humo azulado.
+A través del telescopio, se podía ver a las personas en la muralla bostezando mientras retiraban y apagaban los faroles. Las llamas de las antorchas se habían extinguido, y en la luz del amanecer, se elevaba un ligero humo azulado.
 
 Por la noche, se podía ver, de forma borrosa, edificios al este de la puerta, que resultaron ser templos y construcciones similares. Alrededor de la ciudad, había terrenos abiertos, con grandes extensiones de tierras baldías, mezcladas con algunos campos de arroz, y dispersos, algunos pequeños asentamientos.
 
@@ -96,7 +96,7 @@ Wei Aiwen trepó lentamente hasta la posición de observación de Li Jun y dijo:
 
 "Convertirse en personas como nosotros, sin duda, nos harían pasar por seres sobrenaturales y nos arrojarían agua sucia e incluso excrementos."
 
-"..." Wei Aibing sabía que esto era imposible. Su verdadero pensamiento era simplemente probar el arma. Después de obtener el SKS, había insistido mucho para conseguir una mira óptica rusa R14 y había insistido a Be Wei para que lo ayudara a practicar. Ayer, durante la guardia, ya había realizado "disparos en seco" varias decenas de veces, y hoy estaba ansioso por encontrar una oportunidad para probar su puntería.
+"..." Wei Aibing sabía que esto era imposible. Su verdadero pensamiento era simplemente probar el arma. Después de obtener el Tipo 56, había insistido mucho para conseguir una mira óptica rusa R14 y había insistido a Be Wei para que lo ayudara a practicar. Ayer, durante la guardia, ya había realizado "disparos en seco" varias decenas de veces, y hoy estaba ansioso por encontrar una oportunidad para probar su puntería.
 
 "Bei Wei" fue despertado por sus palabras y dijo: "Por favor, sean más cuidadosos. La misión que nos asignó el Comité Ejecutivo es de reconocimiento, no de combate. Disparar sin más podría revelar nuestras intenciones. Además, el objetivo de esta misión es, en primer lugar, el reconocimiento y, en segundo lugar, el entrenamiento del equipo. ¿No te quedaste exhausto apenas llegaste aquí y dormiste la mayor parte de la noche antes de despertar?".
 

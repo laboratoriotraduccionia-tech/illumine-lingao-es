@@ -34,7 +34,7 @@ El señor Gao abrió la caja hace un momento y se llevó una gran sorpresa. Ha c
 
 Tres hombres japoneses, ¡qué aspecto tan imponente! El señor Gao pensó: ¿podrían ser enviados de algún noble japonés? Pero entonces recordó que los japoneses apenas tienen suficientes bienes para su uso diario, y que la mayoría de los productos se importan de barcos chinos. ¿Cómo podrían tener objetos tan raros?
 
-<p>  Dado que la otra parte estaba dispuesta a invertir una gran suma de dinero para mostrar su buena voluntad, era imprescindible ir a conocerla. El señor Gao ya había percibido el olor del dinero. Para mayor seguridad, decidió llevar consigo a sus mejores guardias.</p>
+Dado que la otra parte estaba dispuesta a invertir una gran suma de dinero para mostrar su buena voluntad, era imprescindible ir a conocerla. El señor Gao ya había percibido el olor del dinero. Para mayor seguridad, decidió llevar consigo a sus mejores guardias.
 
 De repente, al ver a ese grupo de personas, el señor Gao se quedó atónito: ¡no eran japoneses!
 

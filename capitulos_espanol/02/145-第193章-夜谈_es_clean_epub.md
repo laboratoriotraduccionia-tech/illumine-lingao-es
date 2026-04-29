@@ -1,7 +1,7 @@
 ## Capítulo 189: Conversación nocturna
 
 
-  Lin Xing no entendió inmediatamente lo que el jefe Wu Deshou quería decir. ¿Delgado? ¿No es eso algo natural? Solo los ricos y los altos funcionarios son gordos; la gente común siempre ha sido delgada. No es raro que los niños sean delgados.
+Lin Xing no entendió inmediatamente lo que el jefe Wu Deshou quería decir. ¿Delgado? ¿No es eso algo natural? Solo los ricos y los altos funcionarios son gordos; la gente común siempre ha sido delgada. No es raro que los niños sean delgados.
 
 Wu De pensaba en otra cosa. Desde que vio a esos niños, sintió una sensación de urgencia: la condición física de esos niños era realmente preocupante. Él supervisaba los asuntos laborales y conocía muy bien la condición física de los trabajadores. La mayoría de los trabajadores recién contratados, aunque fuertes y trabajadores, en realidad estaban agotando sus vidas: su condición física básica no era suficiente para soportar un trabajo tan pesado. Por eso, siempre se esforzaba por mejorar la calidad de la comida, en gran medida para que esos trabajadores que sufrían de desnutrición crónica pudieran fortalecerse.
 
@@ -152,7 +152,7 @@ Wei Aiwen finalmente reveló la verdad: el ejército estaba celoso de los privil
 
 "No se puede decir eso; la marina es, por naturaleza, un lugar que valora mucho la etiqueta y las normas." Wu Delin había querido hablar con He Ming sobre las tensiones entre la marina y el ejército, y ahora, con la llegada de uno de los jóvenes líderes del ejército, tenía la oportunidad perfecta para tener una conversación seria.
 
-  Durante los siguientes minutos, Wu De utilizó un conjunto de tácticas de guerra psicológica que había aprendido en el departamento de justicia, y conversó con Wei Aiwen sobre las diferencias entre la armada y el ejército, sus respectivas ventajas y su relación de interdependencia. En particular, señaló que, en un entorno como Hainan, la cooperación entre la armada y el ejército es la forma de operación más común y efectiva.
+Durante los siguientes minutos, Wu De utilizó un conjunto de tácticas de guerra psicológica que había aprendido en el departamento de justicia, y conversó con Wei Aiwen sobre las diferencias entre la armada y el ejército, sus respectivas ventajas y su relación de interdependencia. En particular, señaló que, en un entorno como Hainan, la cooperación entre la armada y el ejército es la forma de operación más común y efectiva.
 
 "Wei Aiwen parecía distraído. Wu De notó que su educación no había tenido un efecto significativo y se sintió un poco decepcionado. Justo cuando estaba hablando, alguien llamó a Wei Aiwen por teléfono y le informó que se habían entregado los suministros a los soldados. Le preguntaron si estaba de acuerdo con que los soldados celebraran el Año Nuevo, o si debían irse a dormir de inmediato."
 

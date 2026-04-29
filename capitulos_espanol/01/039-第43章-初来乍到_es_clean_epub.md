@@ -81,7 +81,7 @@ Ma Qian zhuo, con calma, dejó caer una carta: "Ver películas para adultos tamp
 
 "Las pocas personas en la habitación guardaron silencio por un momento, como si se hubiera revelado algún secreto."
 
-  Después de unos minutos, Ma Qianzhu le dijo a Wen Desi: "Wen Zong, ¿no deberíamos acelerar un poco el ritmo? La mayoría de la gente ya está llegando. Los que no vengan, no vendrán."
+Después de unos minutos, Ma Qianzhu le dijo a Wen Desi: "Wen Zong, ¿no deberíamos acelerar un poco el ritmo? La mayoría de la gente ya está llegando. Los que no vengan, no vendrán."
 
 "¿Cómo podríamos ir más rápido?", se preguntó Wen Desi, lavando las cartas con lentitud. "¡El barco todavía no ha aparecido!"
 
@@ -111,9 +111,9 @@ Ma Qian zhuo, con calma, dejó caer una carta: "Ver películas para adultos tamp
 
 "No, pero nosotros sabemos cómo producir sal. Tengo una gran cantidad de información. Sal fina, sal yodada, sal para encurtidos...", Lu Duo sonrió con entusiasmo. "De los presentes, ¿quién sabe fundir acero? ¿Quién sabe fabricar vidrio? ¿Quién sabe construir rifles? Poseemos la sabiduría acumulada durante tres mil años de civilización, y toda la tecnología moderna desde la Revolución Industrial...". Su mano se movió dramáticamente, "¡Nosotros, podemos hacer cualquier cosa!".
 
-  Esa frase, que él consideraba muy impactante, pareció caer en un pantano y desaparecer sin dejar rastro. Aparte de la mirada llena de duda de Zhong Lishi, no despertó ningún interés.
+Esa frase, que él consideraba muy impactante, pareció caer en un pantano y desaparecer sin dejar rastro. Aparte de la mirada llena de duda de Zhong Lishi, no despertó ningún interés.
 
-  Durante los siguientes minutos, Luodu demostró su técnica de producción de sal, y ocasionalmente se produjo una discusión poco profesional y objetiva con Zhong Lishi. De repente, Ma Qianzhu suspiró:
+Durante los siguientes minutos, Luodu demostró su técnica de producción de sal, y ocasionalmente se produjo una discusión poco profesional y objetiva con Zhong Lishi. De repente, Ma Qianzhu suspiró:
 
 "Aquí, en nuestras discusiones, ¿por qué siempre se sale del tema?"
 

@@ -1,12 +1,12 @@
 ## Capítulo 151: Reclutamiento y adquisición de recursos
 
-  "Después de la creación formal de la armada y la marina, no solo ha aumentado drásticamente la demanda de armas, sino que también surgen problemas relacionados con el entrenamiento y el almacenamiento de municiones", dijo Ma Qianzhu. "Tengo dos puntos de vista al respecto."
+"Después de la creación formal de la armada y la marina, no solo ha aumentado drásticamente la demanda de armas, sino que también surgen problemas relacionados con el entrenamiento y el almacenamiento de municiones", dijo Ma Qianzhu. "Tengo dos puntos de vista al respecto."
 
 El sector industrial debe establecer lo antes posible un sistema de suministro de municiones, para abastecer tanto a las nuevas tropas como a los fuertes costeros durante el entrenamiento.
 
 El suministro de "heiyao" es, digamos, abundante; el inventario supera las 2.5 toneladas, y después de ser procesado en forma de gránulos, su potencia aumenta considerablemente. Es suficiente para entrenamientos y combates, pero las municiones y los mini-proyectiles no están disponibles y deben fabricarse con urgencia.
 
-  La fabricación de armas debe limitarse a uno o dos tipos, sin intentar abarcar demasiado. Si la falta de carbón provoca escasez de acero, en esta etapa, concentremos los esfuerzos en la fabricación de cañones de hierro fundido. El departamento de comercio se dedicará por completo a resolver el problema del suministro de carbón.
+La fabricación de armas debe limitarse a uno o dos tipos, sin intentar abarcar demasiado. Si la falta de carbón provoca escasez de acero, en esta etapa, concentremos los esfuerzos en la fabricación de cañones de hierro fundido. El departamento de comercio se dedicará por completo a resolver el problema del suministro de carbón.
 
 Es necesario, lo antes posible, encontrar la manera de fabricar motores, incluyendo máquinas de vapor y motores diésel de pequeño tamaño. Esto permitiría a la marina construir y modificar barcos, proporcionando la maquinaria necesaria para su funcionamiento.
 
@@ -14,7 +14,7 @@ Es necesario, lo antes posible, encontrar la manera de fabricar motores, incluye
 
 Para cumplir con las tareas actuales de pesca, vigilancia y transporte, la marina necesita al menos de 8 a 10 barcos de vela, con un desplazamiento que no debe ser inferior a 50 toneladas, y preferiblemente superior a 100 toneladas. En la actualidad, la demanda de transporte marítimo por parte de la industria es cada vez mayor, y los barcos con un tonelaje demasiado pequeño no son adecuados.
 
-  Los viajeros temporales ya habían descubierto en Lingao un taller de construcción naval de considerable tamaño. Los barcos de pesca más grandes de aquí, conocidos popularmente como "Lingao Tuofeng", tienen un desplazamiento de más de 70 toneladas. Son adecuados para la pesca y el transporte de mercancías, pero los viajeros temporales consideraban que los barcos eran un poco pequeños y que su velocidad no era suficiente.
+Los viajeros temporales ya habían descubierto en Lingao un taller de construcción naval de considerable tamaño. Los barcos de pesca más grandes de aquí, conocidos popularmente como "Lingao Tuofeng", tienen un desplazamiento de más de 70 toneladas. Son adecuados para la pesca y el transporte de mercancías, pero los viajeros temporales consideraban que los barcos eran un poco pequeños y que su velocidad no era suficiente.
 
 Si se quisiera construir barcos, el departamento industrial y la marina podrían ofrecer una gran variedad de diseños. Incluso hay personas que pueden dibujar los planos y diagramas estructurales del famoso buque acorazado "Gloria". Sin embargo, ninguna de estas personas tiene experiencia real en la construcción naval. Las personas con más experiencia son Wen Zong y Wang Luobin, ambos son aficionados experimentados a los modelos de barcos, y han construido innumerables modelos. Se podría decir que son las personas que tienen el conocimiento más profundo de la construcción naval de madera.
 
@@ -48,7 +48,7 @@ La propuesta de ocupar "Baotu" fue aprobada de esta manera. Esta acción estaba 
 
 Wu De suspiró. Hoy, más de veinte personas habían venido a la oficina para inscribirse en el programa de reclutamiento. Sumando a eso las personas que recientemente han sido reclutadas por la fábrica de maquinaria y otros departamentos, su fuerza laboral masculina ha disminuido en cincuenta personas. Si esto continúa, la comuna se convertirá en un "pueblo de mujeres".
 
-  Parece que las condiciones para servir en el ejército son realmente muy buenas. Wu De pensó: la asignación para establecerse es de 200 kilogramos de arroz, y cada persona recibe una "liang" de plata al mes (una unidad de peso y moneda antigua), además de que se cubre la comida y la ropa. No es de extrañar que estos miembros de la cooperativa quieran alistarse en el ejército.
+Parece que las condiciones para servir en el ejército son realmente muy buenas. Wu De pensó: la asignación para establecerse es de 200 kilogramos de arroz, y cada persona recibe una "liang" de plata al mes (una unidad de peso y moneda antigua), además de que se cubre la comida y la ropa. No es de extrañar que estos miembros de la cooperativa quieran alistarse en el ejército.
 
 "Chūyǔ, por favor, emite el certificado para él", dijo Wú Dé con poca energía. En cualquier caso, hay que ceder ante los intereses generales. Actualmente, la prioridad es la expansión del ejército y la preparación para la guerra.
 
@@ -70,7 +70,7 @@ El nombre bajo el cual se realizó la convocatoria, naturalmente, no era "Ejérc
 
 "¡Maldita sea!, ¿no es este trato demasiado bueno?", Dongmen Chuiyu estaba a cargo de mantener el orden durante el reclutamiento en el mercado de Dongmen. Observaba el gran cartel que acababa de colgarse en el panel, anunciando el reclutamiento de soldados: a cada soldado se le proporcionaban dos *gongshi* (200 kilogramos) de grano para establecerse, con alojamiento y comida incluidos (20 kilogramos de ración mensual), y una tael de plata al mes.
 
-  Sin embargo, Xí Āzhōu dijo que este trato no era particularmente bueno. Durante el reinado de Tianqi, los soldados de cada ciudad en Liaodong ya recibían dos "liang" (unidad de peso china) al mes, y a mediados del reinado de Chongzhen, la paga mensual de los nuevos reclutas aumentó a tres "liang" y dos "qian" (otra unidad de peso china). Si no fuera por la costumbre generalizada de los oficiales militares de la dinastía Ming de recortar los fondos, los soldados apenas recibían nada, y los "viajeros temporales" no podrían reclutar gente ofreciendo menos de dos "liang" al mes.
+Sin embargo, Xí Āzhōu dijo que este trato no era particularmente bueno. Durante el reinado de Tianqi, los soldados de cada ciudad en Liaodong ya recibían dos "liang" (unidad de peso china) al mes, y a mediados del reinado de Chongzhen, la paga mensual de los nuevos reclutas aumentó a tres "liang" y dos "qian" (otra unidad de peso china). Si no fuera por la costumbre generalizada de los oficiales militares de la dinastía Ming de recortar los fondos, los soldados apenas recibían nada, y los "viajeros temporales" no podrían reclutar gente ofreciendo menos de dos "liang" al mes.
 
 Zhang Bailin, debajo del muro decorativo, estaba reclutando gente local para el ejército, y ahora ya entendía un poco el dialecto de Lingao.
 
@@ -84,7 +84,7 @@ Zhang Bailin, debajo del muro decorativo, estaba reclutando gente local para el 
 
 "Traigan a sus esposas e hijos, nosotros nos encargaremos de proporcionarles alimentos para que se establezcan."
 
-  ……
+……
 
 De acuerdo con el plan de reclutamiento establecido por el Comité Militar, el ejército reclutará a 400 soldados y 100 estudiantes. La marina reclutará a 100 soldados y 100 estudiantes. Los soldados tienen entre 17 y 25 años, mientras que los estudiantes tienen entre 13 y 16 años. Los estudiantes son formados para convertirse en el núcleo técnico del futuro ejército, y además de participar en el entrenamiento militar, recibirán una serie de capacitaciones especializadas.
 
@@ -94,7 +94,7 @@ Los habitantes locales de Lingao no mostraron mucho entusiasmo. Ya fueran peque�
 
 También había algunos que, a juzgar por su apariencia, parecían mayores de lo que decían, y que venían buscando refugio para alistarse en el ejército, sin tener ni comida ni ropa. Finalmente, todos fueron aceptados. Aquellos que eran mayores podían trabajar en logística, ya que, en ese momento, la prioridad era aumentar rápidamente la población. Había personas que podían encargarse de todo.
 
-  Sin embargo, este tipo de reclutas generalmente eran de complexión delgada. La desnutrición crónica y el trabajo duro habían dañado su salud, y aunque eran trabajadores y perseverantes, incluso en las pruebas de levantamiento de peso, superaban sus propias limitaciones físicas.
+Sin embargo, este tipo de reclutas generalmente eran de complexión delgada. La desnutrición crónica y el trabajo duro habían dañado su salud, y aunque eran trabajadores y perseverantes, incluso en las pruebas de levantamiento de peso, superaban sus propias limitaciones físicas.
 
 "Son un poco bajos y no lo suficientemente fuertes", dijo Wei Aiwen, un poco decepcionado. Estos nativos de baja estatura claramente no cumplían con su idea de cómo deberían ser los soldados. Los que venían a alistarse en la comuna lo hacían porque la comida era buena, y su condición física era bastante buena; parecían estar en excelente estado. Wei Aiwen, sin rodeos, los inscribió todos en el registro de reclutas del ejército.
 

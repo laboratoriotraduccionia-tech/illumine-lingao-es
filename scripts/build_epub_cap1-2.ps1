@@ -1,10 +1,10 @@
 param(
     [string]$RootDir = "$PSScriptRoot\..\capitulos_espanol",
-    [string]$Title = "Illuminar Lingao 0.1.4",
+    [string]$Title = "El amanecer de Lingao 0.1.5",
     [string]$Lang = "es",
     [string]$OutputDir = "$PSScriptRoot\..\epub",
     [string]$OutputFile = "illuminelingao_parte1y2.epub",
-    [string]$CoverImage = "portada2_es.jpg"
+    [string]$CoverImage = "portada_3.jpg"
 )
 
 $ErrorActionPreference = "Stop"

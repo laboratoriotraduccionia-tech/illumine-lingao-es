@@ -1,7 +1,7 @@
 ## Capítulo 201: El problema de la evangelización
 
 
-  "Sí, señor", respondió Landu con la debida reverencia. Sin embargo, el presidente sabía que este individuo era "solo un creyente", y que la lealtad que sentía hacia la iglesia era algo que solo el diablo podría conocer. La información que llegaba a la Compañía de Jesús era extremadamente precisa, y Gelanzani sabía que este hombre había estado prestando atención a la fundición de Macao, y que secretamente vendía cañones, arcabuces y pólvora a los piratas de Radestron (la forma en que los europeos se referían a los piratas chinos). Muchas personas en Macao se dedicaban a este tipo de comercio, pero él era el único que podía sacar directamente los productos de la fundición para venderlos, y nadie sabía cómo había convencido al encargado de la fundición.
+"Sí, señor", respondió Landu con la debida reverencia. Sin embargo, el presidente sabía que este individuo era "solo un creyente", y que la lealtad que sentía hacia la iglesia era algo que solo el diablo podría conocer. La información que llegaba a la Compañía de Jesús era extremadamente precisa, y Gelanzani sabía que este hombre había estado prestando atención a la fundición de Macao, y que secretamente vendía cañones, arcabuces y pólvora a los piratas de Radestron (la forma en que los europeos se referían a los piratas chinos). Muchas personas en Macao se dedicaban a este tipo de comercio, pero él era el único que podía sacar directamente los productos de la fundición para venderlos, y nadie sabía cómo había convencido al encargado de la fundición.
 
 "Escuche, señor Lando", dijo el presidente con un tono formal. "Quiero que regrese al barco de la condesa de Scarborough. Aragones ahora necesita un subcomandante militar, y le valorará como antes."
 
@@ -9,7 +9,7 @@
 
 "Alarigones probablemente planea continuar su camino con Liu Xiang para reunirse y desafiar a Zheng Yiguan. La Compañía de Jesús no desea ver a Nicolás (el nombre cristiano de Zheng Zhibao) derrotado en esta disputa", dijo el presidente. "No podemos ayudarle directamente..."
 
-  La relación entre los portugueses y Zheng Zhilong era muy estrecha, y no solo se basaba en intereses comerciales, sino también en necesidades de evangelización. Zheng Zhilong fue bautizado en Macao en sus primeros años. Después de que el shogun Toyotomi Hideyoshi emitiera la primera orden de expulsión de los jesuitas, la Compañía de Jesús a menudo utilizaba los barcos de Zheng Zhilong, que navegaban hacia Japón, para contrabandear diversos libros religiosos a Japón. Esto hizo que la Compañía de Jesús de Macao deseara fervientemente que los españoles no fueran los ganadores de esta disputa.
+La relación entre los portugueses y Zheng Zhilong era muy estrecha, y no solo se basaba en intereses comerciales, sino también en necesidades de evangelización. Zheng Zhilong fue bautizado en Macao en sus primeros años. Después de que el shogun Toyotomi Hideyoshi emitiera la primera orden de expulsión de los jesuitas, la Compañía de Jesús a menudo utilizaba los barcos de Zheng Zhilong, que navegaban hacia Japón, para contrabandear diversos libros religiosos a Japón. Esto hizo que la Compañía de Jesús de Macao deseara fervientemente que los españoles no fueran los ganadores de esta disputa.
 
 "Entiendo", dijo Lando con una sonrisa astuta.
 
@@ -41,12 +41,12 @@ Se inclinó ante el presidente, metió la bolsa de dinero en su bolsillo.
 
 "Muy bien, adelante." El presidente le hizo una señal de la cruz con solemnidad. "Cuando sirva a Dios, no tendrá que preocuparse por nada. Usted sabe que la Compañía de Jesús tiene el poder de perdonar incluso los pecados más graves."
 
-  Lando hizo una reverencia profunda, besó su anillo y se retiró.
+Lando hizo una reverencia profunda, besó su anillo y se retiró.
 
-  Al escuchar el sonido de la puerta que se cerraba tras la cortina, el presidente exhaló suavemente.
-  Sin mirar en ninguna dirección, dio la orden: "Ombrelle, por favor, haga entrar al gerente Wen y a los demás."
+Al escuchar el sonido de la puerta que se cerraba tras la cortina, el presidente exhaló suavemente.
+Sin mirar en ninguna dirección, dio la orden: "Ombrelle, por favor, haga entrar al gerente Wen y a los demás."
 
-  Landu bajó las escaleras, un camino que solo los empleados internos podían usar, y llegó al patio. Se tocó la bolsa de dinero que llevaba en la cintura con una sonrisa de satisfacción: parecía que trabajar para la Compañía de Jesús era, de hecho, una elección sabia. Parece que son personas muy generosas.
+Landu bajó las escaleras, un camino que solo los empleados internos podían usar, y llegó al patio. Se tocó la bolsa de dinero que llevaba en la cintura con una sonrisa de satisfacción: parecía que trabajar para la Compañía de Jesús era, de hecho, una elección sabia. Parece que son personas muy generosas.
 
 Mientras pensaba en eso, vio a un sacerdote que guiaba a varias personas. Lando sintió un impulso, dio unos pasos rápidos y se escondió en la sombra del alero.
 
@@ -64,11 +64,11 @@ Wen Desi se inclinó ligeramente. El sacerdote frente a él vestía una túnica 
 
 La señorita Mendosa fue la primera persona en este tiempo y espacio en conocer a un verdadero sacerdote, y estaba tan emocionada que olvidó sus modales y se arrodilló inmediatamente para besar su anillo. Esto causó sorpresa y alegría en Jeranzani: ¿había tantos creyentes en Dios entre los australianos? Y esta hermosa creyente claramente no era china; su apariencia le recordó a las mujeres de su ciudad natal, que también eran así de atractivas y vivaces.
 
-  Con un buen comienzo, la conversación posterior se volvió "amistosa y constructiva". Jelanzani estaba extremadamente interesado en el origen de los viajeros temporales, especialmente en la mención de Australia. Era una época de grandes descubrimientos geográficos, y la tendencia era que los europeos estuvieran muy interesados en este tipo de noticias. Cada descubrimiento geográfico significaba nuevas oportunidades para obtener riqueza, tierra y poder. Wen Desi, por supuesto, no reveló la ubicación exacta de esta llamada Australia: con la naturaleza codiciosa de los europeos, si supieran que existía un lugar así, inmediatamente se apresurarían a ir. De hecho, Australia ya había sido descubierta. En 1606, los barcos del navegante español Torres pasaron por el estrecho entre Australia y Nueva Guinea; el mismo año, el holandés Willem Janszoon y su barco, el Duyfken, llegaron a Australia, y posteriormente recibió el nombre de "Nueva Holanda". Sin embargo, estos descubrimientos no tuvieron ningún impacto significativo. Los descubridores consideraron que Nueva Holanda era un lugar árido y pobre, sin valor. No fue hasta 1770, cuando el capitán de la marina británica Cook descubrió la fértil costa este, que comenzó la colonización de Australia. Naturalmente, en esta línea de tiempo, los viajeros temporales habían incluido Australia en el territorio que les pertenecía en el futuro.
+Con un buen comienzo, la conversación posterior se volvió "amistosa y constructiva". Jelanzani estaba extremadamente interesado en el origen de los viajeros temporales, especialmente en la mención de Australia. Era una época de grandes descubrimientos geográficos, y la tendencia era que los europeos estuvieran muy interesados en este tipo de noticias. Cada descubrimiento geográfico significaba nuevas oportunidades para obtener riqueza, tierra y poder. Wen Desi, por supuesto, no reveló la ubicación exacta de esta llamada Australia: con la naturaleza codiciosa de los europeos, si supieran que existía un lugar así, inmediatamente se apresurarían a ir. De hecho, Australia ya había sido descubierta. En 1606, los barcos del navegante español Torres pasaron por el estrecho entre Australia y Nueva Guinea; el mismo año, el holandés Willem Janszoon y su barco, el Duyfken, llegaron a Australia, y posteriormente recibió el nombre de "Nueva Holanda". Sin embargo, estos descubrimientos no tuvieron ningún impacto significativo. Los descubridores consideraron que Nueva Holanda era un lugar árido y pobre, sin valor. No fue hasta 1770, cuando el capitán de la marina británica Cook descubrió la fértil costa este, que comenzó la colonización de Australia. Naturalmente, en esta línea de tiempo, los viajeros temporales habían incluido Australia en el territorio que les pertenecía en el futuro.
 
 Wen Desi no solo fue ambiguo, sino que incluso alteró las ubicaciones geográficas, trasladando Australia al centro del vasto Océano Pacífico; aquellos interesados pueden intentar buscarlo.
 
-  En cuanto a la historia de este país, naturalmente, es lo que se describe en el manual para prisioneros.
+En cuanto a la historia de este país, naturalmente, es lo que se describe en el manual para prisioneros.
 
 Inesperadamente, esta invención resultó despertar un gran interés en el presidente. Él hacía constantemente preguntas, lo que obligó a Diana Mendoza a detenerse con frecuencia para pensar y luego traducir todo al inglés, ya que Wen Desi podía entender el inglés. Resulta que este hombre había considerado que Australia era el perdido continente de la Atlántida.
 

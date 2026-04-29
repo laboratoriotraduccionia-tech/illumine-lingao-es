@@ -10,13 +10,13 @@
 
 "Se puede utilizar el precio de los granos como referencia", sugirió Cheng Dong, "de esta manera, el poder adquisitivo que se muestra es más realista".
 
-  Él utilizó el arroz como unidad de referencia.
+Él utilizó el arroz como unidad de referencia.
 
 El precio del arroz en Lingao es de una liang y tres qian de plata por shi (94.4 kg).
 
 En las ciudades modernas de China, el precio promedio del arroz es de aproximadamente 3.2 yuanes por kilogramo. Convertido a "shi" (unidad de medida tradicional), cada "shi" de arroz cuesta 302.08 yuanes.
 
-  Considerando esta unidad, el poder adquisitivo real del renminbi en Lingao en 1628 equivalía a 302.08 yuanes, lo que correspondía a una liang y tres qian de plata. Ellos tenían un conocimiento básico de los precios en Lingao, lo que facilitaba la conversión a renminbi.
+Considerando esta unidad, el poder adquisitivo real del renminbi en Lingao en 1628 equivalía a 302.08 yuanes, lo que correspondía a una liang y tres qian de plata. Ellos tenían un conocimiento básico de los precios en Lingao, lo que facilitaba la conversión a renminbi.
 
 Después de un complejo cálculo de costos y un análisis del mercado, la Cooperativa de Mujeres de Hainan, S.A. (abreviada como "Cooperativa de Mujeres"), finalmente abrió sus puertas. Debido a que su inauguración fue posterior a la de "Yandián", y gracias a las habilidades de relaciones públicas de Li Mei, la Cooperativa de Mujeres tuvo una presencia mucho mayor. Aunque también consistía en unas pocas columnas de ladrillo, con una estructura simple cubierta con lonas, ocupaba una gran extensión de terreno en la calle Dongmen. Li Mei originalmente quería comprar este terreno en nombre de la empresa, pero el sistema de tierras era un tema delicado, y el comité ejecutivo no se atrevió a tomar la decisión. Después de sus repetidos esfuerzos, solo se emitió un certificado de uso de la tierra por tres años, con el número glorioso 001.
 
@@ -24,7 +24,7 @@ A diferencia del silencioso comienzo de la tienda de sal, la apertura de la coop
 
 Esta situación, que parecía familiar, aún resultaba atractiva para muchos viajeros temporales, y aunque no compraran nada, querían entrar a echar un vistazo. Había más de diez puestos, sin mostradores, pero afortunadamente, había muchos muebles que habían sido saqueados de la familia Gou, así que se utilizaron diferentes mesas y paneles para sustituirlos. Estaban llenos de una gran variedad de mercancías. Li Mei, que estaba a cargo de la primera entrega de mercancías, tenía un plan: la capacidad de compra en las zonas rurales era limitada, y los gastos se limitaban principalmente a comida y ropa. Los artículos como la cerámica, los adornos y los muebles no eran esenciales; la gente no los necesitaba y no podía permitírselos. Solo la ropa y los artículos de uso diario eran imprescindibles. Por lo tanto, los productos principales eran ropa, zapatos y sombreros. La ropa se clasificó y separó cuidadosamente por tipo de tejido, estado (nuevo o usado) y uso. Todos los zapatos se emparejaron y se encontraron. Clasificar y organizar miles de prendas de vestir era una tarea enorme. La familia Ming, compuesta por los cuatro miembros, trabajó durante dos días y dos noches para completarla. La ropa dañada ya no se vendía; se cargaba directamente en camiones y se llevaba a la fábrica de papel para utilizarse como materia prima.
 
-  La entrada de la cooperativa estaba llena de gente, con un gran alboroto. Los habitantes locales nunca habían visto algo así, así que se reunieron. Li Mei aprovechó esta oportunidad para dar órdenes a sus empleados para que atrajeran clientes.
+La entrada de la cooperativa estaba llena de gente, con un gran alboroto. Los habitantes locales nunca habían visto algo así, así que se reunieron. Li Mei aprovechó esta oportunidad para dar órdenes a sus empleados para que atrajeran clientes.
 
 Las empleadas fueron seleccionadas entre los habitantes del pueblo de Damei que se habían trasladado, y todas eran mujeres de mediana edad, con rostros agradables y habilidades comunicativas. Llevaban uniformes de falda y chaqueta de tela índigo, y en el pecho tenían bordados los caracteres "Cooperativa de Mujeres", luciendo ordenadas y presentables. Ella misma también vestía una falda y chaqueta de tela azul, y su atuendo no le daba un aspecto descuidado, sino limpio y cuidado. Estaba de pie en la puerta, saludando a todos los visitantes. Incluso a los nativos que se mostraban tímidos y no se acercaban demasiado, ella les saludaba en un dialecto de Lingao no del todo fluido, después de todo, su objetivo principal era ganar su dinero. El cliente es como el Buda.
 

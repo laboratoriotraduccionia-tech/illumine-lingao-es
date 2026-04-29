@@ -1,7 +1,7 @@
 ## Capítulo 140: La primera batalla naval en Lingao Jiao
 
 
-  El líder del grupo de apoyo, Wang Ruixiang, aún no había logrado mantener el equilibrio cuando el suelo bajo sus pies comenzó a vibrar de manera extraña, y llamas brotaron del costado del barco. Sin necesidad de mucha experiencia militar, él sabía que habían caído en una emboscada.
+El líder del grupo de apoyo, Wang Ruixiang, aún no había logrado mantener el equilibrio cuando el suelo bajo sus pies comenzó a vibrar de manera extraña, y llamas brotaron del costado del barco. Sin necesidad de mucha experiencia militar, él sabía que habían caído en una emboscada.
 
 "¡Retirada rápida!", se escuchó el grito ronco y desesperado de Li Di en el auricular, y al instante, el "Yú 1 Hào" quedó envuelto en una densa nube de humo.
 
@@ -9,7 +9,7 @@
 
 "¡Lanzar granada número 1!", gritó. Los miembros del equipo, que ya habían sido entrenados repetidamente, sacaron inmediatamente las granadas número 1 de sus bolsillos y las lanzaron.
 
-  La granada número 1 fue una granada de bambú desarrollada por el departamento de ingeniería, que contenía pólvora negra y fragmentos de cerámica, con una potencia limitada, pero que era perfecta para usar en los espacios estrechos de la embarcación. Después de que la granada se lanzaba, las explosiones y los gritos se mezclaban en un solo sonido. Los miembros de la tripulación del "Yú 1", en la cubierta, en las posiciones de los cañones y en la cabina, también disparaban con rifles y pistolas, suprimiendo instantáneamente a los piratas que intentaban abordar. Aprovechando esta oportunidad, Wang Ruixiang y sus hombres rápidamente regresaron. Se desplomaron en la cubierta, y en menos de un minuto, parecía que habían estado al borde de la muerte. En ese momento, el "Yú 1" era una vista aterradora, con la chapa de acero llena de pequeños agujeros, y el vidrio que daba hacia el barco estaba completamente dañado o roto.
+La granada número 1 fue una granada de bambú desarrollada por el departamento de ingeniería, que contenía pólvora negra y fragmentos de cerámica, con una potencia limitada, pero que era perfecta para usar en los espacios estrechos de la embarcación. Después de que la granada se lanzaba, las explosiones y los gritos se mezclaban en un solo sonido. Los miembros de la tripulación del "Yú 1", en la cubierta, en las posiciones de los cañones y en la cabina, también disparaban con rifles y pistolas, suprimiendo instantáneamente a los piratas que intentaban abordar. Aprovechando esta oportunidad, Wang Ruixiang y sus hombres rápidamente regresaron. Se desplomaron en la cubierta, y en menos de un minuto, parecía que habían estado al borde de la muerte. En ese momento, el "Yú 1" era una vista aterradora, con la chapa de acero llena de pequeños agujeros, y el vidrio que daba hacia el barco estaba completamente dañado o roto.
 
 "¡Retrocedan a toda velocidad!"
 
@@ -25,7 +25,7 @@ Chen Haiyang negó con la cabeza. No podía permitirse hablar, parecía que el e
 
 En ese momento, la niebla en el mar se disipó ligeramente, y los otros dos barcos de pesca, impulsados por ocho remos, se dirigían rápidamente hacia el "Yú 1". Su velocidad era mucho mayor que la de los barcos de pesca convencionales que utilizaban velas y un solo remo. La cubierta estaba llena de piratas con aspecto amenazante, y muchos de ellos llevaban antorchas. Era evidente que los tres barcos planeaban atacar al "Yú 1" simultáneamente.
 
-  Los ballistas en la cubierta del barco Yú 1 dispararon simultáneamente, y debido a la corta distancia, ambos disparos dieron en el blanco. Se levantó humo y pequeñas llamas en la cubierta, lo que causó cierta conmoción, pero no afectó el avance del barco enemigo. El proyectil número 2 era una granada lacrimógena que, además de una pequeña cantidad de pólvora para la explosión, contenía polvo de alcanfor y pimienta, diseñada específicamente para misiones de patrulla y seguridad marítima, y no tenía un poder destructivo significativo.
+Los ballistas en la cubierta del barco Yú 1 dispararon simultáneamente, y debido a la corta distancia, ambos disparos dieron en el blanco. Se levantó humo y pequeñas llamas en la cubierta, lo que causó cierta conmoción, pero no afectó el avance del barco enemigo. El proyectil número 2 era una granada lacrimógena que, además de una pequeña cantidad de pólvora para la explosión, contenía polvo de alcanfor y pimienta, diseñada específicamente para misiones de patrulla y seguridad marítima, y no tenía un poder destructivo significativo.
 
 "¡Izquierda, máxima velocidad!", dijo. En ese momento, el barco "Yú 1" ya se había alejado unos cuarenta o cincuenta metros. Chen Haiyang no sabía qué tipo de rendimiento tenían los cañones de los barcos enemigos, así que, por precaución, decidió aumentar la distancia entre los barcos para evitar ser atacados por los tres barcos a la vez. Esperaría a evaluar la situación antes de tomar medidas.
 
@@ -37,7 +37,7 @@ El rugido del motor se hizo más fuerte, y el "Yú 1 Hào" describió un arco pe
 
 "¡Fuego libre con las ametralladoras del lado izquierdo!"
 
-Los miembros de la tripulación, que ya estaban en estado de alerta máxima, accionaron los disparadores a la velocidad más alta posible: ¡están pescando en mi territorio, y eso es una declaración de guerra! Unas quince carabinas SKS-D, todas con cargadores de 20 balas, dispararon ráfagas densas que barrieron desde la proa hasta la popa del barco, destrozando todo a su paso: cuerpos, tablas del barco, velas, cabos... Todo a bordo quedó destrozado por las balas de 7.62mm M43. Cuando Chen Haiyang ordenó cesar el fuego, el número 1 estaba completamente inmovilizado en el mar, emitiendo columnas de humo.
+Los miembros de la tripulación, que ya estaban en estado de alerta máxima, accionaron los disparadores a la velocidad más alta posible: ¡están pescando en mi territorio, y eso es una declaración de guerra! Unas quince carabinas Tipo 56-D, todas con cargadores de 20 balas, dispararon ráfagas densas que barrieron desde la proa hasta la popa del barco, destrozando todo a su paso: cuerpos, tablas del barco, velas, cabos... Todo a bordo quedó destrozado por las balas de 7.62mm M43. Cuando Chen Haiyang ordenó cesar el fuego, el número 1 estaba completamente inmovilizado en el mar, emitiendo columnas de humo.
 
 "¡Informe de pérdidas!"
 
@@ -47,7 +47,7 @@ Los miembros de la tripulación, que ya estaban en estado de alerta máxima, acc
 
 "Tres personas en la cubierta sufrieron heridas leves."
 
-  Las pérdidas no fueron grandes. El escudo antibalas y la estructura de acero de la ballesta protegieron a los artilleros, pero la verdad es que el fuego enemigo era lamentablemente débil. Los proyectiles que caían sobre la cubierta eran de todo tipo: fragmentos de hierro, clavos, piedras, trozos de cerámica...
+Las pérdidas no fueron grandes. El escudo antibalas y la estructura de acero de la ballesta protegieron a los artilleros, pero la verdad es que el fuego enemigo era lamentablemente débil. Los proyectiles que caían sobre la cubierta eran de todo tipo: fragmentos de hierro, clavos, piedras, trozos de cerámica...
 
 "Notifiquen al Ministerio de Marina que envíen un barco para limpiar el número 1". Como los heridos no tenían lesiones graves, Chen Haiyang ordenó continuar persiguiendo a los dos barcos enemigos restantes.
 
@@ -69,7 +69,7 @@ La embarcación disminuyó la velocidad, y las dos embarcaciones se acercaron ca
 
 "¡Entendido!", dijo Li Di e inmediatamente cambió la cinta de audio. De todas formas, los mensajes de rendición eran siempre los mismos: "Dejen las armas y enarruesten una bandera blanca".
 
-  Sin embargo, el barco número 3 claramente no tenía intención de caer en sus manos. Aprovechando el momento en que estaban ocupados con los barcos número 1 y 2, el barco número 3 ya había escapado a casi 1 kilómetro de distancia. A través de los prismáticos de 8 aumentos, se podía ver que en la popa de su barco se habían añadido dos remos más, y que alguien estaba desesperadamente lanzando todo tipo de objetos por la borda.
+Sin embargo, el barco número 3 claramente no tenía intención de caer en sus manos. Aprovechando el momento en que estaban ocupados con los barcos número 1 y 2, el barco número 3 ya había escapado a casi 1 kilómetro de distancia. A través de los prismáticos de 8 aumentos, se podía ver que en la popa de su barco se habían añadido dos remos más, y que alguien estaba desesperadamente lanzando todo tipo de objetos por la borda.
 
 "¡Eliminenlos!"
 
@@ -77,7 +77,7 @@ Aunque es una lástima no haber capturado a ningún prisionero, lo más importan
 
 El "Yú 1 hao" aumentó nuevamente su potencia y se acercó a 200 metros, giró el timón para orientar su costado hacia el barco número 3 que huía, permitiendo que ambas ballestas delanteras pudieran ejercer su máximo poder.
 
-  Diez minutos después, la embarcación número 3 se convirtió en una enorme antorcha; probablemente se acabaron las bombas incendiarias, por lo que el barco no explotó. A través de los binoculares, se podía ver a los desesperados piratas saltando al mar para tratar de salvarse.
+Diez minutos después, la embarcación número 3 se convirtió en una enorme antorcha; probablemente se acabaron las bombas incendiarias, por lo que el barco no explotó. A través de los binoculares, se podía ver a los desesperados piratas saltando al mar para tratar de salvarse.
 
 "Rescatar a los prisioneros."
 
@@ -87,4 +87,4 @@ Esta batalla, que pasó a la historia como la primera batalla naval en Lingao, e
 
 En el barco enemigo número 1, que fue remolcado de vuelta al puerto por el barco de pesca número 2, solo se encontraron tres personas con vida. Muchas personas se habían escondido debajo de la cubierta, creyendo que los gruesos tablones del barco los protegerían, pero todas fueron abatidas a tiros indiscriminadamente o murieron por la pérdida excesiva de sangre. Según las personas que bajaron al barco para inspeccionar, la sangre fluyó desde la cubierta inferior hasta el fondo del barco.
 
-  La fotografía del barco fue rápidamente identificada por el grupo de inteligencia. Se trataba de una llamada "embarcación de dos mástiles" común en la costa de Guangdong durante la dinastía Ming. Era un tipo de barco grande utilizado para la pesca y el transporte de mercancías costeras. Debido a su excelente construcción y su idoneidad para la navegación en alta mar, era un barco familiar para los europeos de Asia oriental y sudeste en esa época. Tras la medición, la longitud total del barco era de 27,5 metros, la longitud de la línea de flotación era de 21 metros y la distancia entre las bordas era de 6 metros. Claramente, estas dimensiones eran adecuadas para cualquier propósito, incluyendo su uso como barco pirata.
+La fotografía del barco fue rápidamente identificada por el grupo de inteligencia. Se trataba de una llamada "embarcación de dos mástiles" común en la costa de Guangdong durante la dinastía Ming. Era un tipo de barco grande utilizado para la pesca y el transporte de mercancías costeras. Debido a su excelente construcción y su idoneidad para la navegación en alta mar, era un barco familiar para los europeos de Asia oriental y sudeste en esa época. Tras la medición, la longitud total del barco era de 27,5 metros, la longitud de la línea de flotación era de 21 metros y la distancia entre las bordas era de 6 metros. Claramente, estas dimensiones eran adecuadas para cualquier propósito, incluyendo su uso como barco pirata.

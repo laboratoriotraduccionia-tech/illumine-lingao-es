@@ -38,7 +38,7 @@ Wu Mingjin no pudo negarse, así que le proporcionó veinte espadas cortas, diez
 
 Huang Shouting estaba a punto de despedirse para descansar cuando el portero informó de que los exploradores que habían salido por la mañana habían regresado. Desde que los piratas desembarcaron, el condado ha enviado diariamente un grupo de exploradores para recopilar información; estas personas son originarias de la zona y conocen bien el terreno.
 
-  La ciudad no se atrevió a abrir sus puertas, simplemente bajaron grandes cestos para izar a las personas hacia arriba. Los exploradores salían todos los días, sin sufrir daños, pero hoy regresaron extremadamente aterrorizados. Los ciudadanos de la ciudad, al ver su estado, comenzaron a murmurar y especular.
+La ciudad no se atrevió a abrir sus puertas, simplemente bajaron grandes cestos para izar a las personas hacia arriba. Los exploradores salían todos los días, sin sufrir daños, pero hoy regresaron extremadamente aterrorizados. Los ciudadanos de la ciudad, al ver su estado, comenzaron a murmurar y especular.
 
 "¿Qué? ¿Van a construir una carretera?", preguntó Wu Daling, sorprendido.
 
@@ -56,7 +56,7 @@ Huang Shouting estaba a punto de despedirse para descansar cuando el portero inf
 
 "El espía se inclinó repetidamente: 'Mi señor, no me atrevo a engañarle, es cierto que ya se ha construido un camino de unos cinco o seis kilómetros'. También dijo que los piratas poseían artes mágicas, y que muchos vehículos, incluso sin ruedas, podían avanzar, equipados con enormes brazos de hierro que podían usar para cavar la tierra con una pala gigante, y que incluso grandes cantidades de tierra, como pequeñas montañas, podían ser excavadas y transportadas fácilmente..."
 
-  ¡Otra vez magia oscura! Wu Daling no creía en explicaciones sobrenaturales, pero cada vez veía cosas que estaban más allá de su comprensión, y los poderes de los piratas eran cada vez mayores, lo que realmente le preocupaba. Pensaba en la reparación de carreteras y puentes, algo que el condado debería hacer, pero siempre se enfrentaba a obstáculos: o no había dinero para contratar trabajadores, o los terratenientes se quejaban y se negaban a ceder terrenos. Incluso si todo fuera perfecto, él mismo no tenía la capacidad de construir varios kilómetros de carretera en solo dos días, y eso sin mencionar que sería simplemente un camino de tierra. ¿Qué clase de personas son estos piratas?
+¡Otra vez magia oscura! Wu Daling no creía en explicaciones sobrenaturales, pero cada vez veía cosas que estaban más allá de su comprensión, y los poderes de los piratas eran cada vez mayores, lo que realmente le preocupaba. Pensaba en la reparación de carreteras y puentes, algo que el condado debería hacer, pero siempre se enfrentaba a obstáculos: o no había dinero para contratar trabajadores, o los terratenientes se quejaban y se negaban a ceder terrenos. Incluso si todo fuera perfecto, él mismo no tenía la capacidad de construir varios kilómetros de carretera en solo dos días, y eso sin mencionar que sería simplemente un camino de tierra. ¿Qué clase de personas son estos piratas?
 
 Sin embargo, el problema actual no reside en el camino, sino en la razón por la cual los piratas están construyendo el camino. Si son piratas, no pueden estar actuando por motivos altruistas; su intención es robar, y construir un camino es un esfuerzo innecesario. Además, ¿qué podría haber para robar en Bairen Shou Tan? Solo hay unas pocas canteras allí, y la mayoría de los trabajadores ya han huido.
 
@@ -78,7 +78,7 @@ En medio de la duda, rápidamente ordenó que se convocara a los funcionarios de
 
 "Además de esto, no hay mucho más que se pueda decir."
 
-  La provincia de Hainan está cerca de Guangdong y Macao, y los barcos de los "Hongmao Yi" (extranjeros) pasan con frecuencia. En la corte, se sabe que la dinastía compra cañones a los "Hongmao" en Guangzhou. Wu Mingjin sabía que estos cañones eran muy pesados, pero de un poder asombroso, y que la dinastía los utilizaba para la defensa de Liaodong. El asedio de Guangning del año pasado solo pudo resistirse gracias a estos cañones; son verdaderamente armas valiosas en el ejército.
+La provincia de Hainan está cerca de Guangdong y Macao, y los barcos de los "Hongmao Yi" (extranjeros) pasan con frecuencia. En la corte, se sabe que la dinastía compra cañones a los "Hongmao" en Guangzhou. Wu Mingjin sabía que estos cañones eran muy pesados, pero de un poder asombroso, y que la dinastía los utilizaba para la defensa de Liaodong. El asedio de Guangning del año pasado solo pudo resistirse gracias a estos cañones; son verdaderamente armas valiosas en el ejército.
 
 "En este momento, si algo así llegara a estar frente a la ciudad... el comandante Wu no se atrevía a imaginar las consecuencias."
 
@@ -86,9 +86,9 @@ En medio de la duda, rápidamente ordenó que se convocara a los funcionarios de
 
 En ese momento, ellos aún no sabían que se enfrentarían a algo aún más terrible que los cañones "Hongyi", como más tarde se decía en los salones de lectura de la ciudad de Lingao: "¡Qué tragedia!".
 
-  Todos dirigieron su atención hacia Sun Baihu, quien vestía una chaqueta con motivos de pato y gallo. Este funcionario hereditario, que creía que este era un buen puesto, recibió diez taels de plata como recompensa tan pronto como llegó a la ciudad, y la mitad de la recompensa que el condado le daba a los soldados fue confiscada por él. Durante estos dos días, ha estado comiendo y bebiendo constantemente, lo cual es mucho más cómodo que la vida miserable en la guarnición. En cuanto al ataque a la ciudad por parte de los piratas, él cree que es algo imposible.
+Todos dirigieron su atención hacia Sun Baihu, quien vestía una chaqueta con motivos de pato y gallo. Este funcionario hereditario, que creía que este era un buen puesto, recibió diez taels de plata como recompensa tan pronto como llegó a la ciudad, y la mitad de la recompensa que el condado le daba a los soldados fue confiscada por él. Durante estos dos días, ha estado comiendo y bebiendo constantemente, lo cual es mucho más cómodo que la vida miserable en la guarnición. En cuanto al ataque a la ciudad por parte de los piratas, él cree que es algo imposible.
 
-  Al ver que todos lo miraban, sintió un repentino temor. Sabía que, aunque ostentaba el título de "世袭百户" (shishi baihu, heredado por tradición), en realidad era solo un pequeño terrateniente, y de los treinta soldados que había traído, la mayoría pasaban más tiempo con las palas que con las espadas. Lo único que tenía algo de poder era ese cañón "佛郎机" (Folangji). ¿Cómo podía él, con su limitada experiencia, saber cómo contrarrestarlo? Además, si los piratas realmente traían un cañón "红夷" (Hongyi), él ni siquiera tendría tiempo de escapar. Sabía que no importaba lo que dijera, así que decidió fingir calma y no dijo nada.
+Al ver que todos lo miraban, sintió un repentino temor. Sabía que, aunque ostentaba el título de "世袭百户" (shishi baihu, heredado por tradición), en realidad era solo un pequeño terrateniente, y de los treinta soldados que había traído, la mayoría pasaban más tiempo con las palas que con las espadas. Lo único que tenía algo de poder era ese cañón "佛郎机" (Folangji). ¿Cómo podía él, con su limitada experiencia, saber cómo contrarrestarlo? Además, si los piratas realmente traían un cañón "红夷" (Hongyi), él ni siquiera tendría tiempo de escapar. Sabía que no importaba lo que dijera, así que decidió fingir calma y no dijo nada.
 
 "El magistrado de Wuxian maldijo en silencio a Sun Baihu, considerándolo un inútil, aunque él mismo no esperaba gran cosa de los soldados de la guarnición. Probablemente, esta situación requería que el general Tang enviara tropas."
 

@@ -1,11 +1,11 @@
 ## Capítulo 194: Negocios
 
 
-  Tan pronto como aterrizó, varias personas lo recibieron con gran respeto. Sin embargo, nadie habló, y el hombre corpulento permaneció en silencio. Solo asintió con la cabeza cuando alguien se inclinó y le dijo algunas palabras.
+Tan pronto como aterrizó, varias personas lo recibieron con gran respeto. Sin embargo, nadie habló, y el hombre corpulento permaneció en silencio. Solo asintió con la cabeza cuando alguien se inclinó y le dijo algunas palabras.
 
 Alguien los guiaba, y los hombres fuertes y sus acompañantes avanzaban por un sendero que habían abierto en la densa jungla. Después de caminar aproximadamente medio kilómetro, se detuvieron. Delante de ellos se encontraba un asentamiento rudimentario, no muy diferente de los asentamientos de los llamados pueblos originarios que se encuentran en entornos similares en todo el mundo. Lo que lo hacía diferente era que sobre el asentamiento se erguían numerosos postes de madera, y en cada uno de esos postes había clavadas cabezas humanas.
 
-  El hombre corpulento no le prestó atención a esa escena aterradora. En la entrada del poblado, había muchos hombres completamente equipados que estaban en estado de alerta. Aunque estas personas estaban vestidas con ropa raída, sus cuerpos fuertes y sus armas de alta calidad indicaban que no eran pescadores comunes del mar.
+El hombre corpulento no le prestó atención a esa escena aterradora. En la entrada del poblado, había muchos hombres completamente equipados que estaban en estado de alerta. Aunque estas personas estaban vestidas con ropa raída, sus cuerpos fuertes y sus armas de alta calidad indicaban que no eran pescadores comunes del mar.
 
 Un grupo de personas fue llevado a la aldea, donde el suelo estaba manchado de sangre. Era evidente que los "habitantes originales" habían sido "eliminados", dejando espacio para los nuevos dueños.
 
@@ -23,7 +23,7 @@ En un espacio abierto frente a una gran cabaña, un fuego ardía en el hogar. Un
 
 "Primero, quiero mi pago", dijo el señor Paulo sin rodeos, con unos ojos casi grises, que transmitían tanto frialdad como firmeza.
 
-  Un joven hizo un gesto a sus acompañantes, y de inmediato alguien trajo un cofre. Dentro, había una gran cantidad de pesos españoles.
+Un joven hizo un gesto a sus acompañantes, y de inmediato alguien trajo un cofre. Dentro, había una gran cantidad de pesos españoles.
 
 "Esto es el pago acordado."
 
@@ -59,13 +59,13 @@ Un día, inevitablemente, llegaría el momento de una lucha encarnizada entre no
 
 "Cuanto más se demora, más perjudicial es para él. La fuerza de los australianos crece constantemente. El informe de Guo Huaiyi menciona que las ciudades que han construido en Dagon, así como el número de refugiados que han enviado, superan con creces los logros obtenidos a lo largo de muchos años de colonización desde la época de Yan Sizhi."
 
-  Aunque la escala de su flota era superior, la información recopilada de diversas fuentes, especialmente la obtenida de Lisiya, permitió a Zheng Zhiblong tener una evaluación bastante clara de la fuerza de los australianos. Si hubiera un enfrentamiento directo, su enorme "flota" no podría resistir un solo golpe. Inicialmente, solo unas pocas naves mercantes armadas holandesas pudieron superar a su flota superior en una batalla naval. Si no fuera porque los holandeses eran pocos y, posteriormente, lograron lanzar un ataque en una bahía favorable para el fuego, no habrían podido derrotar a los holandeses.
+Aunque la escala de su flota era superior, la información recopilada de diversas fuentes, especialmente la obtenida de Lisiya, permitió a Zheng Zhiblong tener una evaluación bastante clara de la fuerza de los australianos. Si hubiera un enfrentamiento directo, su enorme "flota" no podría resistir un solo golpe. Inicialmente, solo unas pocas naves mercantes armadas holandesas pudieron superar a su flota superior en una batalla naval. Si no fuera porque los holandeses eran pocos y, posteriormente, lograron lanzar un ataque en una bahía favorable para el fuego, no habrían podido derrotar a los holandeses.
 
 "Zheng Zhilong entendía mejor que nadie la superioridad de la potencia marítima europea en la costa china, y mucho menos que los holandeses, los españoles y los australianos, que tenían barcos más rápidos y cañones más potentes."
 
 Para obtener la victoria, es necesario actuar de forma inesperada. Se debe lanzar un ataque sorpresa y bloquear la flota de los australianos en el puerto, utilizando barcos incendiarios, como se hizo en el pasado contra los holandeses.
 
-  Sin embargo, la ventaja de los australianos en los cañones de los barcos era demasiado grande. Esto se convirtió en una pesadilla que los hermanos Zheng no podían olvidar.
+Sin embargo, la ventaja de los australianos en los cañones de los barcos era demasiado grande. Esto se convirtió en una pesadilla que los hermanos Zheng no podían olvidar.
 
 Afortunadamente, en ese momento, un barco que regresaba de Manila les trajo una noticia. Un misionero japonés, llamado "qiezhi dan" (término despectivo para los jesuitas), había llegado a Manila y, aparentemente, poseía muchos conocimientos de magia, habiendo creado muchas armas novedosas. Los españoles habían obtenido las armas diseñadas y fabricadas por este misionero, y ya habían logrado muchas victorias contra los nativos. Por ello, este misionero gozaba de la confianza del gobernador.
 

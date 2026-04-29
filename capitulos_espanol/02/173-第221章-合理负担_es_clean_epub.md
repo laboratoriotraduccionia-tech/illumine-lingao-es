@@ -1,15 +1,15 @@
 ## Capítulo 217: Una carga razonable
 
 
-  En la antigua China, los impuestos rara vez se utilizaban para servicios públicos. Lo que se conocía como "impuestos" era simplemente una forma de recaudar fondos para el gobierno. Las dificultades del pueblo y las mejoras sociales rara vez se tenían en cuenta. Los asuntos públicos y el bienestar social que las administraciones modernas asumen no estaban dentro de su ámbito de consideración.
+En la antigua China, los impuestos rara vez se utilizaban para servicios públicos. Lo que se conocía como "impuestos" era simplemente una forma de recaudar fondos para el gobierno. Las dificultades del pueblo y las mejoras sociales rara vez se tenían en cuenta. Los asuntos públicos y el bienestar social que las administraciones modernas asumen no estaban dentro de su ámbito de consideración.
 
 La mayor parte de los ingresos fiscales de la dinastía se destinaba casi por completo a tres áreas: el mantenimiento de la familia real, el ejército y la burocracia. A pesar de esto, cualquier pequeño problema o revuelta provocaba una situación de "insuficiencia de fondos estatales". La solución era muy simple: aumentar los impuestos. Cada vez que se aumentaban los impuestos, esto representaba una oportunidad para aumentar los ingresos de los funcionarios de todos los niveles, pero era una calamidad para el pueblo común.
 
 En cuanto a Lingao, aunque el gobierno de la dinastía Ming obtiene anualmente más de siete mil piedras de grano como impuesto directo de esta región, es difícil determinar qué beneficios concretos traen a la población local estos impuestos que se pagan al gobierno. Durante los doscientos años transcurridos, solo se ha construido una obra de infraestructura hidráulica por parte del gobierno: el puente Wen Shui, que podría considerarse una obra útil realizada por el gobierno, pero incluso así, solo ha habido una obra de este tipo en doscientos años.
 
-  Los ciudadanos sustentan al gobierno. Además de la mera supervivencia, este gobierno no ha traído ningún beneficio a los ciudadanos de Lingao. La ayuda en caso de desastre depende de los "almacenes de ayuda" comunitarios; la defensa contra los bandidos requiere que los propios ciudadanos tomen las armas y actúen como milicias locales. Aunque un tercio de las más de siete mil toneladas de grano anuales se destinan directamente a los "suplementos" de las tropas estacionadas en Hainan, cuando los bandidos terrestres y marítimos de Lingao causan estragos, los ciudadanos no pueden contar con que estos funcionarios, a quienes sustentan, salgan a "exterminar bandidos".
+Los ciudadanos sustentan al gobierno. Además de la mera supervivencia, este gobierno no ha traído ningún beneficio a los ciudadanos de Lingao. La ayuda en caso de desastre depende de los "almacenes de ayuda" comunitarios; la defensa contra los bandidos requiere que los propios ciudadanos tomen las armas y actúen como milicias locales. Aunque un tercio de las más de siete mil toneladas de grano anuales se destinan directamente a los "suplementos" de las tropas estacionadas en Hainan, cuando los bandidos terrestres y marítimos de Lingao causan estragos, los ciudadanos no pueden contar con que estos funcionarios, a quienes sustentan, salgan a "exterminar bandidos".
 
-  Para que un gobierno que busca el apoyo del pueblo tenga éxito, debe romper con este modelo que se ha transmitido durante mil años y establecer un sistema real de un estado moderno. La gente puede ser ignorante, pero es absolutamente inteligente cuando se trata de sus propios intereses. Pueden ver claramente quién es quien realmente trabaja por ellos y busca su bienestar.
+Para que un gobierno que busca el apoyo del pueblo tenga éxito, debe romper con este modelo que se ha transmitido durante mil años y establecer un sistema real de un estado moderno. La gente puede ser ignorante, pero es absolutamente inteligente cuando se trata de sus propios intereses. Pueden ver claramente quién es quien realmente trabaja por ellos y busca su bienestar.
 
 Al comenzar la reunión, primero habló el funcionario del condado. Wu Ya se encontraba por primera vez en una situación así: solo tenía experiencia en juzgar casos en el tribunal, donde los acusados y los demandados estaban arrodillados y no se atrevían a mirarlo, y solo había algunos curiosos afuera. Ahora, él y un grupo de "rebeldes" estaban sentados juntos, y había cientos de figuras locales mirándolo.
 
@@ -23,7 +23,7 @@ Wu Yachai, obligado por las circunstancias, actuó como el representante del con
 
 Después de que el funcionario de Wu explicó la grave situación de la piratería que enfrentaba el condado, así como la importancia y necesidad de organizar la defensa local, anunció: El informe sobre la defensa unificada del condado de Lingao, iniciado por la aldea de Dàměi, ha sido aprobado por la oficina del condado. El nombre de la organización de defensa se ha establecido como "Bǎirèn Shè". El gobierno emitió los documentos correspondientes a Bǎirèn Shè, autorizándola a organizar, entrenar y dirigir la defensa.
 
-  La sociedad "Bairen" estableció una "oficina pública" en Dongmen, que sirvió como sede administrativa del grupo. Al mismo tiempo, podía recaudar fondos y suministros de los diferentes pueblos que se unían a la sociedad.
+La sociedad "Bairen" estableció una "oficina pública" en Dongmen, que sirvió como sede administrativa del grupo. Al mismo tiempo, podía recaudar fondos y suministros de los diferentes pueblos que se unían a la sociedad.
 
 El presidente de la sociedad Bairen es, naturalmente,邬德. Aunque no es un líder militar, los líderes de la sociedad tuanlian generalmente son miembros de la élite local, que se dedican a interactuar con el gobierno y los diferentes pueblos. Como nuevo miembro del comité popular de asuntos civiles, es adecuado que ocupe este cargo gubernamental. Además, a través de este cargo, las figuras importantes locales lo conocerán, lo que facilitará el trabajo futuro.
 
@@ -47,9 +47,9 @@ La razón por la que se adoptó esta forma de declaración es porque los viajero
 
 Aunque algunos viajeros temporales consideran que permitir que cada aldea se registre por sí misma podría generar problemas de reducción de datos, Wu De señaló que, incluso si existen casos de reducción u ocultamiento, es mejor que usar los registros de "yulin". En primer lugar, cada aldea tiene una idea clara de su producción real, por lo que los números reportados no superarán el nivel que pueden soportar. En segundo lugar, dada su actual autoridad y la leyenda de que "controlan los poderes sobrenaturales", es poco probable que las aldeas subreporten los números; no se atreverían a engañar a los viajeros temporales, y si eso ocurriera, se podría aplicar una política de "uno como ejemplo para educar a cien". En tercer lugar, Wu De cree que este método refleja un espíritu de igualdad y negociación, lo cual es beneficioso para ganarse el favor del pueblo.
 
-  Como era de esperar, tan pronto como este método se anunció, todos los pueblos se sintieron aliviados. Originalmente, todos temían que el grupo de viajeros temporales pidiera una suma exorbitante, pero ahora solo debían informar por sí mismos sobre las "contribuciones" que harían.
+Como era de esperar, tan pronto como este método se anunció, todos los pueblos se sintieron aliviados. Originalmente, todos temían que el grupo de viajeros temporales pidiera una suma exorbitante, pero ahora solo debían informar por sí mismos sobre las "contribuciones" que harían.
 
-  Todos entienden este asunto de las donaciones. Cuando el gobierno tiene algún asunto importante que tratar, invariablemente se recurre a algo llamado "reconocimiento de donación" o "contribución voluntaria". Esto es un poco más fácil de manejar que los impuestos reales, y además, con algo de dinero para sobornar a los funcionarios encargados, aún se puede negociar.
+Todos entienden este asunto de las donaciones. Cuando el gobierno tiene algún asunto importante que tratar, invariablemente se recurre a algo llamado "reconocimiento de donación" o "contribución voluntaria". Esto es un poco más fácil de manejar que los impuestos reales, y además, con algo de dinero para sobornar a los funcionarios encargados, aún se puede negociar.
 
 "Por favor, todos indiquen las cifras según la situación real de sus aldeas, y actúen dentro de sus posibilidades", dijo Wu De con una expresión complaciente.
 
@@ -57,17 +57,17 @@ En el salón, de repente, se levantó un gran revuelo. Los representantes de cad
 
 "Huang Binkun vio esto como una oportunidad y dijo deliberadamente: "Esto es un asunto importante para el pueblo, nosotros no podemos decidirlo por nosotros mismos, es mejor que volvamos a discutirlo"".
 
-  Las personas que estaban presentes escucharon esto y lo consideraron lógico, por lo que algunos se levantaron para solicitar que primero regresaran y consultaran con los ancianos del pueblo antes de regresar y dar su informe. Muchas otras personas expresaron su acuerdo.
+Las personas que estaban presentes escucharon esto y lo consideraron lógico, por lo que algunos se levantaron para solicitar que primero regresaran y consultaran con los ancianos del pueblo antes de regresar y dar su informe. Muchas otras personas expresaron su acuerdo.
 
 "Así es mejor", pensó Huang Binkun. Con tantos pueblos, a diferentes distancias, el viaje de ida y vuelta tomaría al menos cuatro o cinco días, y sumando el tiempo que seguramente se perdería discutiendo con la gente del pueblo, y luego las reuniones, todo eso significaría que pasaría al menos medio mes.
 
 Wu De ya preparado para esta situación, por lo que solicitó a cada aldea que realizara un censo para determinar cuántas personas podían aceptar de inmediato la "carga razonable" y cuántas necesitaban más tiempo para discutirlo. Se debía enviar una lista con los nombres.
 
-  Según las estadísticas, aproximadamente ochenta pueblos podían tomarse de decisión de inmediato, mientras que los otros doscientos pueblos requerían más discusión.
+Según las estadísticas, aproximadamente ochenta pueblos podían tomarse de decisión de inmediato, mientras que los otros doscientos pueblos requerían más discusión.
 
 "Lo que se pueda decidir de inmediato, se informarán las cifras en un momento", anunció Wu De. "En cuanto a lo que requiera más discusión, se puede continuar la conversación después de que termine la reunión, pero los números deben ser informados a la oficina antes del 15 de febrero."
 
-  Con esto, Huang Binkun pensó que la esperanza de que la reunión se disolviera prematuramente se había desvanecido por completo. La reunión continuó.
+Con esto, Huang Binkun pensó que la esperanza de que la reunión se disolviera prematuramente se había desvanecido por completo. La reunión continuó.
 
 Después de decidir sobre la "carga razonable", Wu De anunció los detalles de la misión.
 

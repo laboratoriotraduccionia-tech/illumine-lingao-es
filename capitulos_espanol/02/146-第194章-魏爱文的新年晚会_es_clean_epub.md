@@ -1,7 +1,7 @@
 ## Capítulo 190: La fiesta de Año Nuevo de Wei Aiwen
 
 
-  "Por supuesto, nada de eso es un asunto menor", dijo Wei Aiwen con cierta satisfacción, relatando cómo había organizado una reunión para fomentar el pensamiento positivo y superar las dificultades, y también elogiando las habilidades de Wang Tao.
+"Por supuesto, nada de eso es un asunto menor", dijo Wei Aiwen con cierta satisfacción, relatando cómo había organizado una reunión para fomentar el pensamiento positivo y superar las dificultades, y también elogiando las habilidades de Wang Tao.
 
 "Wu De sonrió y asintió: 'Xiao Wei, aunque soy de la marina, estuve en el EPL durante más de diez años. Como alguien mayor, debo decirte algunas cosas: este enfoque que tienes hacia el trabajo político es un camino equivocado.'"
 
@@ -59,36 +59,36 @@ Se escuchó una oleada de aplausos, y la gente aplaudió de todas las formas pos
 
 Wei Aiwen no hizo conjeturas, caminó hasta el suelo y tosió. Antes, era un asiduo de los karaokes, un miembro destacado del grupo de arte de la unidad, y conocía muchas canciones. Sin embargo, las canciones pop eran demasiado suaves, así que decidió cantar una canción militar. Recordó una canción que le gustaba mucho cantar en el pasado, "Canción de los jinetes de la estepa". Primero, repasó la letra, la tarareó una vez, eliminando y reemplazando algunas partes inapropiadas, y luego comenzó a cantar:
 
-  Las estepas, oh, las estepas.
+Las estepas, oh, las estepas.
 
-  ¡La vasta estepa se extiende hasta el horizonte!
-  Los héroes cabalgan a caballo por la estepa,
-  ¡Aihei!, los guerreros corren hacia adelante.
+¡La vasta estepa se extiende hasta el horizonte!
+Los héroes cabalgan a caballo por la estepa,
+¡Aihei!, los guerreros corren hacia adelante.
 
-  ¡Ajá!, el guerrero corre hacia adelante.
+¡Ajá!, el guerrero corre hacia adelante.
 
 "Joven, por favor, miren:
 El camino que tenemos delante es amplio y llano."
 
-  Miren, qué tan larga y distante es esta carretera.
+Miren, qué tan larga y distante es esta carretera.
 
 "¡Ah, qué alegría! El canto no cesa en el camino."
 
 "¡Ah, qué alegría! El canto no cesa en el camino."
 
-  En el camino que he recorrido,
+En el camino que he recorrido,
 
-  Nuestros campos circundantes son vastos.
+Nuestros campos circundantes son vastos.
 
-  Todo esto es parte de nuestra finca agrícola.
+Todo esto es parte de nuestra finca agrícola.
 
 ¡Ajá! Un panorama completamente nuevo en todas partes.
 
 ¡Ajá, un panorama completamente nuevo en todas partes!
 
-  Pero nosotros vemos,
+Pero nosotros vemos,
 
-  En el horizonte, el humo de la pólvora se extendía.
+En el horizonte, el humo de la pólvora se extendía.
 
 Los enemigos se escondían detrás del bosque,
 ay, como nubes oscuras que cubren el cielo azul.
@@ -98,10 +98,10 @@ ay, como nubes oscuras que cubren el cielo azul.
 "Joven, no te preocupes,
 nos estamos preparando para enfrentar al enemigo."
 
-  Miren, la caballería galopa a toda velocidad,
+Miren, la caballería galopa a toda velocidad,
  ⃰ ¡Aihei!, la infantería avanza con ímpetu.
-  ¡Aihei!, la infantería avanza con ímpetu.
-  ¡Aihei!, los viajeros temporales nos lideran.
+¡Aihei!, la infantería avanza con ímpetu.
+¡Aihei!, los viajeros temporales nos lideran.
 
 Eh, los viajeros temporales nos guían.
 
@@ -143,7 +143,7 @@ Mirando por la ventana, el cielo aún estaba tenuemente iluminado. Los funcionar
 
 Después del desayuno, aunque era día libre, no había mucho que hacer. Wu Duzuo, como de costumbre, visitó varios sitios de construcción. Estos sitios dependen ahora de la mano de obra proporcionada por la comuna. Según el plan, los departamentos de fábrica de ladrillos y cantera deben continuar trabajando, y son responsables de la producción los equipos de trabajo forzado. Además, está el proyecto de construcción de viviendas en el pueblo de Baidu en Bopu. Este pueblo se dedica principalmente a la construcción de barcos, por lo que el alojamiento sigue estando ubicado en el puerto de Bopu, y el nombre del pueblo sigue siendo Baidu. Wu Duzuo no pidió un coche y, acompañado de su guardia, Yuan Qiushi, caminó por la carretera hacia Bopu para inspeccionar el progreso de la obra.
 
-  Al llegar a la obra, vi a Wen Desi y a varias personas del departamento de construcción trepando sobre un enorme montículo de arena, señalando y discutiendo algo.
+Al llegar a la obra, vi a Wen Desi y a varias personas del departamento de construcción trepando sobre un enorme montículo de arena, señalando y discutiendo algo.
 
 "¡Buenos días, Wen Zong! Ah, y feliz año nuevo."
 
@@ -157,4 +157,4 @@ Wu De subió a la pila de arena junto al río. Wen Desi tenía en la mano un boc
 
 Este tipo de vivienda, conocida como "vivienda tipo B", está compuesta por casas que forman un cuadrado, con un total de 38 hogares. Cada hogar tiene dos plantas de aproximadamente 16 metros cuadrados, además de una terraza de 10 metros cuadrados y un pequeño cobertizo de 6 metros cuadrados en el techo, con una estructura que recuerda a las villas adosadas. En las esquinas de los edificios, la planta baja alberga baños públicos. Las aguas residuales y los desechos se canalizan a un depósito de biogás. En el centro de las casas hay un patio de 400 metros cuadrados con un pozo público.
 
-  Esta construcción no tiene ventanas ni puertas en la planta baja, solo aberturas que dan al patio interior. El borde de la plataforma del último piso tiene almenas. En las cuatro esquinas, hay torres de vigilancia para los guardias. Dentro de las torres, se pueden almacenar muchos suministros públicos del pueblo. Si hay enemigos externos, todos se refugian en las viviendas, donde hay agua y comida, lo que permite una defensa temporal. El acceso a la zona residencial solo es posible a través de la única puerta principal, que tiene aberturas para disparar en la parte superior.
+Esta construcción no tiene ventanas ni puertas en la planta baja, solo aberturas que dan al patio interior. El borde de la plataforma del último piso tiene almenas. En las cuatro esquinas, hay torres de vigilancia para los guardias. Dentro de las torres, se pueden almacenar muchos suministros públicos del pueblo. Si hay enemigos externos, todos se refugian en las viviendas, donde hay agua y comida, lo que permite una defensa temporal. El acceso a la zona residencial solo es posible a través de la única puerta principal, que tiene aberturas para disparar en la parte superior.

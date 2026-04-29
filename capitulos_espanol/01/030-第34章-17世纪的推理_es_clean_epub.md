@@ -6,7 +6,7 @@
 
 Xiao Zishan no se atrevió a tomar una decisión por su cuenta sobre si involucrar a una agencia de seguridad, ya que el asunto era de gran importancia. Después de dudar un momento, simplemente dijo que lo discutirían más adelante, y le ordenó que cerrara y vigilara cuidadosamente las puertas principales y traseras.
 
-  El comité ejecutivo recibió la noticia y convocó urgentemente una reunión: ¡alguien se había atrevido a secuestrar a los viajeros temporales! Era algo intolerable. Todos estaban pensando en darles una buena lección, además de traer a Ran Yao, el ex miembro de JCSS, también reunieron a varios entusiastas de la deducción, amantes de Conan Doyle y Christie. Xi Asiaji sacó incluso algunas escopetas de repetición que había escondido, alguien propuso hacer algunas granadas para "que los nativos las probaran", y otros estaban preparando bombas de ácido. Justo cuando la indignación era máxima, Ma Qianzhu se levantó y dijo:
+El comité ejecutivo recibió la noticia y convocó urgentemente una reunión: ¡alguien se había atrevido a secuestrar a los viajeros temporales! Era algo intolerable. Todos estaban pensando en darles una buena lección, además de traer a Ran Yao, el ex miembro de JCSS, también reunieron a varios entusiastas de la deducción, amantes de Conan Doyle y Christie. Xi Asiaji sacó incluso algunas escopetas de repetición que había escondido, alguien propuso hacer algunas granadas para "que los nativos las probaran", y otros estaban preparando bombas de ácido. Justo cuando la indignación era máxima, Ma Qianzhu se levantó y dijo:
  ⃀“No podemos ir con tanta gente.”
 
 "¡¿Por qué?!" Wang Gong estaba furioso y, al ver que alguien se oponía, inmediatamente lo increpó.
@@ -67,7 +67,7 @@ Ran Yao dedicó más de una hora a la investigación y, en general, comprendió 
 
 "No soy un historiador", dijo Ran Yao, resignado. En realidad, este caso no presentaría ninguna dificultad en la actualidad; los rastros que dejó este grupo de personas son prácticamente inexistentes bajo las técnicas modernas de investigación criminal. Lamentablemente, estamos en el siglo XVII, en la dinastía Ming, donde no existen archivos de huellas dactilares ni registros de antecedentes penales que consultar, y él no tiene ningún conocimiento de las condiciones sociales de esta ciudad antigua. Los métodos habituales de investigación tampoco son útiles.
 
-  Todos estaban un poco decepcionados. Originalmente, pensaban que con la intervención de profesionales en la investigación criminal, estos pequeños delincuentes revelarían rápidamente su verdadera naturaleza. Parece que la situación no es tan simple. La investigación criminal moderna depende en gran medida de la información y los archivos recopilados a lo largo del tiempo.
+Todos estaban un poco decepcionados. Originalmente, pensaban que con la intervención de profesionales en la investigación criminal, estos pequeños delincuentes revelarían rápidamente su verdadera naturaleza. Parece que la situación no es tan simple. La investigación criminal moderna depende en gran medida de la información y los archivos recopilados a lo largo del tiempo.
 
 "¿Se puede determinar algo más? Por ejemplo, el motivo. Xiao Zishan continuó preguntando: "¿Fue algo planeado o una decisión impulsiva?".
 
@@ -87,4 +87,4 @@ Ran Yao dedicó más de una hora a la investigación y, en general, comprendió 
 
 "Este asunto no es tan simple como un robo o un secuestro", dijo Ran Yao, negando con la cabeza. "Creo que secuestrar a Wen Zong podría no ser motivado por un intento de extorsión."
 
-  Todos conversaron en voz baja por un rato y finalmente estuvieron de acuerdo en utilizar la ayuda de personas de la dinastía Ming para investigar. Xiao Zishan entonces le dijo a Sun Chang: "Llama al gerente de la agencia Qiwai."
+Todos conversaron en voz baja por un rato y finalmente estuvieron de acuerdo en utilizar la ayuda de personas de la dinastía Ming para investigar. Xiao Zishan entonces le dijo a Sun Chang: "Llama al gerente de la agencia Qiwai."

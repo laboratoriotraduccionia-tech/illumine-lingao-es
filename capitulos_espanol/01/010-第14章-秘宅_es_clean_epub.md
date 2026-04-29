@@ -1,7 +1,7 @@
 ## Capítulo 10: La casa secreta
 
 
-  Xiao Zishan y el resto del grupo se levantaron rápidamente para responder al saludo. La desconfianza inicial hacia las personas de otras dimensiones había disminuido considerablemente; después de todo, eran personas como nosotros. Especialmente, las acciones de Gao Ju en varias transacciones comerciales les habían hecho sentir que era una persona de palabra, digna de confianza y con la que valía la pena seguir interactuando. En el futuro, después de viajar a través del tiempo, seguramente sería de gran ayuda.
+Xiao Zishan y el resto del grupo se levantaron rápidamente para responder al saludo. La desconfianza inicial hacia las personas de otras dimensiones había disminuido considerablemente; después de todo, eran personas como nosotros. Especialmente, las acciones de Gao Ju en varias transacciones comerciales les habían hecho sentir que era una persona de palabra, digna de confianza y con la que valía la pena seguir interactuando. En el futuro, después de viajar a través del tiempo, seguramente sería de gran ayuda.
 
 Después de los saludos de rigor, se pasó a los asuntos principales. Con la fuerza de un carrito hidráulico recién comprado, se transportaron cuatro paneles y más de cien cajas de mercancías.
 
@@ -33,7 +33,7 @@ Aquí, ellos entendieron que esto atraía la atención. Pensaron que, dado que m
 
 Sin embargo, este plan inicial de establecer una base dentro de la ciudad de Guangzhou quedó sin efecto. Según el plan estratégico general de los viajeros temporales, Guangzhou debía servir como la puerta de comercio continental para la base, exportando productos industriales modernos fabricados en la base de Hainan e importando diversos suministros y personal. Al mismo tiempo, también era una ventana para observar los acontecimientos de la dinastía Ming.
 
-  Al ver que Wen Desi y los demás mostraban signos de decepción, Gao Ju finalmente expuso su plan. Había estado considerando este plan durante mucho tiempo. En opinión del señor Gao, la razón por la que los comerciantes marítimos australianos querían comprar propiedades era simplemente porque necesitaban un lugar estable para almacenar mercancías, vivir y realizar negocios a largo plazo. Esto era lo mismo que cuando los franceses sobornaron a funcionarios para alquilar la zona de Haoming, aunque sus ambiciones eran menores.
+Al ver que Wen Desi y los demás mostraban signos de decepción, Gao Ju finalmente expuso su plan. Había estado considerando este plan durante mucho tiempo. En opinión del señor Gao, la razón por la que los comerciantes marítimos australianos querían comprar propiedades era simplemente porque necesitaban un lugar estable para almacenar mercancías, vivir y realizar negocios a largo plazo. Esto era lo mismo que cuando los franceses sobornaron a funcionarios para alquilar la zona de Haoming, aunque sus ambiciones eran menores.
 
 "Sin embargo, tengo otra idea...", dijo Gao Ju, acariciándose unos pocos bigotes y observando a todos con curiosidad.
 
@@ -61,7 +61,7 @@ En la casa, también había sirvientes que la vigilaban. Al ver que el señor Ga
 
 "Nosotros, que nos dedicamos al comercio marítimo, debemos ser extremadamente cuidadosos", lamentó el señor Gao. "Es difícil ganarse la vida".
 
-  Al dedicarse al contrabando, uno se relaciona con personas de dudosa moralidad: piratas, ladrones de barcos, bandidos de montaña y matones, todos ellos motivados por la codicia. Los robos, las extorsiones y los asesinatos son sucesos comunes en este tipo de actividades.
+Al dedicarse al contrabando, uno se relaciona con personas de dudosa moralidad: piratas, ladrones de barcos, bandidos de montaña y matones, todos ellos motivados por la codicia. Los robos, las extorsiones y los asesinatos son sucesos comunes en este tipo de actividades.
 
 Aunque tenían contactos influyentes en la capital, en las provincias y en las dos capitales, los funcionarios a menudo eran abusivos y exigían sobornos. Además, la corte desconfiaba de los asuntos relacionados con el comercio internacional, y de vez en cuando se llevaban a cabo debates para prohibir que los comerciantes franceses comerciaran en Guangzhou. Los altos funcionarios locales a menudo usaban esto como una forma de presión sobre los comerciantes, buscando obtener beneficios.
 

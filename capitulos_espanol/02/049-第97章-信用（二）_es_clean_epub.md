@@ -1,8 +1,8 @@
 ## Capítulo 93: Crédito (II)
 
-  Los datos sobre la primera emisión y la recuperación de los vales de puntos se obtuvieron rápidamente. Se emitieron un total de ocho mil ciento quince puntos y tres décimos, y se recuperaron tres mil trescientos treinta y cuatro puntos, lo que representa una tasa de recuperación del 40% el primer día. Es comprensible que las personas que recibieron estos vales por primera vez quisieran convertirlos rápidamente en bienes reales. En los días siguientes, los vales restantes comenzaron a ser devueltos gradualmente, pero a una velocidad mucho menor de lo esperado. Esto alivió considerablemente a Wu Nanhai, quien había consumido casi 60 kilogramos más de arroz y cereales ese día en comparación con lo habitual.
+Los datos sobre la primera emisión y la recuperación de los vales de puntos se obtuvieron rápidamente. Se emitieron un total de ocho mil ciento quince puntos y tres décimos, y se recuperaron tres mil trescientos treinta y cuatro puntos, lo que representa una tasa de recuperación del 40% el primer día. Es comprensible que las personas que recibieron estos vales por primera vez quisieran convertirlos rápidamente en bienes reales. En los días siguientes, los vales restantes comenzaron a ser devueltos gradualmente, pero a una velocidad mucho menor de lo esperado. Esto alivió considerablemente a Wu Nanhai, quien había consumido casi 60 kilogramos más de arroz y cereales ese día en comparación con lo habitual.
 
-  Sin embargo, la credibilidad de los cupones de trabajo se había establecido básicamente, aunque todavía había quienes eran escépticos. No obstante, estos papeles permitían, de hecho, comprar alimentos adicionales en el servicio de comida diariamente. A continuación, Wu Nanhai comenzó a venderles el vino de arroz producido localmente: una quinta parte de una botella, con 250 gramos por botella. Para evitar que alguien abusara del alcohol y causara problemas, se ofrecía una vez por semana, con un límite de una botella por persona. Sin embargo, las ventas no fueron buenas, lo que desconcertó a Wu Nanhai: este lote de vino de arroz había sido entregado por Zhang Youfu cuando se ocupó de los prisioneros, y él mismo había preguntado a los prisioneros, quienes afirmaron que era un vino de arroz de buena calidad en el condado.
+Sin embargo, la credibilidad de los cupones de trabajo se había establecido básicamente, aunque todavía había quienes eran escépticos. No obstante, estos papeles permitían, de hecho, comprar alimentos adicionales en el servicio de comida diariamente. A continuación, Wu Nanhai comenzó a venderles el vino de arroz producido localmente: una quinta parte de una botella, con 250 gramos por botella. Para evitar que alguien abusara del alcohol y causara problemas, se ofrecía una vez por semana, con un límite de una botella por persona. Sin embargo, las ventas no fueron buenas, lo que desconcertó a Wu Nanhai: este lote de vino de arroz había sido entregado por Zhang Youfu cuando se ocupó de los prisioneros, y él mismo había preguntado a los prisioneros, quienes afirmaron que era un vino de arroz de buena calidad en el condado.
 
 Dado que es un producto de alta calidad, ¿por qué las ventas son tan bajas? Después de tantos días de trato con el equipo de producción, ya puede comunicarse más o menos con estos trabajadores locales utilizando una mezcla de dialecto de Lingao y mandarín. Sin embargo, la respuesta de la mayoría es: "Es demasiado caro, no podemos permitírnoslo".
 
@@ -30,7 +30,7 @@ El nuevo jefe de producción vestía ropa de algodón nueva, cuyo diseño imitab
 
 "Dime."
 
-  Lin Xing se arrodilló y golpeó la cabeza contra el suelo, explicando que muchas personas en la brigada eran arrendatarios, y que llevaban un mes sin regresar a casa. Ahora, la cosecha de otoño estaba a punto de comenzar, y muchas personas estaban preocupadas por no poder volver a recoger los granos, por la falta de mano de obra en sus hogares, por la imposibilidad de cultivar alimentos para pagar el alquiler, y por el temor de que, si los terratenientes se apropiaran de las cosechas, toda la familia moriría de hambre.
+Lin Xing se arrodilló y golpeó la cabeza contra el suelo, explicando que muchas personas en la brigada eran arrendatarios, y que llevaban un mes sin regresar a casa. Ahora, la cosecha de otoño estaba a punto de comenzar, y muchas personas estaban preocupadas por no poder volver a recoger los granos, por la falta de mano de obra en sus hogares, por la imposibilidad de cultivar alimentos para pagar el alquiler, y por el temor de que, si los terratenientes se apropiaran de las cosechas, toda la familia moriría de hambre.
 
 "Todos me han insistido para que les pida al señor Gao que tenga piedad y les permita regresar para visitar a sus familias, terminar los trabajos agrícolas de esta temporada y luego volver." Lin Xing dijo esto y volvió a hacer una reverencia.
 
@@ -38,7 +38,7 @@ El nuevo jefe de producción vestía ropa de algodón nueva, cuyo diseño imitab
 
 Sin embargo, una vez que se les libera, ¿podrán regresar? Wudi no estaba completamente seguro. Según lo que había podido averiguar sobre el estado de ánimo de los trabajadores, la mayoría consideraba que trabajar como obreros era prácticamente lo mismo que trabajar para un terrateniente, y la implementación del sistema de cupones de trabajo había incluso aumentado su entusiasmo. Sin embargo, ¿cuántos estarían dispuestos a trabajar para ellos de forma permanente?
 
-  Dudó por un momento y luego le pidió a Lin Xing que se retirara.
+Dudó por un momento y luego le pidió a Lin Xing que se retirara.
 
 "Esto parece que será difícil de resolver", dijo Wu Nanhai. "Quizás deberíamos consultar con el Comité Ejecutivo".
 
@@ -74,7 +74,7 @@ Wu De también estaba indeciso sobre este tema: liberar a la persona era clarame
 
 "¿Creen que somos quién?", refunfuñó Xiao Bailang. "¿Qué autoridad tenemos para venir aquí? ¿Con qué derecho estamos ocupando esta tierra? ¿Acaso Lingao es una tierra 'indivisible desde siempre' para los viajeros temporales? Nosotros somos intrusos en el tiempo, por favor, no se engañen a sí mismos."
 
-  Se veía que la reunión estaba a punto de perder el control. Hasta el momento, nadie se había pronunciado públicamente para apoyar a Xiao Bailang, pero era evidente que estas palabras tenían un gran poder de movilización. Wen Desi percibió el peligro. Esta expresión tan descarada, que ignoraba por completo los principios morales y priorizaba los intereses, tenía un fuerte poder de movilización sobre el público. En el fondo, en realidad no sentía aversión por las declaraciones de Xiao Bailang; en esencia, decía la verdad, pero muchas cosas no se pueden expresar de manera tan directa, lo cual es peligroso.
+Se veía que la reunión estaba a punto de perder el control. Hasta el momento, nadie se había pronunciado públicamente para apoyar a Xiao Bailang, pero era evidente que estas palabras tenían un gran poder de movilización. Wen Desi percibió el peligro. Esta expresión tan descarada, que ignoraba por completo los principios morales y priorizaba los intereses, tenía un fuerte poder de movilización sobre el público. En el fondo, en realidad no sentía aversión por las declaraciones de Xiao Bailang; en esencia, decía la verdad, pero muchas cosas no se pueden expresar de manera tan directa, lo cual es peligroso.
 
 Pensaba en cómo detener el desarrollo de la situación. Zhan Wúyá se levantó y dijo: "Xiao Zishan, ¡no digas más! La gente debe tener ciertos principios; no se puede hacer cualquier cosa solo por obtener beneficios."
 

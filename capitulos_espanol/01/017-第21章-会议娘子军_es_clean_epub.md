@@ -91,7 +91,7 @@ Como era de esperar, era un profesional experimentado, que sabía cómo actuar. 
 
 "De acuerdo, puedes ayudarme. Sin embargo, jefe de grupo, ¿cómo gestionaremos los fondos y los trámites de reembolso?"
 
-Xiao Zishan explicó el proceso completo. Durante el período de preparación, que duró un año, era muy necesario establecer un sistema administrativo y financiero sencillo pero completo, y este sistema tendría una importancia como referencia en el futuro.
+Xiao Zishan explicó el proceso completo. Durante el período de preparación, que duraría un año, sería muy necesario establecer un sistema administrativo y financiero sencillo pero completo, y este sistema tendría una importancia como referencia en el futuro.
 
 "Ah, ya veo, todo es pago contra entrega, ¿verdad?"
 

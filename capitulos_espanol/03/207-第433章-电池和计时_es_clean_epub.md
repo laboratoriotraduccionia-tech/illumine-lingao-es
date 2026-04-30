@@ -1,0 +1,68 @@
+## Capítulo 429: Baterías y cronometraje
+
+
+El gran deseo del grupo de viajeros temporales por la máquina telegráfica es, sin duda, enorme. Sin embargo, el doctor Zhong señaló correctamente que el desarrollo acelerado del grupo de viajeros temporales en mecánica y química aún no es suficiente para sustentar el desarrollo de la electricidad. El desarrollo de la electricidad es un camino largo y arduo.
+
+Actualmente, el grupo de viajeros temporales ha establecido un sistema de aplicaciones eléctricas que supera con creces las limitaciones de esta época, incluyendo redes de generación y distribución de energía, radio, sistemas de conmutación telefónica semiautomáticos/manuales y sistemas de telefonía móvil. Sin embargo, todo esto se basa en equipos provenientes del siglo XXI.
+
+En comparación con la industria mecánica actual, que ya es capaz de fabricar diversos tipos de máquinas simples, piezas estándar y rodamientos, la industria eléctrica del grupo de "viajeros temporales" es prácticamente inexistente. Ni siquiera los equipos más básicos están disponibles; la producción en masa de cables eléctricos se completó apenas recientemente. Los materiales aislantes utilizados son una mezcla rudimentaria a base de trementina y aceite de tung, y este tipo de material se utiliza con dificultad en las líneas telefónicas. Zhong Lishi cree que no debería haber problemas mayores si se utiliza en el telégrafo por cable, y es precisamente el telégrafo por cable lo que ha decidido desarrollar.
+
+¿Por qué primero se creó el telégrafo por cable? El doctor Zhong explicó de la siguiente manera: en primer lugar, el telégrafo por cable es el dispositivo de comunicación más fácil de fabricar utilizando métodos rudimentarios. Muchos han visto equipos de cable simples en "La isla misteriosa". El doctor Zhong cree que, aunque el proceso de fabricación en la isla misteriosa es demasiado simplificado, la idea básica es correcta. Con sus habilidades y el equipo que posee, debería poder fabricar un equipo mejor. Los teléfonos de las centrales telefónicas manuales parecen tener una tecnología simple, pero la fabricación de los teléfonos en sí misma requiere superar algunos desafíos técnicos. En segundo lugar, el telégrafo por cable tiene una baja tasa de error y una transmisión confiable. Si bien el entorno de radio en esta línea de tiempo es muy limpio, siempre hay interferencias de diversos factores climáticos. De hecho, la mayoría de los telégrafos comerciales, civiles y militares del pasado utilizaban redes de telégrafos por cable.
+
+Si el doctor Zhong viajara desnudo a través del tiempo, la tarea que tendría por delante sería extremadamente difícil: tendría que reconstruir una completa industria química primitiva, y además, necesitaría una industria metalúrgica, aunque rudimentaria pero existente, para poder fabricar un telégrafo. La fabricación de instrumentos eléctricos sería aún más complicada. Sin embargo, ahora él tiene a su disposición diversos instrumentos y equipos de prueba provenientes de otra época, y cuenta con un sistema industrial bastante moderno, lo que facilitará la fabricación del telégrafo.
+
+Primero, tenía que resolver el problema de la fuente de energía. El sistema de suministro eléctrico del Grupo "Chuanyue" es de corriente alterna, lo cual obviamente no cumple con los requisitos de un telégrafo básico. Por lo tanto, era necesario solucionar el problema de la fuente de energía. Este problema no parecía ser muy grande; tanto los generadores manuales como las baterías de plomo-ácido estaban disponibles en grandes cantidades en el almacén del Comité de Planificación. Sin embargo, el Dr. Zhong decidió basarse completamente en la base industrial del Grupo "Chuanyue" y desarrollar una fuente de energía de forma independiente: los suministros del siglo XXI eventualmente se agotarían.
+
+La batería: decidió utilizar la batería de Daniell, que es la de menor dificultad técnica. Esta batería consiste en un cilindro de cobre y un recipiente poroso que se coloca en su interior. El cilindro de cobre es el electrodo positivo, mientras que una barra de zinc dentro del recipiente poroso es el electrodo negativo. Se inyecta ácido sulfúrico diluido dentro del recipiente poroso, y en el exterior se encuentra una solución saturada de sulfato de cobre.
+
+Esta batería tiene un diseño bastante exitoso. No presenta el problema de la niebla ácida que solían tener las baterías más antiguas, puede funcionar durante mucho tiempo sin supervisión y su voltaje de salida es estable. Además, los electrodos de esta batería no se corroen, lo que permite su uso a largo plazo.
+
+La batería de Daniel fue la principal fuente de energía para los telégrafos hasta 1875. Aunque su voltaje de salida era de solo 2 voltios, una batería de diez celdas era suficiente para alimentar el telégrafo de manera estable durante mucho tiempo. Su mayor desventaja era que no se podía recargar; después de descargarse, era necesario rellenarla con líquido, lo que causaba una gran contaminación ambiental y afectaba la salud de los operadores. Sin embargo, en comparación con la batería de Volta, que solo podía utilizarse como un juguete de laboratorio, esta batería tenía un valor práctico mucho mayor.
+
+Las materias primas de la batería Daniel son proporcionadas por la industria de los viajeros temporales. El zinc es el "wailead" de esta época, y el Grupo Viajeros Temporales importó grandes cantidades de "wailead" de baja pureza desde Guangzhou, que luego fueron refinados y purificados – originalmente, la Comisión de Industria planeaba usarlo para fabricar láminas de hierro blanco.
+
+Después de que el Dr. Zhong dibujó los planos, la fábrica de maquinaria pronto fabricó un prototipo. El exterior de la batería estaba hecho de vidrio. El vidrio tiene una mejor resistencia a la corrosión y un mejor efecto a prueba de fugas que los materiales comunes, pero es frágil. Afortunadamente, las máquinas telegráficas con cable generalmente no se trasladan constantemente.
+
+Después de que se completó el producto, Zhong Lishi realizó una prueba de descarga por chispa para verificar que la batería funcionara. Conectó dos cables de cobre recubiertos de goma a los dos electrodos de la batería, luego se puso guantes protectores para evitar descargas eléctricas, y acercó lentamente los dos cables hasta que entraron en contacto. Una chispa eléctrica muy fina, casi imperceptible a simple vista, apareció en el instante en que los dos cables se tocaron. Esta chispa era muy pequeña y requería una observación cuidadosa para poder detectarla.
+
+A continuación, utilizó un multímetro para medir la batería, y el voltaje de salida se mantuvo estable en 2 voltios: la batería de Daniell había sido un éxito completo. El Dr. Zhong inmediatamente nombró a esta batería como "Batería Zhong Modelo 1", y la llamó "Modelo 1" porque planeaba continuar aprovechándose de los logros de las generaciones futuras, como la batería de plomo-ácido recargable.
+
+El modelo de batería "Zhong Shi" número uno aún tiene margen de mejora. Posteriormente, utilizando información que parecía provenir de documentos técnicos, él mismo fabricó una solución de sulfato de zinc para reemplazar el ácido sulfúrico diluido que contenía la batería. Se decía que esta práctica podría prolongar la vida útil de la barra de zinc dentro de la batería. Además, solicitó a la fábrica de maquinaria que fabricara un prototipo para probar dos baterías simultáneamente y ver si esta afirmación era válida.
+
+Después de que el Dr. Zhong concentró sus esfuerzos en la investigación de baterías y comunicaciones por cable, Lingao se vio obligado a continuar utilizando el método tradicional de emitir silbidos de vapor. En el pasado, el grupo de viajeros temporales no había prestado mucha atención al trabajo de cronometraje, simplemente utilizando la hora de Pekín que provenía de otra línea temporal.
+
+Antes de viajar en el tiempo, los viajeros temporales, excepto en unos pocos lugares con usos especiales, ya habían reemplazado sus propios dispositivos de medición del tiempo con modelos mecánicos, y también llevaban una gran cantidad de relojes mecánicos como reserva. Todos los dispositivos de medición del tiempo, tanto públicos como privados, utilizaban el tiempo de Pekín, calculado y calibrado según la hora de Greenwich mostrada en el cronómetro náutico del "Fengcheng".
+
+Para proporcionar una hora pública tanto a los nativos como a los viajeros temporales, a las 6:00, 12:00, 18:00 y 24:00, se hacen sonar las sirenas en las centrales eléctricas de Bairencheng y de Bopu en cuatro ocasiones. Dentro de los puertos de Bairencheng y Bopu, la estación de radio por cable de Lingao proporciona la hora cada hora.
+
+Ahora, ellos se han dado cuenta de que este sistema de tiempo ya no es necesario. En primer lugar, Lingao y Beijing no están en la misma zona horaria. En segundo lugar, en el futuro mapa político del Grupo de Viajeros Temporales, Beijing, ubicada en el norte, con un entorno natural deficiente y sin acceso al mar, no goza de ningún estatus especial. Algunos elementos más radicales ya han propuesto que, una vez que el "Proyecto de Viaje Temporal" tenga éxito en China, se le cambie el nombre a "Yizhou".
+
+El grupo de investigación dirigido por Wang Luobin, después de varias discusiones sobre este tema, consideró que podían implementar la hora local en Lingao, que es la hora de la zona este 7.
+
+"Para ser honesto, no veo que el cambio de la zona este 8 a la zona este 7 tenga algún significado práctico para nosotros. Aparte de satisfacer los extraños gustos de algunas personas." Ma Qianzhu no entendía en absoluto estos cambios que parecían más importantes por motivos psicológicos que por razones prácticas.
+
+"De todas formas, no hay nada malo en ello", dijo Wang Luobin. "Al menos, la medición del tiempo será más precisa. Después de todo, se trata de una diferencia de una hora, y algunas personas incluso podrían usar la hora de Lingao en lugar de la hora de Greenwich".
+
+"No, por favor, no lo hagan. Si se cambia, una gran cantidad de documentación técnica tendrá que ser modificada, lo cual es demasiado complicado", dijo Wen Desi, quien tampoco estaba interesado en esa propuesta.
+
+Wang Luobin tampoco quería cambiar a la hora de Greenwich. El tiempo más preciso que tenían en ese momento era el de Greenwich que se mostraba en el reloj de navegación del barco "Fengcheng". Si cambiaban a la hora de Lingao, probablemente no tendrían esa precisión original.
+
+"Queremos establecer un observatorio astronómico en Lingao", dijo Wang Luobin.
+
+El significado de establecer un observatorio astronómico, por supuesto, no es observar el cometa Halley ni buscar signos de vida extraterrestre. El propósito básico de este observatorio del Grupo "Viajeros Temporales" es el mismo que el de los antiguos: proporcionar calendarios y servicios de tiempo precisos.
+
+"No solo es un observatorio astronómico, sino también una estación meteorológica", propuso Ma Qianzhu. "Las previsiones meteorológicas son muy importantes para nosotros. No solo necesitamos una estación meteorológica, sino también establecer una red de monitoreo meteorológico."
+
+"También hay una estación de hidrología", pensó Wen Desi. Recordó que Yan Quezhi le había mencionado que era necesario recopilar datos hidrológicos de los principales ríos de Lingao, y que, como mínimo, se debía establecer una estación de observación en toda la cuenca del río Wenlan.
+
+"Bien, esto se puede considerar una planificación sistemática a largo plazo", dijo Wen Desi, extendiendo un mapa detallado de Lingao. "El observatorio astronómico podría ubicarse en la región de Gaoshanling."
+
+"¿No es este lugar donde planean desarrollar la ganadería?"
+
+"Además de la ganadería, también se puede trasladar el observatorio astronómico y la estación meteorológica. Propongo que la región de Gaoshanling sea nuestra prioridad de construcción en la próxima etapa", dijo Wen Desi. "Trasladar nuestras instituciones de investigación y nuestro archivo a las montañas facilitará la seguridad. Si el enemigo inicia un ataque, es muy probable que Bairencheng se convierta en un campo de batalla; con terreno plano en todas direcciones, sería difícil lograr una defensa completa".
+
+Otro problema es el tifón de Lingao. Hasta el momento, el grupo de viajeros temporales no ha experimentado de primera mano la fuerza de un tifón. Según las advertencias de varios meteorólogos aficionados, el final del verano y principios del otoño son los períodos en que Lingao es más propenso a ser golpeado por tifones; aunque Lingao es una región de la costa de la isla de Hainan que sufre menos tifones, su poder no debe subestimarse. Cada vez que se produce un tifón, a menudo causa inundaciones. La principal base del grupo de viajeros temporales se encuentra en puertos o cerca de ríos, lo que la hace vulnerable a desastres. Los daños causados por los vientos en la región de Gaoshanling son mucho menores y es menos probable que se produzcan inundaciones. En cuanto a los flujos de lodo, el personal de la gran biblioteca ha revisado toda la información disponible y no ha encontrado ninguna referencia a este tipo de fenómeno en la región de Gaoshanling. En general, es un lugar seguro.
+
+高山岭 cuenta con abundantes recursos hídricos, un excelente entorno natural y temperaturas más suaves que la región del río Wenlan. Las condiciones geológicas también son muy estables; en la época en que se excavaban túneles para almacenar alimentos, las tropas estacionadas en la zona excavaron grandes búnkeres de preparación para la guerra. Por lo tanto, Gao Shanling tiene cierta viabilidad como base estratégica de reserva para el grupo de viajeros temporales.
+
+(Fin del capítulo).

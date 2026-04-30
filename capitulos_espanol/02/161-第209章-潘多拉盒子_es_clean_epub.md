@@ -61,7 +61,7 @@ Después de subir a bordo, no pasó ni una hora sin que estuviera inquieto. Inme
 
 La señorita Mendosa, por su parte, parecía haber encontrado una luz en su vida. Dejó de prestar atención a Zhou Weishen y se dedicó a atender y cuidar al "padre", ofreciéndole comida y bebida. Esto le causó a Zhou Weishen mucha frustración. Sin embargo, como había vivido mucho tiempo en el extranjero, sabía que los católicos suelen tener emociones religiosas muy intensas. La aparición repentina de un sacerdote en ese "desierto de fe" era algo que podía entender y que emocionaba a la señorita Mendosa.
 
-"Wen Zong, creo que esta vez, el catolicismo no debería entrar en Hainan", dijo Wang Ruixiang, aprovechando una oportunidad para hablar en voz baja con Chang Shide. "Un país no puede tener dos autoridades. Una vez que se introduzcan estas religiones extranjeras, se formará otro centro de poder en la mente de la gente. ¿No es la palabra de un líder religioso más poderosa que la del gobierno? No se olvide de las lecciones de otra época; estas religiones monoteístas son problemáticas".
+"Jefe Wen, creo que esta vez, el catolicismo no debería entrar en Hainan", dijo Wang Ruixiang, aprovechando una oportunidad para hablar en voz baja con Chang Shide. "Un país no puede tener dos autoridades. Una vez que se introduzcan estas religiones extranjeras, se formará otro centro de poder en la mente de la gente. ¿No es la palabra de un líder religioso más poderosa que la del gobierno? No se olvide de las lecciones de otra época; estas religiones monoteístas son problemáticas".
 
 "Wen Desi" permaneció impasible y preguntó: "¿Qué quieres?".
 

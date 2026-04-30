@@ -9,7 +9,7 @@ Todos consideraron que esta sugerencia era razonable. Incluso ignorando los cost
 
 "Mmm, también podemos desarrollar algunos tipos especiales de proyectiles esféricos, como granadas y bombas incendiarias."
 
-"Hay otro beneficio, que quizás no todos hayan notado", dijo Wang Luobin. "La teoría de la diferencia generacional de Wen Zong."
+"Hay otro beneficio, que quizás no todos hayan notado", dijo Wang Luobin. "La teoría de la diferencia generacional de Jefe Wen."
 
 "¿La teoría de la brecha generacional?"
 

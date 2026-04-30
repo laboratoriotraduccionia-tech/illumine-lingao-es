@@ -92,7 +92,7 @@ Wang Luobin parpadeó y no pudo pensar en nada más nuevo.
 
 "¿Liberado?!" Todas las miradas se centraron en él.
 
-"Sí, los dejé ir. Que ellos mismos lo comprueben", dijo Yu E. "Si no creen que estamos en Hainan en 1628, que lo vean con sus propios ojos. Lo que se escucha puede ser falso, pero lo que se ve es real. Todos vieron con sus propios ojos el agujero de gusano de Wen Zong, y eso fue lo que los convenció. Cuando las cosas son tan extraordinarias, uno no las cree. Que ellos mismos vayan, que vean, que se convenzan con los hechos."
+"Sí, los dejé ir. Que ellos mismos lo comprueben", dijo Yu E. "Si no creen que estamos en Hainan en 1628, que lo vean con sus propios ojos. Lo que se escucha puede ser falso, pero lo que se ve es real. Todos vieron con sus propios ojos el agujero de gusano de Jefe Wen, y eso fue lo que los convenció. Cuando las cosas son tan extraordinarias, uno no las cree. Que ellos mismos vayan, que vean, que se convenzan con los hechos."
 
 "¿Qué pasa si escapan? ¿Qué ocurre si tienen un accidente en el camino? Hay hombres, mujeres y niños, y ninguno ha sido vacunado."
 

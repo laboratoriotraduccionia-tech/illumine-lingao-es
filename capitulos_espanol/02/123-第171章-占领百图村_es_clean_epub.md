@@ -18,7 +18,7 @@ Después de más de dos horas de ardua caminata por el sendero de la montaña, y
 
 "Está bien, vamos a usar algo más contundente". Xi Yazhou miró fijamente a través de los prismáticos durante un rato: este tipo de fortificación de madera se podría tomar en 10 minutos con un ataque.
 
-"Laoshi, Beiwèi ha contactado por teléfono. Han penetrado hasta una posición a 100 metros del flanco de Mubaozhai, a una altitud de 41.3 metros. ¿Debemos atacar al enemigo?"
+"Laoshi, Bei Wei ha contactado por teléfono. Han penetrado hasta una posición a 100 metros del flanco de Mubaozhai, a una altitud de 41.3 metros. ¿Debemos atacar al enemigo?"
 
 "Que lo ponga a vigilar, las batallas las hemos librado nosotros, estos novatos no tienen oportunidad de entrenar."
 

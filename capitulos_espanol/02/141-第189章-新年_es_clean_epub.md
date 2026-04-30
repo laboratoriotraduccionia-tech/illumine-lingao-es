@@ -59,7 +59,7 @@ Ahora, Wen Desi sentía instintivamente que el momento más peligroso ya había 
 
 "Los viajeros temporales ya se han establecido aquí. La gente está empezando a confiar en ellos y está dispuesta a interactuar y colaborar. Ahora, el grupo de viajeros temporales ya no se conforma con interactuar con la gente de esta época únicamente a través de negocios y empleo; gradualmente adoptarán métodos de administración pública para controlar y dominar la mano de obra y los recursos de Lingao."
 
-"Wen Zong, parece que el Año Nuevo chino está a la vuelta de la esquina."
+"Jefe Wen, parece que el Año Nuevo chino está a la vuelta de la esquina."
 
 "Lo que no dices, yo lo he olvidado; ahora es 1629, y nadie ha celebrado el Año Nuevo."
 

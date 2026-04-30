@@ -7,7 +7,7 @@ Los platos no son muy diferentes de la cocina cantonesa moderna, pero destacan p
 
 Bei Wei pensó: "Ser líder es realmente bueno. De esta manera, la oportunidad de corrupción en la dinastía Ming es limitada, y el pueblo común no puede disfrutar de esto". Justo cuando estaba pensando eso, la esposa de Gao Qing, Gao Xian, salió de la cocina con el plato principal rehecho. Era un plato lleno de albóndigas de carne del tamaño de huevos de paloma, sumergidas en un caldo claro, con un aspecto suave y brillante, y espolvoreadas con cebollín verde.
 
-Wen Desi tomó primero una cuchara y se la ofreció, ella la llevó a la boca y, al morderla, sintió un sabor fresco y delicioso que se extendía por toda la boca, con un ligero toque de pimienta de Sichuan. Wen Zong también era una persona que frecuentaba eventos sociales en esta línea temporal, aunque no era tan común como "una pequeña fiesta cada tres días y una gran fiesta cada cinco", su experiencia en cuanto a comida era de las mejores entre los viajeros temporales. Sin embargo, no pudo identificar de qué estaba hecho este plato, ya que sentía tanto el sabor de la carne de pollo como el de los mariscos. Preguntó:
+Wen Desi tomó primero una cuchara y se la ofreció, ella la llevó a la boca y, al morderla, sintió un sabor fresco y delicioso que se extendía por toda la boca, con un ligero toque de pimienta de Sichuan. Jefe Wen también era una persona que frecuentaba eventos sociales en esta línea temporal, aunque no era tan común como "una pequeña fiesta cada tres días y una gran fiesta cada cinco", su experiencia en cuanto a comida era de las mejores entre los viajeros temporales. Sin embargo, no pudo identificar de qué estaba hecho este plato, ya que sentía tanto el sabor de la carne de pollo como el de los mariscos. Preguntó:
 "¿Qué es esto?"
 
 "Esto es 'Shuiliu Zhen'", dijo Gao Qian en voz baja. "Se prepara mezclando carne de 'huangjia', 'dayinyin', pollo, ranas y camarones. ¿Le gustará, señor Gao?".
@@ -18,7 +18,7 @@ Wen Desi tomó primero una cuchara y se la ofreció, ella la llevó a la boca y,
 
 "Los terratenientes viven de una manera muy decadente", dijo el señor Wang, con una expresión de envidia en su rostro, una expresión que claramente indicaba un deseo de vivir de esa manera que no podía satisfacer.
 
-"¡Incluso para hacer una bolita, es tan presumido!", Beiwai frunció los labios.
+"¡Incluso para hacer una bolita, es tan presumido!", Bei Wei frunció los labios.
 
 "En casi todos estos platos se ha añadido pimienta de Sichuan, lo que ha arruinado un poco el sabor, que de otro modo era muy bueno", dijo Wen Desi, sacudiendo la cabeza, como si lamentara algo. "Los ingredientes son tan frescos, y son completamente naturales..."
 
@@ -32,149 +32,164 @@ Wen Desi tomó primero una cuchara y se la ofreció, ella la llevó a la boca y,
 
 "No es necesario vino". Debido a que temían que el alcohol causara problemas, en la época de la dinastía Ming, no bebían nada.
 
-"Señores, ¿prefieren que les sirva esta agua de flores que yo misma he destilado? ¿Les parece bien?"
+"Si los señores no desean beber alcohol, esta humilde sirvienta ha destilado agua floral. ¿Les gustaría probarla diluida en agua?"
 
-"¿Hua Lu, agua de Hua Lu?", preguntaron todos a la vez.
+"¿Agua floral… colonia?" Todos se quedaron sorprendidos.
 
-"Sí, todo fue preparado por mí. Actualmente, solo tengo arroz y hojas de perilla. Si los señores no se sienten incómodos, por favor, prueben primero."
+"Sí, la he destilado yo misma. Por ahora solo tengo de hojas de arroz y de perilla. Si los señores no la desprecian, pueden probarla primero."
 
-Al servirlo, se reveló que era un líquido de esencia aromática obtenido mediante la destilación de flores y hojas vegetales. La tecnología de destilación de alcohol ya estaba bien desarrollada en la dinastía Ming, y los pequeños alambiques, además de usarse para hacer aguardiente, también eran importantes para la producción de agua de flores.
+Al verla, resultó ser un líquido aromático obtenido por destilación de hojas y flores. En la dinastía Ming, la técnica de destilación ya estaba bastante desarrollada; los pequeños alambiques no solo se usaban para hacer licor, sino también para producir estas aguas florales.
 
-Cuando se bebe diluido con agua limpia, realmente tiene un aroma y un sabor delicados y agradables.
+Mezclada con agua clara, tenía un aroma fresco y elegante.
 
-Xiao Zishan sintió una duda. Gao Qian, que claramente era la esposa de un campesino y una sirvienta en la casa de los Gao, sabía hacer lociones y también conocía recetas de cocina... Involuntariamente, comenzó a observar cuidadosamente a esta mujer, y descubrió que en sus movimientos y gestos, había una elegancia que no se veía en su esposo.
+Sin embargo, Xiao Zishan empezó a sospechar. Esta Gao Xian era, en teoría, la esposa de un arrendatario y una sirvienta de baja categoría en la casa Gao… pero sabía destilar agua floral y también entendía de recetas refinadas. No pudo evitar observarla con atención: en sus movimientos había cierta gracia y compostura, muy distinta de la torpeza de su marido.
 
-"Me gustaría saber más sobre ella, así que la detuve y le pregunté: 'Señora Gao, ¿ha trabajado antes en esta casa?'"
+Con intención de indagar, la llamó:
+"Gao, ¿trabajaste antes dentro de la casa principal?"
 
-高纤 sacudió la cabeza y dijo en voz baja: "Sí, su sirvienta ha estado en la casa de la familia Gao todo el tiempo..."
+Gao Xian se sobresaltó y respondió en voz baja:
+"Sí… esta sirvienta siempre ha estado en la residencia Gao…"
 
-"¿En serio? Tú, que trabajabas como sirvienta en la casa de la familia Gao, ¿cómo sabes la receta de Shuilu Zhen? ¿Y dónde aprendiste a hacer el "hua lu"?"
+"No parece. Allí hacés trabajos pesados, ¿cómo es que conocés recetas tan elaboradas? ¿Y de dónde aprendiste a hacer agua floral?"
 
-高纤 se puso aún más nerviosa y, tartamudeando, dijo: "Todo... todo me lo enseñaron las hermanas... espero que el señor Gao lo entienda...".
+Gao Xian se puso aún más nerviosa, tartamudeando:
+"Todo… todo me lo enseñaron otras sirvientas… perdone que le cause risa, señor…"
 
-"¿Cuántos años tienes?"
+"¿Qué edad tenés?"
 
-"Tengo treinta años", dijo la sirvienta.
+"Esta sirvienta tiene treinta años."
 
-Xiao Zishan observó su rostro, que aunque ahora estaba oscurecido, aún conservaba rastros de la belleza juvenil. Al compararlo con la apariencia de Gao Lujie, y considerando la diferencia de edad entre esta pareja, ya comprendía la situación en gran medida, aunque en ese momento no era necesario hablarlo.
+Xiao Zishan observó su rostro, ya oscurecido por el trabajo pero aún conservando rastros de la belleza que tuvo de joven. Pensó en la apariencia de Gao Lujie, y en la diferencia de edad entre la pareja… y comprendió casi todo, aunque no era momento de decirlo.
 
-Después de una breve reflexión, miró hacia el exterior del salón. No había nadie más presente; probablemente Gao Qing estaba trabajando en el patio trasero. Entonces preguntó:
-"¿Gao Qing ha estado visitando a señor Gao con frecuencia últimamente?"
+Reflexionó un instante y miró hacia el exterior. No había nadie más; Gao Qing probablemente estaba trabajando en el patio trasero. Entonces dijo:
 
-"..." Gao Qian se sorprendió mucho, pero no dijo nada. Xiao Zishan tenía razón: el señor Gao seguramente preguntaba a Gao Qing sobre ellos con frecuencia.
+"En estos días, ¿Gao Qing ha ido seguido a ver al señor Gao?"
 
-"¿Ese Yan, el encargado, también viene a menudo, verdad?", preguntó Xiao Zishan lentamente.
+"…" Gao Xian se sobresaltó, pero no respondió. Xiao Zishan supo que había acertado: el señor Gao seguramente les hacía preguntar por ellos.
 
-"No he venido antes... solo fue una coincidencia..."
+"Y ese encargado Yan también ha venido con frecuencia, ¿no?" preguntó Xiao Zishan con calma.
 
-"¿Es que realmente nunca ha estado aquí, o es pura casualidad?"
+"No… no ha venido… solo alguna vez…"
 
-"Sí... he venido por casualidad, solo he estado en contacto con algunas personas...", dijo Gao Qian, tratando de disimular. Estaba completamente desorientada por esta intensa interrogación. Las palabras del señor Xiao sugerían que él sabía todo, incluyendo su pasado. ¿Cómo era posible? Justo en ese momento, vio que el rostro de Xiao Zishan se endurecía. Sintiendo que algo andaba mal, se arrodilló de repente frente a la mesa:
+"¿Entonces no ha venido, o ha venido alguna vez?"
 
-"Esta sirvienta merece morir, no debió ocultar nada al señor..."
+"Sí… ha venido alguna vez… solo como visita entre conocidos…" respondió Gao Xian, obligándose a mentir. Ya estaba completamente desorientada ante el interrogatorio.
 
-Běi Wěi había sido un soldado revolucionario bajo la bandera, y no podía aceptar este tipo de cosas. Justo cuando estaba a punto de hablar, fue detenido por Wen Desi. Aunque la pregunta de Xiao Zishan fue repentina, también formaba parte de su plan para ganarse el apoyo de la gente.
+Las palabras de Xiao Zishan le daban a entender que lo sabía todo, incluso su pasado. ¿Cómo podía ser posible? Mientras estaba perdida en sus pensamientos, vio que el rostro de Xiao Zishan se endurecía.
 
-"¿Ha venido aquí varias veces, verdad? Debe haber entrado a ver la casa donde nos alojamos."
+Sintiendo que la situación empeoraba, se dejó caer de rodillas frente a la mesa:
 
-"No, no", dijo Gao Qian, asustada, y su rostro palideció.
+"Esta sirvienta merece morir… no debí engañar a los señores…"
 
-"¿Acaso no les prometí que, si algún día regresábamos a Australia, los recibiríamos en la familia Gao? ¡Pero resulta que...!"
+Bei Wei, que había sido soldado revolucionario, no podía soportar ver algo así y estuvo a punto de intervenir, pero Wen Desi lo detuvo. El interrogatorio de Xiao Zishan, aunque repentino, formaba parte de su plan para ganarse la lealtad de la gente.
 
-高纤 temblaba de miedo: ¡los señores lo saben todo! Involuntariamente, sintió resentimiento hacia su esposo por no tener carácter. Cada vez que el gerente Yan la convencía con halagos y amenazas, ella accedía a llevarlo a registrar, aunque no descubriera nada, ¡pero eso es un crimen de traición!
+"Ha venido bastantes veces, ¿verdad? Incluso ha entrado a inspeccionar el patio donde vivimos."
 
-"Esta esclava merece morir, es culpa del esposo de esta esclava...", Gao Qian se asustó con estas palabras de Xiao Zishan y se arrodilló para pedir perdón, relatando detalladamente todo lo que había sucedido durante su ausencia, incluyendo la visita del gerente Yan y todo lo que él había dicho.
+"No, no…" Gao Xian palideció del miedo.
 
-"Este siervo es un hombre de buen oído y corazón amable, no debe escuchar los comentarios infundados de otros", dijo Gao Qian, con la voz ya entrecortada por el llanto. "Le ruego, señor, que, considerando su edad avanzada y su enfermedad en las piernas, le perdone la falta y que esta sierva se encargue de pagar la doble compensación."
+"Y también les prometió que, cuando nosotros volviéramos a Australia, los recogería de nuevo para la casa Gao, ¿no es así?"
 
-Todos escucharon y la información coincidía bastante con lo que se había previsto. Al verla suplicar amargamente por su esposo, incluso sintieron compasión. Uno no sabe lo dulce que es la nueva sociedad hasta que no ha experimentado la antigua.
+Gao Xian empezó a temblar de pies a cabeza — ¡los señores lo sabían todo! No pudo evitar resentirse con su marido por no tener carácter. Cada vez que el encargado Yan lo persuadía o intimidaba, aceptaba llevarlo a inspeccionar. Aunque no hubieran descubierto nada, eso era traicionar a su amo.
 
-Xiao Zishan esperó pacientemente durante mucho tiempo, y finalmente suspiró deliberadamente:
-"Señora Gao, ¿hemos hecho algo que haya ofendido a su familia, ahora que toda su familia ha pasado a estar bajo nuestra protección?".
+"Esta sirvienta merece morir… todo es culpa de mi marido…" aterrada, se postró en el suelo y confesó todo lo ocurrido: las visitas del encargado Yan, lo que decía, todo.
 
-"Me han perdonado la vida. La bondad de los señores es algo que mi familia y yo agradeceremos eternamente."
+"Mi marido es débil y fácilmente influenciable, se dejó engañar por palabras ajenas…" dijo entre sollozos. "Ruego a los señores que, considerando su edad y su problema en la pierna, lo perdonen del castigo. Esta sirvienta está dispuesta a recibir el doble de la pena en su lugar."
 
-"Su familia no tiene suficientes provisiones, así que les damos arroz mensual. Los niños crecen y necesitan dinero, así que también les damos dinero mensual. No esperamos que nos lo devuelvan. Solo queremos que, después de un largo viaje, puedan encontrar un lugar seguro y estable donde quedarse. Pero no queremos que nadie los observe con atención."
+Lo que contó coincidía más o menos con lo que ellos ya habían supuesto. Al verla suplicar por su marido, no pudieron evitar sentir compasión. Solo en la vieja sociedad se comprendía realmente lo valiosa que era la nueva.
 
-高纤 no respondió nada, solo sollozaba y se inclinaba repetidamente.
+Xiao Zishan esperó deliberadamente un momento y luego soltó un largo suspiro:
 
-"Levántate."
+"Gao, desde que toda tu familia quedó bajo nuestra responsabilidad, ¿acaso hemos hecho algo injusto con ustedes?"
 
-"Esta humilde sirvienta no se atreve, por favor, señor Gao, aplique estrictamente las leyes familiares para mantener el orden en la casa."
+"¡No diga eso, señor! La bondad de ustedes es algo que mi familia nunca podrá agradecer lo suficiente."
 
-Xiao Zishan pensó: "Esta mujer realmente tiene un estilo muy particular, parece que definitivamente no es la esposa de un campesino común".
+"Cuando no tenían qué comer, les dimos raciones. Cuando los niños crecieron y necesitaban gastos, les dimos dinero. No pedimos que nos lo devuelvan… solo queríamos tener un lugar tranquilo donde establecernos tras cruzar miles de kilómetros. Pero no esperábamos quedar expuestos de esta manera ante otros."
 
-"Sin reglas, no se puede lograr el orden. En este asunto, tanto tú como Gao Qing tienen parte de culpa, pero nosotros no habíamos establecido reglas previamente, por lo que, en cierto sentido, quienes no saben no son culpables. Levántense."
+Gao Xian no respondió; solo seguía sollozando mientras se inclinaba una y otra vez golpeando la cabeza contra el suelo.
 
-"Agradezco la bondad del señor Xie", dijo Gao Qian. Notó que el tono del señor había cambiado, y estimó que no los echaría. No le tenía miedo a una reprimenda, pero temía enfurecer al señor, porque si eso sucedía, podrían ser expulsados. Incluso si el señor Gao estuviera dispuesto a acogerlos, su futuro no sería fácil.
+"Levantate."
 
-"¿Entiendes lo que te voy a decir sobre el futuro?", preguntó Chang.
+"Esta sirvienta no se atreve. Ruego a los señores que me castiguen severamente con las normas de la casa, para dar ejemplo."
 
-"Sí, su esclava lo ha entendido."
+Xiao Zishan pensó que esta mujer tenía bastante carácter; claramente no era la típica esposa campesina.
 
-"Sé que no vienes de una familia humilde, y tienes mucha más perspicacia que Gao Qing. En el futuro, debes educarlo bien, enseñándole a saber cuándo avanzar y cuándo retroceder."
+"Sin reglas no hay orden. En este asunto, tanto vos como Gao Qing tienen culpa, pero como antes no habíamos establecido normas, se puede considerar que fue por ignorancia. Levantate."
 
-"Su esclava lo sabe, lo sabe", dijo Gao Xilian, asintiendo repetidamente.
+"Gracias por la benevolencia de los señores." Gao Xian percibió el cambio de tono y calculó que no los echarían. No le asustaba recibir unos azotes; lo que temía era provocar la ira de los señores y ser expulsados. Incluso si el señor Gao los aceptaba de nuevo, su vida ya no sería fácil.
 
-"Siempre y cuando trabajen con dedicación y lealtad, sin importar si eventualmente regresamos a Australia, nos aseguraremos de que ustedes obtengan un resultado. Les deseamos lo mejor."
+"¿Entendés lo que corresponde hacer de ahora en adelante?"
 
-"La esclava agradece...", Xiao Zishan intentó arrodillarse para agradecer, pero fue detenido por Gao Ju: "Es mejor no mostrar tanta deferencia frente a todos". Luego, dijo: "Vayan a buscar a Gao Di".
+"Sí, esta sirvienta lo entiende."
 
-Después de que Gao Qian se fuera, Xiao Zishan finalmente giró la cabeza y les dijo a todos: "¿Cómo les pareció mi actuación?". Estaba ansioso por cambiar el ambiente en la sala. No quería que la gente lo percibiera como alguien autoritario, la actuación, sí, solo era una actuación.
+"Sé que no sos de origen humilde. Entendés mejor las cosas que Gao Qing. De ahora en más, enseñale bien y que sepa comportarse."
 
-"Wen Desi abrió mucho la boca: "¿Xiao Zishan, tus antepasados eran realmente campesinos pobres?"
+"Sí, sí, esta sirvienta lo entiende." Gao Xian asintió repetidamente.
 
-"Por supuesto."
+"Si trabajan con dedicación y sirven con lealtad, independientemente de si volvemos o no a Australia, no los vamos a dejar sin salida. Compórtense bien."
 
-"Eres como un actor ganador del premio Jinma", exclamó Wang.
+"Esta sirvienta agradece…" Gao Xian estaba a punto de arrodillarse otra vez para dar las gracias, pero Xiao Zishan la detuvo —era mejor no exhibir demasiado el aire de señor feudal delante de todos—. "Andá a llamar a Gao Di."
 
-"Asustó a la mujer. Ya pasó, ¿no?", dijo Beihui, con un poco de remordimiento.
+Cuando Gao Xian se fue, Xiao Zishan se giró hacia los demás:
+"¿Qué tal mi actuación?"
 
-"Sí, es necesario, pero se debe combinar la benevolencia con la autoridad; este es el mínimo. Xiao Zishan asintió: "Tenemos ojos por todas partes. No podremos avanzar en nuestro trabajo a menos que cambiemos esta situación."
+Quería relajar el ambiente. No quería que lo vieran como alguien autoritario; actuación, sí, solo actuación.
 
-"Wen Desi dijo: 'En el pasado, darles beneficios era un acto de 'benevolencia', pero ahora es el momento de mostrar 'autoridad'."
+Wen Desi abrió la boca sorprendido:
+"Zishan, ¿de verdad tu familia era campesina pobre?"
 
-"Sí", explicó Xiao Zishan. Como aún no podían quitar esos "ojos", solo podían girarlos.
+"Claro que sí."
 
-"¿Es así de simple?"
+"Eras digno de un premio a mejor actor", comentó Wang Gong admirado.
 
-"Esto es solo el principio. La lealtad no se construye con unas pocas palabras; es muy difícil ganarse la confianza de alguien."
+"La asustaste demasiado… te pasaste un poco", dijo Bei Wei, algo incómodo.
 
-"Para obtener lealtad, primero se necesita poder: nadie es leal a una persona o organización débil; segundo, se necesitan beneficios: los beneficios son la motivación para el esfuerzo. En el pasado, ya se les ofrecieron beneficios, y ahora es necesario demostrar su poder. Con el tiempo, naturalmente, todo se desarrollará de manera favorable."
+"Sí, fue un poco excesivo, pero hay que combinar autoridad y benevolencia. Ese nivel es lo mínimo", asintió Xiao Zishan. "Estamos rodeados de ojos. Si no cambiamos esta situación, no vamos a poder avanzar."
 
-"Creo que es muy fácil para los *viajeros temporales*. Con unas pocas palabras, los jóvenes se arrodillan inmediatamente."
+Wen Desi agregó:
+"Antes les dimos beneficios —eso fue la ‘benevolencia’—. Ahora es momento de mostrar ‘autoridad’."
 
-"¿Acaso tenemos cara de ser unos ladrones?"
+"Exacto", explicó Xiao Zishan. Ya que no podían eliminar esos “ojos”, solo podían hacer que dejaran de ser un problema.
 
-"Tú tienes suerte, yo no quiero..."
+"¿Y con esto alcanza?"
 
-La atmósfera en la mesa volvió a animarse, y Xiao Zishan suspiró aliviado. En realidad, no estaba muy seguro de cómo iba a resultar esta conversación, pero aprovechó el miedo de la mujer a los recuerdos del pasado.
+"Esto es solo el comienzo. La lealtad no se construye con unas pocas palabras. Conseguir seguidores no es nada fácil."
 
-Después de hablar un rato, llegó Gao Di. Aunque era pequeño, era muy inteligente. Al ver que su madre tenía los ojos rojos, supo que algo andaba mal, así que rápidamente trajo el libro de cuentas para presentarle.
+Para obtener lealtad, primero hay que tener fuerza —nadie sigue a alguien débil—; segundo, hay que ofrecer beneficios, porque sin incentivos no hay motivación. Ellos ya habían dado beneficios; ahora tocaba demostrar su poder. Llegado cierto punto, todo se daría naturalmente.
 
-Wen Desi preguntó casualmente sobre la situación en casa y revisó los libros de contabilidad, que no eran más que registros de transacciones. La administración de la casa era sencilla, por lo que pronto pudo entenderlos. Luego, elogió un poco y, al ver que la inquietud de la otra persona disminuía gradualmente, preguntó:
-"¿La gente de la familia Gao viene con frecuencia últimamente?"
+"Yo pensaba que para los viajeros veteranos era fácil: decían un par de palabras y todos se arrodillaban."
 
-"¡Chang lai!", exclamó el niño, sin mostrar ninguna vergüenza, y asintió con la cabeza. "Yan Xiaomaof viene a menudo, y cada vez habla en voz baja con mi padre."
+"¿Será que no tenemos ‘aura de jefe’?" dijo uno.
 
-"¿Yan Xiaoma?" Wen Desi se sorprendió por un momento, luego se dio cuenta de que se refería a Yan Guanshi, quien solía usar un pequeño sombrero de seis paneles.
+"Mejor que no la tengamos… yo no la quiero", respondió otro.
 
-"¿De qué están hablando?"
+El ambiente en la mesa volvió a animarse. Xiao Zishan respiró aliviado en silencio. En realidad, no estaba del todo seguro de que su estrategia funcionara; simplemente había aprovechado el miedo de la mujer a su pasado.
 
-高弟 dudó ligeramente, y Xiao Zishan dijo: "Puedes decir lo que quieras".
+Al poco rato, llegó Gao Di. Aunque era joven, era bastante despierto. Al ver los ojos enrojecidos de su madre, comprendió que algo había pasado y trajo rápidamente los libros de cuentas para presentarse.
 
-"Parece que Yan Xiamao siempre está preguntando por las noticias de los señores," dijo Gao Di. "Pero mi padre no me permite escuchar sus conversaciones."
+Wen Desi le preguntó de forma casual por la situación de la casa y revisó las cuentas. Eran simples registros de entradas y salidas, así que no tardó en entenderlos. Luego lo elogió un poco, y cuando vio que el nerviosismo del chico disminuía, preguntó:
 
-"¿Te tratan bien los miembros de la familia Gao?"
+"¿Últimamente viene seguido gente de la casa Gao?"
 
-"¿Bueno?", Gao Di no entendía muy bien esa pregunta. "No sé si es bueno o no. Yo... nunca he trabajado para la familia Gao. Algunos de los señores de la contabilidad me han tratado bien, y también hay algunos niños, con quienes a menudo jugaba."
+"¡Sí, vienen seguido!" El chico no dudó en absoluto y asintió con fuerza. "Ese Yan de la gorrita viene mucho; cada vez se pone a hablar en secreto con mi padre."
 
-"¿Son todos sirvientes de la familia Gao?", preguntó Chang.
+"¿Yan de la gorrita?" Wen Desi se sorprendió un momento, y luego entendió que se refería al encargado Yan, que solía usar una gorra redonda.
 
-"Sí, hay quienes tienen hijos y los crían, y también hay personas como yo".
+"¿De qué hablan?"
 
-"¿Hay algún niño entre ellos con quien te llevaras especialmente bien?"
+Gao Di dudó un instante. Xiao Zishan intervino: "Dilo sin miedo."
 
-"Hay varios, como Xiao Li, Xiao Qian, los hermanos Wang..."
+"Parece que ese Yan siempre intenta averiguar cosas sobre ustedes", respondió el chico. "Pero mi padre no me deja quedarme a escuchar."
 
-"De acuerdo, más tarde ven a la biblioteca, prepararemos una lista." Wen Desi dio la instrucción.
+"¿Te tratan bien en la casa Gao?"
+
+"¿Bien?" El chico no entendía del todo la pregunta. "No sé… nunca trabajé allí. Los contadores me tratan bien, y hay otros chicos con los que juego."
+
+"¿Son todos sirvientes de la casa?"
+
+"Sí, algunos nacieron allí y otros son como yo."
+
+"¿Hay alguno con quien te lleves especialmente bien?"
+
+"Sí, varios: Xiao Li, Xiao Qian, los dos hermanos Wang…"
+
+"Bien. Después ven al estudio y haz una lista de nombres", ordenó Wen Desi.

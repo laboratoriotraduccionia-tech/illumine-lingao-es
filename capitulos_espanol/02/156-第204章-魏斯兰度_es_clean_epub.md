@@ -20,7 +20,7 @@ Huang Shunlong, siguiendo la costumbre china, insistió en invitarlos a comer, p
 
 Después de salir, dio una vuelta y regresó al punto de encuentro, bajo la cruz en la plaza de la calle transversal. Allí, encontró a Bai Duolu, quien ya había regresado. Tenía una sonrisa característica de los creyentes religiosos, y sostenía un libro de oraciones de cuero en la mano. Wen Desi pensó: "¿Será que en esta hora, la Compañía de Jesús lo ha lavado el cerebro?". Justo cuando lo estaba observando, Bai Duolu se acercó con entusiasmo.
 
-"Wen Zong, tengo buenas noticias."
+"Jefe Wen, tengo buenas noticias."
 
 "El presidente de la Compañía de Jesús local desea conocerle."
 

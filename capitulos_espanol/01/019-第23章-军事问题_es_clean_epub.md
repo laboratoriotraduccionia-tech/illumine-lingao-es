@@ -19,7 +19,7 @@ El actual jefe del departamento de deportes es un gerente de ventas, aunque su p
 
 Xi Yazhou y sus colegas del departamento de deportes, la mayoría de los cuales eran veteranos que se han retirado del ejército, no eran muchos, pero la disciplina militar que habían adquirido durante su servicio aún era evidente.
 
-"Wen Zong, este es Bei Wei, anteriormente del batallón de reconocimiento de la Región Militar XX, ahora con un nuevo empleo."
+"Jefe Wen, este es Bei Wei, anteriormente del batallón de reconocimiento de la Región Militar XX, ahora con un nuevo empleo."
 
 "Este es Zhao De, anteriormente del distrito de policía marítima XX de la Armada, y ahora está destinado aquí."
 
@@ -81,7 +81,7 @@ Wen Desi negó con la cabeza repetidamente: "Esto es demasiado peligroso. Las ar
 
 "Entonces, sería mejor que fueras directamente al Ejército," Xiao Zishan no pudo evitar expresar su fuerte oposición.
 
-"Wen Zong, ¿cuántas armas podemos conseguir ahora? Por favor, dame una estimación. Así podré tener una idea clara de la situación."
+"Jefe Wen, ¿cuántas armas podemos conseguir ahora? Por favor, dame una estimación. Así podré tener una idea clara de la situación."
 
 Wen Desi dudó por un momento. En la situación actual, incluso esconder un perro podría acarrear problemas legales, y mucho menos algo tan valioso. Sin embargo, Xi Yazhou es un pilar futuro de la estructura militar, y es necesario demostrar cierto grado de confianza.
 

@@ -23,7 +23,7 @@ El agua era cristalina y transparente, y la fina arena blanca entre los arrecife
 
 Todos se rieron. Ahora, hablar de esto suena un poco absurdo, como si un grupo de personas pobres estuvieran hablando de cómo serían sus vidas después de hacerse ricas.
 
-"Beiwai" les pidió cuidadosamente a los encargados de la embarcación que tuvieran cuidado de no adentrarse demasiado en la bahía, ya que, de ser necesario, disparar una flecha no sería una broma.
+"Bei Wei" les pidió cuidadosamente a los encargados de la embarcación que tuvieran cuidado de no adentrarse demasiado en la bahía, ya que, de ser necesario, disparar una flecha no sería una broma.
 
 "Capitán, ¿qué es esta montaña?", preguntó Li Jun, señalando un objeto grande y ovalado que sobresalía de un grupo de árboles verdes en la cima de Bopu.
 

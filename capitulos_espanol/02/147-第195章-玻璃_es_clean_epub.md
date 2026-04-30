@@ -4,7 +4,7 @@
 
 "Sí, es cierto que este diseño se inspiró en las *tulou*. Si este tipo de construcción tiene éxito en el proyecto piloto de Baidi, en el futuro, todos nuestros asentamientos adoptarán esta estructura". Wen Desi estaba muy entusiasmado con su diseño.
 
-"Wen Zong, este diseño es bastante bueno", dijo Mei Wan, aunque su expresión claramente indicaba lo contrario. "Sin embargo, las *tulou* y nuestras casas son diferentes. Las paredes exteriores de las *tulou* están hechas de tierra compactada, lo que les da una gran resistencia estructural y una calidad comparable al hormigón. Esta es una estructura de ladrillo y madera. Si bien el diseño podría ser aceptable para el control de la seguridad, sería muy difícil defenderlo contra un ataque..."
+"Jefe Wen, este diseño es bastante bueno", dijo Mei Wan, aunque su expresión claramente indicaba lo contrario. "Sin embargo, las *tulou* y nuestras casas son diferentes. Las paredes exteriores de las *tulou* están hechas de tierra compactada, lo que les da una gran resistencia estructural y una calidad comparable al hormigón. Esta es una estructura de ladrillo y madera. Si bien el diseño podría ser aceptable para el control de la seguridad, sería muy difícil defenderlo contra un ataque..."
 
 "En el futuro, los materiales se podrán mejorar; por ahora, veamos cómo es el efecto general de la vivienda". Wen Desi estaba muy apegado a su diseño y dijo: "La estructura de ladrillo y madera es solo una solución temporal; en el futuro, seguramente se convertirá en hormigón armado".
 

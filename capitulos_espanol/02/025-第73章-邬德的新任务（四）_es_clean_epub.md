@@ -59,7 +59,7 @@ Después de trabajar hasta el final de la tarde,邬德 los llevó a un refugio s
 
 "Es para tratar una infección por ácaros. Se limpia la zona afectada para aplicar el medicamento", explicó el hipopótamo, frotando con fuerza una pomada sobre la piel con una gasa.
 
-"Esta pomada de azufre, si no fuera por el recordatorio de Wen Zong, la habría olvidado", dijo Hemà mientras la aplicaba con fuerza, "En el siglo XXI, muy pocas personas se infectan con sarna".
+"Esta pomada de azufre, si no fuera por el recordatorio de Jefe Wen, la habría olvidado", dijo Hemà mientras la aplicaba con fuerza, "En el siglo XXI, muy pocas personas se infectan con sarna".
 
 "Además", dijo el hipopótamo mientras continuaba aplicando otras pomadas, "no los dejen bañarse durante estos días; esperen a que termine este tratamiento para hacerlo".
 

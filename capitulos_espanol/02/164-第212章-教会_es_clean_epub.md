@@ -55,17 +55,17 @@ Bai Dalù era católico y tenía un conocimiento suficiente de las escrituras re
 
 "No lo había previsto, pero después de considerarlo, Baidulú se negó:"
 
-"Wen Zong, no creo poder encargarme de esto."
+"Jefe Wen, no creo poder encargarme de esto."
 
 "¿Por qué?"
 
-"Wen Zong," dijo Bai Dalu, esforzándose por hablar, "al convertirse en obispo, uno debe hacer un voto, y una vez que se hace ese voto, se debe mantener la castidad de por vida. Yo todavía quiero casarme."
+"Jefe Wen," dijo Bai Dalu, esforzándose por hablar, "al convertirse en obispo, uno debe hacer un voto, y una vez que se hace ese voto, se debe mantener la castidad de por vida. Yo todavía quiero casarme."
 
 Wen Desi pensó: "Esto se ha complicado. Ser obispo no es algo que dure un día o dos, y estas personas que viajan a través del tiempo no vienen precisamente para convertirse en monjes extranjeros."
 
 "No te preocupes, más tarde podrás volver a la vida secular".
 
-"No, esto no es bueno", sacudió la cabeza Bai Dalù. "Si me convierto en obispo de Lingao, según la estimación de Wen Zong, el Vaticano probablemente me consagrará. En ese momento, mi fe religiosa no me permitiría volver a la vida secular, pero yo no quiero ser monje".
+"No, esto no es bueno", sacudió la cabeza Bai Dalù. "Si me convierto en obispo de Lingao, según la estimación de Jefe Wen, el Vaticano probablemente me consagrará. En ese momento, mi fe religiosa no me permitiría volver a la vida secular, pero yo no quiero ser monje".
 
 "Parece que la fe religiosa es realmente algo difícil de cambiar", murmuró Wen Desi. Continuó intentando convencerlo:
 "¿Podemos reformar la estructura de la iglesia, permitiendo que los miembros del clero se casen, por ejemplo?"

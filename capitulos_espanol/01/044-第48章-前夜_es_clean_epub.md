@@ -49,7 +49,7 @@ En ese momento, todas las luces de los barcos estaban encendidas, y los focos de
 
 Se estima que el agujero de gusano, al ser atravesado, podría generar oscilaciones debido a las violentas fluctuaciones de energía. Para evitar cualquier accidente en caso de que alguien cayera al agua, además del personal esencial que debía permanecer en cubierta y sujetar sus arneses de seguridad, todos los demás se refugiaron en la cabina. Inmediatamente después, se cerraron todas las escotillas estancas.
 
-"Wen Zong, empecemos", dijo Mengde, tenso, mientras se mantenía en su posición de control.
+"Jefe Wen, empecemos", dijo Mengde, tenso, mientras se mantenía en su posición de control.
 
 "De acuerdo, empecemos."
 

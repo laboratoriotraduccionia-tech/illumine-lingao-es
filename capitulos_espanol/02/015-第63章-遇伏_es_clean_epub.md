@@ -18,7 +18,7 @@ La niebla matutina se disipó gradualmente, y desde el camino que bordeaba la ci
 
 "¿Refugiados? ¿Vienen japoneses?"
 
-"Beiwèi tuvo dificultades para comprender el razonamiento de Xiaowei: "¿Japoneses? ¿De dónde han salido los japoneses?".
+"Bei Wei tuvo dificultades para comprender el razonamiento de Xiaowei: "¿Japoneses? ¿De dónde han salido los japoneses?".
 
 "¿No es cierto que durante la dinastía Ming, los piratas japoneses causaban problemas constantemente...?"
 

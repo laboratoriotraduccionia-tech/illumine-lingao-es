@@ -37,7 +37,7 @@ Wen Desi tomó el documento y vio que, en términos generales, describía cómo 
 
 "Pero, ¿cuál es su inversión? ¿De dónde sacamos el dinero ahora? ¿Todo es a través de un sistema de subsidios?".
 
-"Wen Zong, recuerdo que todos los viajeros temporales que están formalmente registrados reciben un salario..."
+"Jefe Wen, recuerdo que todos los viajeros temporales que están formalmente registrados reciben un salario..."
 
 Wen Desi no pudo evitar reírse y llorar al mismo tiempo; ya había olvidado ese detalle. Debido a que casi nadie tenía dónde gastar su salario, pocas personas recordaban que tenían esos ingresos. Sin embargo, esta persona involucrada accidentalmente lo recordaba muy claramente.
 
@@ -45,7 +45,7 @@ Wen Desi no pudo evitar reírse y llorar al mismo tiempo; ya había olvidado ese
 
 "Esto... --" Wen Desi, por supuesto, no podía negar esto, de lo contrario, la gente se enfadaría inmediatamente y eso sería extraño. Él se esforzó un poco y dijo: "Pero actualmente, solo se han pagado tres meses de salario, y con este poco de dinero, aunque se considere como capital, es imposible adquirir tantas cosas".
 
-"Por ahora, adquiriremos una parte y luego utilizaremos los ingresos de las ventas para hacer frente a los gastos," dijo Li Mei. Al ver que el rostro de Wen Zong no mostraba satisfacción, ella rápidamente continuó: "La primera compra se realizará con vales, y en el futuro compraremos a la Junta Directiva, utilizando una combinación de vales, créditos laborales, monedas de oro y plata y monedas de cobre para el pago."
+"Por ahora, adquiriremos una parte y luego utilizaremos los ingresos de las ventas para hacer frente a los gastos," dijo Li Mei. Al ver que el rostro de Jefe Wen no mostraba satisfacción, ella rápidamente continuó: "La primera compra se realizará con vales, y en el futuro compraremos a la Junta Directiva, utilizando una combinación de vales, créditos laborales, monedas de oro y plata y monedas de cobre para el pago."
 
 "Bien, así está bien", dijo finalmente Wen Desi, aliviado. "Sin embargo, como estás vendiendo a los nativos, no obtendrás nuevos ingresos por puntos."
 
@@ -57,7 +57,7 @@ Wen Desi no pudo evitar reírse y llorar al mismo tiempo; ya había olvidado ese
 
 "Mmm, eso es interesante", dijo Wen Desi, y comenzó a escuchar atentamente sus ideas.
 
-"Los beneficios de esta parte se pueden utilizar para distribuir dividendos a todos, para gastos de bienestar, o para cubrir los gastos administrativos futuros del comité ejecutivo", dijo ella con calma, observando la expresión de Wen Zong. "Piénselo: el sistema de suministro es algo inusual. Eventualmente, se implementará un sistema de salarios, y en ese momento, todos comenzarán a comparar sus ingresos. Si se puede distribuir un poco más de efectivo, a todos les gustará".
+"Los beneficios de esta parte se pueden utilizar para distribuir dividendos a todos, para gastos de bienestar, o para cubrir los gastos administrativos futuros del comité ejecutivo", dijo ella con calma, observando la expresión de Jefe Wen. "Piénselo: el sistema de suministro es algo inusual. Eventualmente, se implementará un sistema de salarios, y en ese momento, todos comenzarán a comparar sus ingresos. Si se puede distribuir un poco más de efectivo, a todos les gustará".
 
 "Sin embargo, el comité ejecutivo no puede emitir más puntos," Wen Desi frunció el ceño. "Los puntos son solo una forma de moneda virtual; cada mes, simplemente se añade una cantidad a la cuenta de salario y bonificación de cada uno. Su valor es difícil de estimar. Este es un aspecto, y otro problema es que el comité ejecutivo tampoco tiene puntos disponibles."
 

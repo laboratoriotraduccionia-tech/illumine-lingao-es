@@ -13,7 +13,7 @@ Los "viajeros temporales" que originalmente se dedicaban a trabajos técnicos, a
 
 Wu Nanhai tenía una responsabilidad aún mayor: debía formar a un grupo de personas que nunca habían trabajado en el campo, transformándolas en profesionales de la tecnología agrícola. Si bien algunas familias de los "viajeros temporales" provenían del campo, prácticamente nadie de ellos había realizado trabajos agrícolas. Ya era mucho si podían distinguir entre una plántula de trigo y una de cebollino.
 
-Hay una regla inquebrantable: todas las personas que viven en la base, independientemente de su trabajo, deben realizar una sesión de carrera matutina para fortalecer su cuerpo. Como indicó Wen Zong: "Si no puedes vencerlos, al menos debes ser capaz de correr más rápido que los nativos".
+Hay una regla inquebrantable: todas las personas que viven en la base, independientemente de su trabajo, deben realizar una sesión de carrera matutina para fortalecer su cuerpo. Como indicó Jefe Wen: "Si no puedes vencerlos, al menos debes ser capaz de correr más rápido que los nativos".
 
 El departamento de deportes también organizó numerosos juegos militares, que se llevaban a cabo todos los días después de la cena, como un medio importante para fortalecer el cuerpo y mejorar los reflejos.
 
@@ -29,15 +29,15 @@ El comité ejecutivo no se percató en ese momento de la complejidad del sistema
 
 Cada uno de los proyectos de preparación ha avanzado sin problemas, y la única excepción es el equipo deportivo, que se ha mantenido en su estado original.
 
-Lo que se conoce como equipo deportivo y la naturaleza del departamento de deportes al que se refiere "ella" son una misma cosa, y en realidad se refiere a armas, especialmente armas de fuego. Aunque las cuchillas son artículos controlados, todavía hay muchas formas legítimas de obtenerlas. A través de internet, se pueden comprar todo tipo de cuchillas: desde la "espada de infantería de acero plegable de estilo Wōyáng del norte de la dinastía Ming", con una longitud de mango de 80 centímetros y una longitud de hoja de 120 centímetros, que Wen Zong compró personalmente por 30.000 yuanes, hasta la famosa bayoneta de tres bordes, la espada de forma militar japonesa, las M9 y D80 europeas... prácticamente de todo. La elección del tipo de cuchilla generó incluso varios debates acalorados. Sin embargo, en cuanto a las armas de fuego, hay muchas personas con amplios conocimientos y datos que pueden hablar de ello, pero pocas personas que realmente hayan conseguido un arma de fuego.
+Lo que se conoce como equipo deportivo y la naturaleza del departamento de deportes al que se refiere "ella" son una misma cosa, y en realidad se refiere a armas, especialmente armas de fuego. Aunque las cuchillas son artículos controlados, todavía hay muchas formas legítimas de obtenerlas. A través de internet, se pueden comprar todo tipo de cuchillas: desde la "espada de infantería de acero plegable de estilo Wōyáng del norte de la dinastía Ming", con una longitud de mango de 80 centímetros y una longitud de hoja de 120 centímetros, que Jefe Wen compró personalmente por 30.000 yuanes, hasta la famosa bayoneta de tres bordes, la espada de forma militar japonesa, las M9 y D80 europeas... prácticamente de todo. La elección del tipo de cuchilla generó incluso varios debates acalorados. Sin embargo, en cuanto a las armas de fuego, hay muchas personas con amplios conocimientos y datos que pueden hablar de ello, pero pocas personas que realmente hayan conseguido un arma de fuego.
 
 Sin embargo, en el mundo siempre existen esas "ventajas injustas", así como los "viajeros temporales" que inevitablemente son alcanzados por un rayo.
 
-Un día, en la oficina de Wen Zong, llegó un visitante misterioso.
+Un día, en la oficina de Jefe Wen, llegó un visitante misterioso.
 
 "Bueno, en realidad, esto no es del todo exacto. La persona que fue llamada es un hombre de casi cuarenta años, de apariencia común y corriente, similar a la de un intelectual, vestido de forma sencilla pero muy cuidada. Cuando Xi Yazi fue llamado a la oficina, estaba hablando con Wen Desi, y los miembros del comité ejecutivo que estaban presentes parecían muy emocionados."
 
-"¿Podría ser un traficante de armas?", la alerta de Xi Yazhou se disparó. Recientemente, el Comité Ejecutivo ha estado discutiendo mucho sobre el tema de los armamentos. ¿Acaso ellos mismos han traído a una persona de este calibre? ¡Qué temerario! Este tipo de personas son peligrosas. Involuntariamente, sintió cierta irritación por la imprudencia de Wen Zong.
+"¿Podría ser un traficante de armas?", la alerta de Xi Yazhou se disparó. Recientemente, el Comité Ejecutivo ha estado discutiendo mucho sobre el tema de los armamentos. ¿Acaso ellos mismos han traído a una persona de este calibre? ¡Qué temerario! Este tipo de personas son peligrosas. Involuntariamente, sintió cierta irritación por la imprudencia de Jefe Wen.
 
 "Permítanme presentarles a esta persona", dijo Wen Desi, notando el cambio en la expresión de Xi Yazhen. "Este es Shi Niaoren, una médica."
 

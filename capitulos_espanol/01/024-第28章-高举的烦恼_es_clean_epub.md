@@ -54,25 +54,27 @@ Ahora mismo no hay tiempo para preocuparse por eso. Con un gruñido, preguntó:
 
 "Sí, entiendo", dijo Yan Guanshi. Al ver que no tenía más instrucciones, se dispuso a retirarse.
 
-"Espere, ¿ya no han llegado noticias de las personas que fueron a Shaozhou?"
+"Espere, ¿han llegado noticias de las personas que fueron a Shaozhou?"
 
-"No. El señor Xiao Yang salió de la ciudad de Beijing el 2 de marzo, así que probablemente aún no ha llegado a la provincia de Nan'an. En cualquier caso, llegará en unos diez días."
+"No. El joven eunuco Yang salió de la ciudad de Beijing el 2 de marzo, así que probablemente aún no ha llegado a la provincia de Nan'an. En cualquier caso, llegará en unos diez días."
 
 "Quiero que los funcionarios encargados de revisar documentos busquen todas las cartas y comunicaciones relacionadas con el eunuco Yang, que las revisen cuidadosamente y que investiguen a fondo al pequeño eunuco Yang: su edad, el año en que fue adoptado, sus aficiones, y que me proporcionen toda esa información."
 
 "Sí, señor Gao."
 
-"¿Han llegado nuevos periódicos matutinos?", preguntó Chang.
+"¿Han llegado nuevos periódicos matutinos?"
 
 "Los funcionarios de la oficina de 'Shu Qi' no mencionaron nada, por lo que probablemente no hay. Solo hay un boletín urgente de abril. Todos son noticias sobre nombramientos, así que no se presentaron..."
 
-"¡Qué tonterías! ¡Que alguien vaya a buscarlo de inmediato!", exclamó. Este boletín, a diferencia de los boletines ordinarios, era una lista de funcionarios transferidos por el Ministerio de Personal. Aunque no contenía nombres de altos cargos, Ye Luozhou sabía que los cambios en los puestos de funcionarios de bajo rango a veces podían revelar la dirección que estaba tomando el gobierno.
+"¡Qué tonterías! ¡Que alguien vaya a buscarlo de inmediato!", exclamó. Este boletín, a diferencia de los boletines ordinarios, era una lista de funcionarios transferidos por el Ministerio de Personal. Aunque no contenía nombres de altos cargos, sabía que los cambios en los puestos de funcionarios de bajo rango a veces podían revelar la dirección que estaba tomando el gobierno.
 
 Después de dar las instrucciones, bebió un poco de té para calmarse. Luego, se levantó y fue a la biblioteca exterior para recibir visitas.
 
+---
+
 Bei Wei era la primera vez que viajaba a través de un agujero de gusano, y en ese momento, dentro de la casa de un hombre de la dinastía Ming, se sentía como si estuviera soñando.
 
-Ser un explorador fue hace mucho tiempo, y después de dejar el ejército, sin importar lo que hiciera, siempre se esforzó por mantener las habilidades que había aprendido en el pasado. En esta ocasión, al participar en el comercio de "viajeros temporales", su objetivo principal era realizar un viaje de asesoramiento sencillo para investigar las actividades subterráneas en el futuro Guangzhou.
+Sus días de soldado de reconocimiento habían terminado hace tiempo, y después de dejar el ejército, sin importar lo que hiciera, siempre se esforzó por mantener las habilidades que había aprendido en el pasado. En esta ocasión, al participar en el comercio de "viajeros temporales", su objetivo principal era realizar un viaje de asesoramiento sencillo para investigar las actividades subterráneas en el futuro Guangzhou.
 
 El señor Gao es su colaborador, pero solo un colaborador. Dado que es una colaboración puramente basada en el beneficio mutuo, en cualquier momento podría traicionar a los viajeros temporales, y esto es algo que debe tenerse en cuenta.
 
@@ -82,15 +84,15 @@ Bei Wei, desde que salió por la puerta trasera de la sucursal de Guangzhou, has
 
 Todos los sirvientes que no eran necesarios en la casa fueron despedidos por el administrador Yan. Sin embargo, las extrañas acciones de este recién llegado de Australia aún provocaban que algunos guardias que lo escoltaban susurraran entre ellos. Aunque también estaban envidiosos de su robusta constitución; la mayoría de los guardias no podrían enfrentarse a él ni siquiera por tres asaltos.
 
-En este momento, tanto los anfitriones como los invitados estaban intercambiando cortesías. Para evitar compromisos innecesarios, antes de la partida, se había acordado lo siguiente: Beini era el guardaespaldas que la compañía marítima australiana había traído, por lo que simplemente se sentaba detrás de Wen Zong, con las manos sobre las rodillas, completamente inmóvil. Sin embargo, sus ojos escudriñaban todos los rincones.
+En este momento, tanto los anfitriones como los invitados estaban intercambiando cortesías. Para evitar compromisos innecesarios, antes de la partida, se había acordado lo siguiente: Bei Wei era el guardaespaldas que la compañía marítima australiana había traído, por lo que simplemente se sentaba detrás del Wen Desi, con las manos sobre las rodillas, completamente inmóvil. Sin embargo, sus ojos escudriñaban todos los rincones.
 
-Aunque se llama "estudio exterior", en realidad es un pequeño patio completo, y este salón tampoco es pequeño. Bei Wei echó un vistazo y vio que había once personas presentes: el señor Gao, un administrador que hacía de guía, un guardia, dos sirvientas, dos jóvenes sirvientes, y además, había cuatro soldados en las cuatro esquinas del salón.
+Aunque se llamaba "estudio exterior", en realidad era un pequeño patio completo, y este salón tampoco es pequeño. Bei Wei echó un vistazo y vio que había once personas presentes: el señor Gao, un administrador que hacía de guía, un guardia, dos sirvientas, dos jóvenes sirvientes, y además, había cuatro soldados en las cuatro esquinas del salón.
 
 Cuatro guardias, de complexión uniforme, bajos pero fuertes, evidentemente eran los guardias de la familia Gao. Sus camisas parecían un poco grandes, probablemente para ocultar objetos como barras de hierro.
 
 Esto es solo una parte. Bei Wei notó, desde que entró a este patio, que había cuatro guardias adicionales, ubicados detrás de las rocas artificiales y los árboles, en lugares poco visibles.
 
-⃀ El verdadero experto, probablemente, era el guardia que estaba detrás del señor Gao, controlando la puerta que daba a la sección lateral de la casa. Vestía una túnica verde con mangas anchas, permanecía en silencio y con las manos a los costados, pero emanaba una sutil aura de peligro.
+El verdadero experto, probablemente, era el guardia que estaba detrás del señor Gao, controlando la puerta que daba a la sección lateral de la casa. Vestía una túnica verde con mangas anchas, permanecía en silencio y con las manos a los costados, pero emanaba una sutil aura de peligro.
 
 No se sabe exactamente cuán poderosos eran estos expertos marciales de la dinastía Ming. Bei Wei sentía mucha curiosidad y, si tuviera la oportunidad de enfrentarlos, no la desperdiciaría. Tenía mucho interés en las artes marciales chinas tradicionales, pero en el ejército, el entrenamiento de combate se centraba principalmente en técnicas modernas, y sus conocimientos de artes marciales tradicionales eran limitados. También había presenciado algunas demostraciones de artes marciales, pero siempre le parecían insatisfactorias: contenían demasiados movimientos superficiales y no mostraban las técnicas de combate reales.
 

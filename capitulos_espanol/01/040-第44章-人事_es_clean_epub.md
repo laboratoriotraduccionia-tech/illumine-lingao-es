@@ -128,13 +128,13 @@ Una vez que atraviesa el agujero de gusano, desaparece de este mundo, lo que equ
 
 "¿No eres tú?"
 
-"Es difícil de decir... me parece poco probable", dijo Ye Yuming, oliendo el cigarrillo. "Si no fuera porque Wen Zong y Ma Gong son personas en las que confío, y además...", hizo una pausa, "realmente tengo un poco de miedo de que sea una estafa".
+"Es difícil de decir... me parece poco probable", dijo Ye Yuming, oliendo el cigarrillo. "Si no fuera porque Jefe Wen y Ma Gong son personas en las que confío, y además...", hizo una pausa, "realmente tengo un poco de miedo de que sea una estafa".
 
 "Probablemente no", dijo Meng Xian, aunque su confianza se había visto un poco afectada.
 
 "Mmm, no lo creo. Por eso vine, pero lo que pasó en el pasado es realmente difícil de decir."
 
-"¿No es que Wen Zong ya ha llevado a gente allí varias veces?"
+"¿No es que Jefe Wen ya ha llevado a gente allí varias veces?"
 
 "Sin embargo, hay mucha gente aquí, y también hay objetos. ¿Qué pasa si hay una explosión de energía? O, ¿qué pasa si ocurre algún accidente durante el viaje temporal...? La cara de Ye Yuming estaba muy seria. 'No hay forma de 'guardar' la vida si algo sale mal'."
 
@@ -160,7 +160,7 @@ Una vez que atraviesa el agujero de gusano, desaparece de este mundo, lo que equ
 
 "Pan Feng lo miró y una ligera sonrisa apareció en sus labios."
 
-"¿Por qué no es confiable? A menos que Wen Zong haya sufrido un colapso mental, ¿para qué está haciendo esto? ¿Para estafar a la gente? Si es así, la escala de este proyecto es tan grande que él mismo tendría que cubrir las pérdidas."
+"¿Por qué no es confiable? A menos que Jefe Wen haya sufrido un colapso mental, ¿para qué está haciendo esto? ¿Para estafar a la gente? Si es así, la escala de este proyecto es tan grande que él mismo tendría que cubrir las pérdidas."
 
 "¿De verdad quieres viajar en el tiempo?", preguntó Ye Yuming inmediatamente.
 

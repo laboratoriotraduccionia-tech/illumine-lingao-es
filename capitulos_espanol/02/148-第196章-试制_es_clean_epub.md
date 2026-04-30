@@ -40,7 +40,7 @@ Wen Desi entró en el taller de vidrio, que estaba lleno de vapor, pero descubri
 
 "Ji Si" le contó, con poca energía, que la prueba de fabricación de los objetos de vidrio había sido un completo fracaso: nadie había logrado darles la forma adecuada. Estos artesanos aficionados habían estado practicando diligentemente sus técnicas de soplado de vidrio desde temprano en la mañana. Habían revisado todos los materiales disponibles, pero no encontraron ninguna instrucción sobre cómo soplar vidrio. La única pista era un documental sobre la fabricación de vidrio artesanal, donde los trabajadores de televisión parecían lograr resultados, mientras que ellos estaban completamente perdidos. No solo no lograron hacer vasos, cuencos o botellas, sino que ni siquiera pudieron crear objetos similares. Desde el primer día del año hasta ahora, ya se habían acumulado varias canastas llenas de piezas rotas.
 
-"Wen Zong, esta situación es difícil de manejar", dijo Ji Sītuì, con gotas de sudor en la frente. El ambiente era caluroso, y la imposibilidad de producir recipientes de vidrio de calidad estaba exasperando al jefe del departamento de química.
+"Jefe Wen, esta situación es difícil de manejar", dijo Ji Sītuì, con gotas de sudor en la frente. El ambiente era caluroso, y la imposibilidad de producir recipientes de vidrio de calidad estaba exasperando al jefe del departamento de química.
 
 "No te preocupes, todavía hay muchas piezas de vidrio en el inventario del comité de planificación, suficiente para cubrir un período de tiempo", dijo Wen Desi, quien, aunque también estaba preocupado, intentaba mantener la calma y consolarlo.
 
@@ -68,7 +68,7 @@ Ella señaló esos extraños recipientes de vidrio y dijo: "Hablemos de cosas co
 
 "¡Molde! ¿Cómo se me olvidó?", exclamó Wen Desi.
 
-"Es correcto. ¿También lo recuerda, señor Wen Zong?", dijo Li Mei con una sonrisa. "Si no podemos hacer un soplador, entonces podemos usar una máquina de moldeo por presión. De hecho, en lo que respecta a las tazas de vidrio, la fabricación por moldeo es mucho más común que la fabricación por soplado."
+"Es correcto. ¿También lo recuerda, señor Jefe Wen?", dijo Li Mei con una sonrisa. "Si no podemos hacer un soplador, entonces podemos usar una máquina de moldeo por presión. De hecho, en lo que respecta a las tazas de vidrio, la fabricación por moldeo es mucho más común que la fabricación por soplado."
 
 "¡Muy bien, vamos a probarlo!", pensó Ji Situi, y esta idea abrió una nueva perspectiva. El proceso de moldeo requiere moldes, y el diseño y la fabricación de moldes son algo sencillo para el departamento de ingeniería, especialmente para algo tan simple.
 
@@ -86,7 +86,7 @@ Xiao Bailang observó detenidamente los diversos vasos, cuencos, jarrones, botel
 
 "¡De acuerdo!" Diseñar el molde para algo así no era difícil para Xiao Bailang, que tenía experiencia en mecánica. Observó detenidamente la taza de ocho lados, midió sus dimensiones y, con un lápiz, dibujó rápidamente un esquema sencillo en su cuaderno. Luego, tomó una regla y un lápiz y diseñó los planos del molde en el mismo lugar.
 
-"Wen Zong, ¿podría ver este molde y decirme qué le parece?"
+"Jefe Wen, ¿podría ver este molde y decirme qué le parece?"
 
 Wen Desi observó el esquema. Los moldes para estas tazas y cuencos son muy sencillos, un diseño de dos piezas combinadas, y hay accesorios complementarios, no hay ningún problema.
 

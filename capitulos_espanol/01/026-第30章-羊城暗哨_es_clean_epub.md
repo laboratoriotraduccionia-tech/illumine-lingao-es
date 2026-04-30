@@ -129,7 +129,7 @@ Si Gao Qing persiste en su error y continúa siendo el espía del señor Gao, en
 
 "¿Dónde está Chang Gao...?"
 
-"¡Hay alguien!", gritó Beiwai de repente, se acercó a la ventana y, sin pensarlo, tomó una piedra de la maceta y la lanzó hacia afuera. Se escuchó un golpe sordo afuera. Parecía que había dado en algo.
+"¡Hay alguien!", gritó Bei Wei de repente, se acercó a la ventana y, sin pensarlo, tomó una piedra de la maceta y la lanzó hacia afuera. Se escuchó un golpe sordo afuera. Parecía que había dado en algo.
 
 Tres jóvenes amantes de la vida en casa en diferentes ciudades se vieron sorprendidos y, aturdidos, se desplomaron en sus sillas, sin atreverse a emitir sonido.
 

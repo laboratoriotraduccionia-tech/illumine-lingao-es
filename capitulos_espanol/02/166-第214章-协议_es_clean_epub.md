@@ -91,7 +91,7 @@ La puerta se abrió y entró una pareja. Eran los llamados "ingleses" que el sac
 
 "Ah, así es." Dayaoma suspiró con decepción. "Dingding dijo que vendría si aquí hubiera de todo, y ahora ni siquiera se pueden comprar ropa nueva. Antes, nunca usaba ropa del año anterior."
 
-"Xue Ziliang preguntó: "¿El comité encabezado por Wen Zong tiene planes para la producción de alcohol?"
+"Xue Ziliang preguntó: "¿El comité encabezado por Jefe Wen tiene planes para la producción de alcohol?"
 
 "Sí, la estación de Guangzhou ya está trabajando en ello, y pronto comenzarán los trabajos en Leizhou. ¿Tienes alguna idea?"
 
@@ -125,7 +125,7 @@ Después de discutir con Baiduolu los asuntos de la construcción de la iglesia,
 
 "De acuerdo, Hé Yǐng, ya conoces tus tareas. No hablaré mucho sobre ese misionero francés, ya sabes de qué se trata. La postura de Bái Duolù es un poco laxa, debes ayudarlo constantemente y prestar mucha atención a sus movimientos."
 
-"No se preocupe, Wen Zong. Me aseguraré de vigilarlos de cerca."
+"No se preocupe, Jefe Wen. Me aseguraré de vigilarlos de cerca."
 
 "No debemos ser agresivos, sino más bien guiar y aprovechar las oportunidades. Tanto el catolicismo como el protestantismo, si se dirigen adecuadamente, pueden ser útiles para nosotros y son muy beneficiosos para nuestro gobierno."
 

@@ -23,7 +23,7 @@ He Ying sintió cierta incomodidad. Él era un ateo y le resultaba difícil sopo
 
 "Después de tantos días de conversación, Hé Yǐng logró averiguar detalles sobre la familia de la persona, la extensión de sus tierras y el número de animales que tenía, pero el carácter de esta persona sigue siendo difícil de comprender. El misionero siempre mantuvo una sonrisa amable y tranquila. Hoy, al mencionar el tema de las guerras religiosas en Francia, su intención era provocar una reacción, ver si se enfadaba o revelaba su verdadera personalidad. Sin embargo, parece que no ha logrado obtener mucha información."
 
-"Está bien, eres un inútil. ¡Qué viejo zorro!", pensó Hé Yǐng, sabiendo que ya no podía hacer nada más. Afortunadamente, Wen Zong ya había preparado un plan de respaldo.
+"Está bien, eres un inútil. ¡Qué viejo zorro!", pensó Hé Yǐng, sabiendo que ya no podía hacer nada más. Afortunadamente, Jefe Wen ya había preparado un plan de respaldo.
 
 "Donde existen seres humanos, habrá conflictos. Padre, vámonos, hoy el presidente Wen quiere verte." Para reflejar la naturaleza del gobierno de los viajeros temporales, él se refiere a Wen Desi como "presidente", en lugar de "administrador".
 

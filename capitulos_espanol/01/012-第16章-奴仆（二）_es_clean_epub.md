@@ -56,7 +56,7 @@ La chica no esperaba que le hablaran primero. Miró a Xiao Zishan con sorpresa y
 
 "Esta… servidora… se llama Gao Dajie…" (N. del T.: “Dajie” significa literalmente “hermana mayor”, un nombre muy poco formal y casi genérico, lo que genera el efecto humorístico.)
 
-Xiao Zishan casi escupe el té. Wang Gong y Wen Zong también estaban a punto de estallar de risa. "Gao Dajie"… el nombre era realmente imponente. Mirándola bien, la chica tenía algo de la figura esbelta y de piernas largas de Yang Ziqiong. (N. del T.: actriz conocida internacionalmente como Michelle Yeoh.)
+Xiao Zishan casi escupe el té. Wang Gong y Jefe Wen también estaban a punto de estallar de risa. "Gao Dajie"… el nombre era realmente imponente. Mirándola bien, la chica tenía algo de la figura esbelta y de piernas largas de Yang Ziqiong. (N. del T.: actriz conocida internacionalmente como Michelle Yeoh.)
 
 Los miembros de la familia Gao miraban atónitos a sus nuevos señores, incapaces de entender qué tenía de gracioso ese nombre.
 

@@ -81,7 +81,7 @@ Ma Qian zhuo, con calma, dejó caer una carta: "Ver películas para adultos tamp
 
 "Las pocas personas en la habitación guardaron silencio por un momento, como si se hubiera revelado algún secreto."
 
-Después de unos minutos, Ma Qianzhu le dijo a Wen Desi: "Wen Zong, ¿no deberíamos acelerar un poco el ritmo? La mayoría de la gente ya está llegando. Los que no vengan, no vendrán."
+Después de unos minutos, Ma Qianzhu le dijo a Wen Desi: "Jefe Wen, ¿no deberíamos acelerar un poco el ritmo? La mayoría de la gente ya está llegando. Los que no vengan, no vendrán."
 
 "¿Cómo podríamos ir más rápido?", se preguntó Wen Desi, lavando las cartas con lentitud. "¡El barco todavía no ha aparecido!"
 

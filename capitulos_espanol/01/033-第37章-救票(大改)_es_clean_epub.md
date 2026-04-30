@@ -61,7 +61,7 @@ Un grupo de personas, lideradas por Bei Wei, observaban en silencio a Ran Yao y 
 
 Una fotografía digital, ampliada e impresa, fue pegada con cinta adhesiva de doble cara sobre la superficie de una mesa de ébano. Este tipo de lancha es ancha y tiene una proa plana, con la popa levantada. Cuenta con un remo grande en la parte trasera y dos remos pequeños en la proa, lo que facilita la maniobra en aguas estrechas. La embarcación está ricamente decorada con tallas y pinturas, y su apariencia es muy elegante.
 
-Tanto las pequeñas como las grandes embarcaciones tienen tres secciones: la cabina delantera, la cabina central y la popa. La cabina central es la más grande, ocupando aproximadamente la mitad del tamaño de la embarcación, y está rodeada de cortinas, lo que proporciona mucha privacidad. Según las deducciones, es muy probable que Wen Zong estuviera escondido en este lugar.
+Tanto las pequeñas como las grandes embarcaciones tienen tres secciones: la cabina delantera, la cabina central y la popa. La cabina central es la más grande, ocupando aproximadamente la mitad del tamaño de la embarcación, y está rodeada de cortinas, lo que proporciona mucha privacidad. Según las deducciones, es muy probable que Jefe Wen estuviera escondido en este lugar.
 
 En la embarcación, vivían permanentemente cinco personas: la dueña del burdel, dos prostitutas, una sirvienta que hacía tareas generales y un hombre que cargaba con objetos.
 
@@ -69,7 +69,7 @@ En la embarcación, vivían permanentemente cinco personas: la dueña del burdel
 
 "Además de una persona cuyo apellido es Wang, nadie más de los presentes ha pasado la noche en esta embarcación. Esta persona, cuyo apellido es Wang, sale muy temprano por la mañana y regresa al caer la tarde."
 
-"Hace tres días, es decir, el día en que Wen Zong desapareció, estas personas desaparecieron, pero el letrero de la embarcación alquilada no fue retirado, y la comida y las verduras que se entregaban diariamente no disminuyeron. Ayer, alguien vio a una de las mujeres de la embarcación, conocida como 'lao ju' (prostituta), mostrando un pequeño objeto brillante. Según la descripción del guardia, creemos que se trata de un cortaúñas."
+"Hace tres días, es decir, el día en que Jefe Wen desapareció, estas personas desaparecieron, pero el letrero de la embarcación alquilada no fue retirado, y la comida y las verduras que se entregaban diariamente no disminuyeron. Ayer, alguien vio a una de las mujeres de la embarcación, conocida como 'lao ju' (prostituta), mostrando un pequeño objeto brillante. Según la descripción del guardia, creemos que se trata de un cortaúñas."
 
 "¿Un cortaúñas?"
 
@@ -77,7 +77,7 @@ En la embarcación, vivían permanentemente cinco personas: la dueña del burdel
 
 "Hay un detalle más que puede servir como evidencia", dijo, mostrando una nueva fotografía digital. "Según nuestro análisis y reconocimiento de las personas que aparecieron en los alrededores de la embarcación durante los últimos dos días, esta persona es la misma que fue fotografiada el día del incidente en una tetería en Haopantiejie."
 
-Desde hace dos días, la agencia Wei había informado a Wen Zong de que era muy probable que estuviera escondido en una lancha en Bai'e Tan. Ran Yao y Bei Wei, acompañados por Zhao Chang, utilizaron la comitiva de damas de la familia Gao como cobertura y realizaron una extensa vigilancia y filmación en Bai'e Tan, obteniendo mucha información. Tras la investigación, confirmaron que la información de la agencia Wei era confiable.
+Desde hace dos días, la agencia Wei había informado a Jefe Wen de que era muy probable que estuviera escondido en una lancha en Bai'e Tan. Ran Yao y Bei Wei, acompañados por Zhao Chang, utilizaron la comitiva de damas de la familia Gao como cobertura y realizaron una extensa vigilancia y filmación en Bai'e Tan, obteniendo mucha información. Tras la investigación, confirmaron que la información de la agencia Wei era confiable.
 
 La situación no permite dilaciones, así que decidí actuar de inmediato. Aún no ha llegado la carta de rescate, y la situación es estable. Si los criminales cambian de lugar, será mucho más difícil investigarlos. La operación estará dirigida por Ran Yao, con tres personas del departamento de deportes, más Lin Shenhe. Además, varios expertos de la agencia Qiwei se unirán para brindar apoyo.
 

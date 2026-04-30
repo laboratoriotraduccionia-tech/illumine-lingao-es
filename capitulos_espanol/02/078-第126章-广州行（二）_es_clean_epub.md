@@ -53,7 +53,7 @@ Xiao Zishan dijo: "Ahora, discutamos los planes de acción para después de lleg
 
 "Nos separaremos y actuaremos por separado. Xiao Zishan, usted vaya a hablar con Gao Ju y Sun Zhanggui sobre la posibilidad de una colaboración; después de todo, ustedes son conocidos. Yo planeo ir con Lao Yan y llevar a Liu Gang para que observe el ambiente en Guangzhou y que empecemos a planear la apertura de una tienda. El resto de ustedes, por ahora, permanezcan a bordo del barco."
 
-"Primero regresaré a la casa, y luego enviaré un coche y carros para llevar a todos a la casa, donde podrán relajarse un poco. Beiwai conoce a Sun Chang, así que le pediré que lidere el grupo". Xiao Zishan sabía que estos viajeros habían estado apretados en el barco durante cinco o seis días, y que permanecer en el barco podría provocar problemas, así que dejó a Beiwai para mantener el orden.
+"Primero regresaré a la casa, y luego enviaré un coche y carros para llevar a todos a la casa, donde podrán relajarse un poco. Bei Wei conoce a Sun Chang, así que le pediré que lidere el grupo". Xiao Zishan sabía que estos viajeros habían estado apretados en el barco durante cinco o seis días, y que permanecer en el barco podría provocar problemas, así que dejó a Bei Wei para mantener el orden.
 
 Después de que todos llegaron a un acuerdo, y tras una breve reorganización, Xiao Zishan, protegido por las fuerzas especiales y el contingente de América del Norte, se dirigió hacia la ciudad de Guangzhou.
 

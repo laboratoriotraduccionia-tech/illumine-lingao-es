@@ -64,7 +64,7 @@ Los jóvenes bajaron la cabeza y permanecieron en silencio. Ran Yao, aunque no h
 
 Después de un largo silencio, finalmente habló y preguntó: "¿Quién eres?".
 
-Ran Yao se sorprendió. Desde la última vez que salvó la vida de Wen Zong, ya no quedaban muchas personas entre los viajeros temporales que no lo conocieran.
+Ran Yao se sorprendió. Desde la última vez que salvó la vida de Jefe Wen, ya no quedaban muchas personas entre los viajeros temporales que no lo conocieran.
 
 "Soy Ran Yao, jefe del grupo de seguridad."
 

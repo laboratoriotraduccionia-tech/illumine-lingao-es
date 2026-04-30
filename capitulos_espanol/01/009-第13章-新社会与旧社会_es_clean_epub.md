@@ -45,7 +45,7 @@ El encargado volvió a entrar con té. Al ver lo torcido que llevaban el atuendo
 
 En las casas ricas de Guangdong era común tener sirvientas. El encargado sabía que estos invitados eran importantes para su señor, así que trajo a dos jóvenes de unos quince o dieciséis años, de ojos brillantes y aspecto encantador. Entraron con naturalidad, hicieron una leve reverencia y se acercaron a ayudarles a quitarse la ropa mal puesta.
 
-Wen Zong no era ajeno a ciertos ambientes mundanos, pero aun así le costaba mantener la compostura cuando aquellas manos suaves lo ayudaban a vestirse. No pudo evitar pensar: "Esto sí que es el paraíso de los hombres".
+Jefe Wen no era ajeno a ciertos ambientes mundanos, pero aun así le costaba mantener la compostura cuando aquellas manos suaves lo ayudaban a vestirse. No pudo evitar pensar: "Esto sí que es el paraíso de los hombres".
 
 Mientras dejaba volar la imaginación, notó que Xiao Zishan tenía una expresión similar. Entonces le susurró con una sonrisa:
 

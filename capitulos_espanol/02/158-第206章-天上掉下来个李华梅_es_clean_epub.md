@@ -67,7 +67,7 @@ Alrededor, varias personas lo sujetaban firmemente sobre la mesa, y algunos de e
 
 "Xiao Bailang" fue liberado por la multitud después de que los reclutadores, tras varios minutos de llamados sin éxito, se retiraran.
 
-"El barco 'Condesa de Scarborough' está en Macao. ¡Debo informar inmediatamente a Wen Zong sobre esto!"
+"El barco 'Condesa de Scarborough' está en Macao. ¡Debo informar inmediatamente a Jefe Wen sobre esto!"
 
 "De acuerdo", la gente estaba a punto de levantarse y marcharse.
 

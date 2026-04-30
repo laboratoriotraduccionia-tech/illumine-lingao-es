@@ -9,7 +9,7 @@ Wen Desi consideró la situación y decidió, de todos modos, establecer contact
 
 "Intenta hablar lo menos posible y escucha mucho", aconsejó Wen Desi. "Si mi memoria no me falla, la orden católica presente aquí es principalmente de la Compañía de Jesús, y este grupo de personas es particularmente hábil en la adaptación en su labor misionera, y es fácil que engañen a la gente."
 
-"Entiendo, Wen Zong", dijo Bai Dalù mientras seguía a los artesanos.
+"Entiendo, Jefe Wen", dijo Bai Dalù mientras seguía a los artesanos.
 
 El resto del grupo continuó paseando por las calles, y gradualmente notaron que había menos personas de raza blanca y que las calles comenzaban a tener un aspecto más chino. Al preguntar, descubrieron que se encontraban en la calle "Dé" (Debuchangshi), un área de Macao donde se concentraban los chinos, y a lo largo de la calle había una gran variedad de establecimientos con letreros, muchos de los cuales se dedicaban a la venta de seda y productos relacionados, así como de cerámica. Algunos establecimientos tenían fachadas muy cuidadas, pero no era posible saber qué vendían, y había empleados con uniformes azules que los recibían en la puerta. Mientras todos especulaban, de repente, un joven empleado salió de uno de los establecimientos y los invitó a entrar para hablar.
 

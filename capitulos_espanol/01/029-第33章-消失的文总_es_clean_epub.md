@@ -1,4 +1,4 @@
-## Capítulo 29: La desaparición de Wen Zong
+## Capítulo 29: La desaparición de Jefe Wen
 
 "Me siento muy aturdido...", Xiao Zishan despertó de su sueño y sintió una gran incomodidad. En los últimos días, había dormido muy bien. La Guangzhou de la época Ming tenía un aire fresco y no había el ruido constante de los automóviles por la mañana. Dormir era realmente muy reparador.
 
@@ -11,15 +11,15 @@ Se incorporó y echó un vistazo a la habitación, y se sorprendió. La habitaci
 
 Su mente reaccionó inmediatamente con esta idea, lo que lo llenó de preocupación. El dinero y las mercancías obtenidas en este intercambio comercial aún estaban apilados en la casa. Si... simplemente no se atrevía a imaginarlo. Se levantó rápidamente para vestirse, pero de repente descubrió que sus calcetines y zapatos de viaje habían desaparecido. ¡Realmente han robado! Había varios pares de sandalias de paja en la casa, así que rápidamente se las puso y salió con la ropa puesta.
 
-Tan pronto como salió, vio a Beiwèi salir corriendo de la casa. Xiao Zishan notó que también llevaba puestas unas sandalias, ¡sus botas de combate habían desaparecido!
+Tan pronto como salió, vio a Bei Wei salir corriendo de la casa. Xiao Zishan notó que también llevaba puestas unas sandalias, ¡sus botas de combate habían desaparecido!
 
 "¡Ha ocurrido algo!", dijo Bei Wei de manera concisa.
 
 "¿Qué sucede?"
 
-"¡Wen Zong ha desaparecido!"
+"¡Jefe Wen ha desaparecido!"
 
-"¡Qué!", exclamó Xiao Zishan, sintiéndose repentinamente aterrado. ¡Wen Zong había desaparecido! Esto no era el Guangzhou del siglo XXI: Wen Zong, al salir, conocía a mucha gente, y contaba con la policía de la ciudad más segura del país. Pero en el Guangzhou del siglo XVII, al salir, nadie lo reconocía. Ni siquiera sabía cómo encontrar el camino.
+"¡Qué!", exclamó Xiao Zishan, sintiéndose repentinamente aterrado. ¡Jefe Wen había desaparecido! Esto no era el Guangzhou del siglo XXI: Jefe Wen, al salir, conocía a mucha gente, y contaba con la policía de la ciudad más segura del país. Pero en el Guangzhou del siglo XVII, al salir, nadie lo reconocía. Ni siquiera sabía cómo encontrar el camino.
 
 Dos personas corrieron de una habitación a otra, revisando cada una. Wang Gong todavía dormía profundamente, pero al llegar a la tercera sección del patio, la casa baja, la familia Gao Qing y Sun Chang también dormían profundamente. Rápidamente despertaron a todos, quienes estaban aturdidos y mareados, sintiéndose mal. Sin embargo, Gao Lujie y su hermano menor no se despertaban, ni siquiera con gritos. En ese momento de confusión, Sun Chang tuvo la idea de usar agua fría para lavarse la cara.
 
@@ -35,16 +35,16 @@ Dos personas corrieron de una habitación a otra, revisando cada una. Wang Gong 
 
 Estas palabras les sirvieron de recordatorio, y ambos comenzaron a correr a toda velocidad hacia la sección oeste del patio central. Debido a que este edificio se utilizaba como un importante almacén y punto de viaje temporal, el comité ejecutivo había realizado algunas modificaciones que no pertenecían a esta época. Además de haber tapiado las ventanas y las puertas innecesarias con ladrillos, en el interior se había construido una pequeña habitación con protección en los cuatro lados, utilizando vallas de acero con alambre de púas y puertas de seguridad. Xiao Zishan vio que la puerta de madera exterior había desaparecido, y comprendió que algo andaba mal. Rápidamente entró, y tanto las vallas como las puertas de seguridad estaban intactas, y un carro lleno de mercancías estaba apilado cuidadosamente. Solo entonces respiró aliviado.
 
-"Parece que los ladrones no lograron su objetivo. Las medidas de seguridad del siglo XXI sí tienen efecto. El problema es que se llevaron a Wen Zong. Esto es mucho peor que perder mercancías o dinero. El dinero siempre se puede recuperar, pero perder a una persona viva en la dinastía Ming es un problema grave."
+"Parece que los ladrones no lograron su objetivo. Las medidas de seguridad del siglo XXI sí tienen efecto. El problema es que se llevaron a Jefe Wen. Esto es mucho peor que perder mercancías o dinero. El dinero siempre se puede recuperar, pero perder a una persona viva en la dinastía Ming es un problema grave."
 
-"¿Quién se llevó a Wen Zong?", se preguntó Xiao Zishan, mientras su mente trabajaba a toda velocidad. ¿Se trataba de un evento fortuito o de un plan premeditado? Era difícil de decir. Si era un plan, solo las personas de la familia Gao sabían que estaban aquí. Además, no tenían ningún otro contacto con la ciudad de Guangzhou. ¿Qué sentido tendría que la familia Gao secuestrara a Wen Zong? Si era un evento fortuito, ¿podría ser que algún ladrón entrara a la casa para robar y simplemente secuestrara a Wen Zong? Eso también era posible.
+"¿Quién se llevó a Jefe Wen?", se preguntó Xiao Zishan, mientras su mente trabajaba a toda velocidad. ¿Se trataba de un evento fortuito o de un plan premeditado? Era difícil de decir. Si era un plan, solo las personas de la familia Gao sabían que estaban aquí. Además, no tenían ningún otro contacto con la ciudad de Guangzhou. ¿Qué sentido tendría que la familia Gao secuestrara a Jefe Wen? Si era un evento fortuito, ¿podría ser que algún ladrón entrara a la casa para robar y simplemente secuestrara a Jefe Wen? Eso también era posible.
 
-Tres personas estuvieron en la habitación de Wen Zong durante la mitad del día, pero no encontraron nada. La ropa, los zapatos y los sombreros de Wen Zong habían desaparecido, y hasta el chaleco antibalas, el spray anti-lobos y el dispositivo de electrochoque que él siempre llevaba consigo al viajar en el tiempo, también habían desaparecido.
+Tres personas estuvieron en la habitación de Jefe Wen durante la mitad del día, pero no encontraron nada. La ropa, los zapatos y los sombreros de Jefe Wen habían desaparecido, y hasta el chaleco antibalas, el spray anti-lobos y el dispositivo de electrochoque que él siempre llevaba consigo al viajar en el tiempo, también habían desaparecido.
 
 Después de observarlo durante mucho tiempo, Xiao Zishan no pudo evitar hablar:
 "Lao Bei, ¿has descubierto algo? ¿No eres un explorador?"
 
-"Beiwai extendió las manos, diciendo: 'Soy un soldado de reconocimiento, no un investigador. Esto requiere la intervención de expertos en investigación criminal'".
+"Bei Wei extendió las manos, diciendo: 'Soy un soldado de reconocimiento, no un investigador. Esto requiere la intervención de expertos en investigación criminal'".
 
 "Deberíamos buscar a alguien especializado en investigación criminal. Ran Yao fue policía antes", recordó Xiao Zishan.
 
@@ -60,9 +60,9 @@ Gao Qing se enteró de esto y se puso aún más preocupado, con el ceño fruncid
 
 "Sí", dijo Zhao Chang en voz baja. "Los señores no son personas de la dinastía Ming, por lo que no pueden aparecer públicamente, pero si el señor Gao interviene, la administración puede enviar a alguien para encargarse del asunto en privado". Miró a Xiao Zishan y dijo: "El señor Gao puede influir en las cosas incluso en dos prefecturas y dos condados".
 
-"Mmm." Xiao Zishan no quiso confirmar ni negar, pero sintió una sospecha. Todo estaba normal antes de que Zhao Chang llegara, pero desde que llegó, Wen Zong ha desaparecido...
+"Mmm." Xiao Zishan no quiso confirmar ni negar, pero sintió una sospecha. Todo estaba normal antes de que Zhao Chang llegara, pero desde que llegó, Jefe Wen ha desaparecido...
 
-Mientras estaba reflexionando, Beiwèi entró. Zhao Chang se apresuró a salir.
+Mientras estaba reflexionando, Bei Wei entró. Zhao Chang se apresuró a salir.
 
 "¡Hemos encontrado rastros!"
 
@@ -88,13 +88,13 @@ Mientras estaba reflexionando, Beiwèi entró. Zhao Chang se apresuró a salir.
 
 "Parece que fue algo planeado, pero ¿quién haría algo así?".
 
-"Eso no lo sé. En resumen, primero tenemos que encontrar a Wen Zong. Esperaremos a que los expertos lo examinen antes de tomar una decisión."
+"Eso no lo sé. En resumen, primero tenemos que encontrar a Jefe Wen. Esperaremos a que los expertos lo examinen antes de tomar una decisión."
 
 "De acuerdo, también debemos avisarle a Gao Ju para que nos ayude a buscar personas. Él, al menos, conoce bien la zona y tiene contactos."
 
 "¿Tiene algo que ver con Gao Ju?",
 
-"No creo que sea muy probable, ¿qué beneficio podría obtener al secuestrar a Wen Zong?"
+"No creo que sea muy probable, ¿qué beneficio podría obtener al secuestrar a Jefe Wen?"
 
 "Es importante estar preparado. Voy a echar un vistazo a todos lados, ¡qué lástima que haya perdido mi cuchillo!". Bei Lì estaba furioso. Ese cuchillo lo había comprado a un precio elevado en una página web, y ahora, al igual que sus botas de combate modelo 02 de la marca 3515, había desaparecido.
 

@@ -54,7 +54,7 @@ Xiao Zishan negó con la cabeza: "Desde que aterrizamos, siempre hemos seguido u
 
 "Es normal que el equipo directivo esté en armonía. Por eso, es necesario convocar una reunión ampliada". Xiao Zishan, con el rostro sombrío, dijo: "¿Sabes cómo piensan el jefe de grupo profesional, los técnicos clave y los representantes de la comunidad?".
 
-Wang Luobin pensó un momento y dijo: "Independientemente de lo que digan los demás, yo mantendré mi enfoque prudente. Apoyo firmemente la visión de Wen Zong." De repente, sonrió y le dio una palmada en el hombro a Xiao Zishan: "Eres demasiado paranoico, siempre piensas en todo en términos de luchas políticas..."
+Wang Luobin pensó un momento y dijo: "Independientemente de lo que digan los demás, yo mantendré mi enfoque prudente. Apoyo firmemente la visión de Jefe Wen." De repente, sonrió y le dio una palmada en el hombro a Xiao Zishan: "Eres demasiado paranoico, siempre piensas en todo en términos de luchas políticas..."
 
 Xiao Zishan y Wang Luobin estaban involucrados en actividades sospechosas, mientras que el personal del equipo médico trabajaba sin descanso en la tienda de campaña. Se escuchaban gritos constantemente, ya que, debido a la escasez de anestesia, la mayoría de los heridos se limpiaban las heridas y se les retiraban los objetos extraños estando completamente conscientes. En algunos casos, bastaba con aplicar un poco de medicamento, pero en otros, era necesario suturar.
 

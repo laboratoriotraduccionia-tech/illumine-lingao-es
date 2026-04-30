@@ -71,7 +71,7 @@ Wu Nanhai, mientras viajaba en el coche, solicitó que se asignaran algunos de l
 
 "Quizás sería mejor que fuera Bei Wei."
 
-"Beiwèi entrena a sus tropas todos los días y no puede ausentarse. Además, no hay nadie más adecuado que él para formar el núcleo militar." Wú Dé vio el primer torreón que pasaban; las personas en la parte superior estaban enviando señales de luz, y él respondió encendiendo las luces del coche: su itinerario ya había sido comunicado a todas las torres de vigilancia a lo largo del camino.
+"Bei Wei entrena a sus tropas todos los días y no puede ausentarse. Además, no hay nadie más adecuado que él para formar el núcleo militar." Wú Dé vio el primer torreón que pasaban; las personas en la parte superior estaban enviando señales de luz, y él respondió encendiendo las luces del coche: su itinerario ya había sido comunicado a todas las torres de vigilancia a lo largo del camino.
 
 "Él tiene experiencia en negocios. Nosotros, los veteranos, nunca hemos hecho negocios, ¿es eso una ventaja? Además, él es muy activo."
 

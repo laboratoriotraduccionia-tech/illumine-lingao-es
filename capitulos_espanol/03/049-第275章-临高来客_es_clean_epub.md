@@ -1,0 +1,90 @@
+## Capítulo 271: Visitantes de Lingao
+
+
+"Estos días, también los he estado observando. La mayoría de las personas son buenas, trabajan diligentemente. Pero hay algunas personas…" Chang Shide señaló a siete u ocho personas que estaban acostadas sobre esteras de paja, con esteras cubriéndolas, pero con los glúteos y los muslos claramente hinchados, y que gemían con falta de energía.
+
+"Después de comer algunas comidas abundantes, se volvieron complacientes. Originalmente, los designamos como funcionarios del pueblo como una muestra de confianza; si lo hacían bien, serían reutilizados en el futuro. Sin embargo, no apreciaron este honor, sintieron que la estabilidad no era suficiente y querían obtener dinero de fuentes ilícitas. Ahora, las autoridades ya los han investigado, y nosotros aquí no insistiremos más en el asunto, pero el puesto de funcionario del pueblo ya no está disponible. El dinero que robaron debe ser considerado como parte de su deuda, y tal vez se necesiten setenta o ochenta años para pagarla."
+
+"En cuanto a aquellos que saben que están equivocados y se ofrecen voluntariamente a compensar los daños, aquí no se les castigará más; se les destituye inmediatamente y se les añade de uno a cinco años de trabajos forzados. Mostramos indulgencia: independientemente de quién sea, quien comete el delito asume la responsabilidad, y no se involucrará a los familiares". Chang Shide ya se había ocupado de varios individuos que se ofrecieron voluntariamente a compensar los daños, así como de sus familiares. Tan pronto como terminó de hablar, estas personas inmediatamente comenzaron a llorar y gritar:
+"¡Señores, son tan benevolentes!"
+
+"¡Guau, guau, soy peor que un cerdo o un perro!"
+
+"De ahora en adelante, estoy decidido a trabajar para el señor Gao, ¡y estoy dispuesto a hacer cualquier cosa, incluso saltar al fuego!"
+
+La atmósfera contagiaba a la multitud, y el ambiente en el lugar se volvió más animado. Chang Shide sintió que el efecto era bastante bueno; parecía que el manual "Cómo promover e inspirar" era realmente útil.
+
+"Ustedes, estos maestros que hacen dulces…" Los dedos de Chang Shide se dirigieron hacia ellos. Hace unos días, durante la acción de "matar al gallo para asustar a los monos", el objetivo era proteger al personal técnico, por lo que no se arrestó a ningún trabajador de la industria azucarera. Sin embargo, la observación forzada era obligatoria para todos. Después de regresar de la oficina gubernamental, todos rápidamente dejaron de consumir los dulces corruptos. Sin embargo, Chang Shide, con una sonrisa misteriosa en su rostro, rechazó todas las ofrendas, aceptando solo que cada persona escribiera una declaración de arrepentimiento con la palabra "服辨". Para aquellos que no sabían escribir, había copias pre-escritas disponibles; simplemente debían completar los números y poner su huella. Estas personas estuvieron preocupadas durante varios días. Hoy, cuando fueron obligados a asistir a la asamblea, todos estaban nerviosos. Ahora, al ser llamados por su nombre, no pudieron más que arrodillarse en el suelo, y sus súplicas resonaron sin cesar.
+
+Fue entonces cuando Chang Shide reveló sus verdaderas intenciones, proponiendo que todos se unieran a la empresa de azúcar de Leizhou, dejando de ser trabajadores temporales. Recibirían las mismas condiciones que los inmigrantes, con comida y salario. En cuanto a las pequeñas cantidades que habían tomado "prestadas" en el pasado, eso se consideraría un adelanto de salario.
+
+"Chang Shide" habló sobre lo "amplia" que era su visión, pero la gente que estaba debajo no era tonta. Sabían que, si alguien se atrevía a decir "no", "Chang Shide" tenía el poder de obligarlos a obedecer, y también tenía conexiones con las oficinas de los condados. Además, podía llevarlos directamente a la oficina para darles una paliza. Era como los pocos desafortunados que ya estaban en las oficinas de los condados, con un collar y comida para moscas. Sin importar si estaban de acuerdo o no, todos dijeron: "Estamos dispuestos a unirse a la fábrica de azúcar".
+
+"Trabajen bien, no los vamos a tratar mal", dijo Chang Shide, mirando al cocinero de dulces que tenía el ceño fruncido. Pensó para sí mismo que este negocio era bastante bueno.
+
+A continuación, él reasignó a los funcionarios del pueblo que habían dejado sus cargos, y decidió mantener en sus puestos a algunos funcionarios que no habían cometido problemas graves, ya que simplemente había muy pocas personas adecuadas para ocupar esos cargos. Sin embargo, Chang Shide consideró que esto era demasiado permisivo y que era necesario aplicar una política de "tolerancia cero" para que los trabajadores supieran cuál era su postura. Incluso si las personas recién nombradas eran un poco menos capaces, no era una gran diferencia en comparación con las anteriores.
+
+En cuanto a los ajustes salariales, Chang Shide se basó en el sistema de salarios implementado por la oficina de Guangzhou en varias empresas afiliadas, y estableció diferentes niveles. Se clasificó a todas las personas en dos categorías: trabajadores agrícolas y trabajadores de la industria azucarera, y se establecieron de tres a cuatro niveles en cada categoría, con salarios diferenciados según las habilidades de cada persona. Los jefes de aldea, los capitanes de la milicia y personas similares también se clasificaron como trabajadores agrícolas, según su nivel de habilidad. Además, se otorgaban subsidios por cargos.
+
+Para mejorar aún más la productividad laboral, además de distribuir acciones entre todos para obtener dividendos, Chang Shide también organizó actividades de competencia laboral en cada hacienda. Se realizaba una evaluación mensual, y la hacienda que cosechara más caña de azúcar, produjera más azúcar y tuviera menos pérdidas, podía disfrutar de recompensas adicionales.
+
+文同 y otros sintieron la importancia de los funcionarios de base, por lo que iniciaron un programa de capacitación para funcionarios de aldea. Los nuevos funcionarios de aldea de cada aldea fueron trasladados a la fábrica de azúcar de Huinan para recibir capacitación. Además de aprender conocimientos culturales básicos, también se impartieron conocimientos sobre el cultivo de caña de azúcar, la gestión de campos y la producción de azúcar.
+
+Después de esta serie de luchas y negociaciones, la empresa azucarera entró en una trayectoria estable y la moral mejoró. La producción de azúcar aumentó constantemente, y los barcos y carretas que transportaban azúcar moreno, melaza y bagazo desde la fábrica del sur de China llegaban sin cesar. Esta empresa, que antes era desconocida, comenzó a convertirse en tema de conversación entre los comerciantes de azúcar en la calle Haian.
+
+Chang Shide sintió cierta satisfacción. Además de dar clases a los participantes de la formación diaria, también había abierto una clase para maestros, con la intención de crear una escuela primaria para los hijos de los trabajadores de la fábrica de azúcar después de que terminara la temporada de producción de azúcar. Como no quería enseñar a tantos niños, tuvo la idea de usar a algunas de las mujeres que tenía a su servicio. Así, hizo que Wen Xiu fuera su asistente y organizó una formación para maestros. Además de las clases durante el día, también continuaba con clases nocturnas. Wen Xiu y A Zhu no participaron.
+
+"Profesor, me equivoqué, por favor, perdone a este estudiante", dijo con un mandarín que aún sonaba un poco forzado.
+
+"Déjame castigarte bien, pequeño bribón", dijo.
+
+文, al mismo tiempo, cuando pasaba por la casa de Chang Shide por la noche, podía escuchar ese mandarín vulgar, pero a la vez embriagador.
+
+"Eres un pervertido." Wen Tong siempre había despreciado este tipo de cosplay de SM, afortunadamente, este tipo aún tenía algo de afecto fraternal y no arrastró a Zhu a alguna clase nocturna, algo que Wen Tong apoyaba completamente. Sin embargo, cada día estaba tan ocupado con los asuntos de la fábrica de azúcar que, al regresar al patio, solo quería dormir, y ni siquiera tenía la energía para usar a Zhu. Después de todo, Chang Shide era más robusto; trabajaba duro durante el día y también durante la noche. Wen Tong no pudo evitar sentir tristeza: ¿por qué hay tanta diferencia entre las personas?
+
+文同 ha dedicado recientemente toda su energía física y mental a las mejoras técnicas de la fábrica de azúcar. De los dos enfoques de mejora técnica que había propuesto originalmente, uno es la producción de azúcar blanco, algo que ya ha logrado. Aunque el proceso es obsoleto y la producción es baja, es muy adecuado para su nivel industrial actual. Ahora, el siguiente paso es cómo aumentar la escala y mejorar la eficiencia.
+
+Otra opción es aumentar la productividad de la extracción de jugo de caña de azúcar. Las modernas fábricas de azúcar utilizan al menos rodillos de acero triples, con una tasa de extracción de hasta el 70% en una sola pasada, y las fábricas más grandes incluso tienen equipos con doce rodillos, de modo que la pulpa de caña de azúcar resultante prácticamente no contiene agua. Jefe Wen decidió eliminar primero los rodillos de madera en la fábrica del sur de China. Inicialmente, pensó en usar piedra para fabricar los rodillos, pero la eficiencia de los rodillos de piedra no mejoraba significativamente en comparación con los de madera, y el consumo de energía animal seguía siendo enorme.
+
+Sigue siendo la mejor opción utilizar múltiples rodillos de acero. Wen Tong recuerda que en la región de Zhanjiang, la maquinaria de extracción semi-automatizada de dos o tres rodillos comenzó a reemplazar gradualmente los antiguos molinos de piedra accionados por animales a partir de mediados de la década de 1960. En ese momento, se utilizaban ampliamente los molinos de dos rodillos producidos en Chaozhou, con una tasa de extracción de jugo superior al 60%. Posteriormente, se adoptaron molinos de tres rodillos producidos en Shunde, lo que aumentó la tasa de extracción hasta el 72% - 73%. Esta cifra, en comparación con la tasa de extracción promedio del 45% de los molinos de piedra, es como si la producción de caña de azúcar se mantuviera constante, pero la producción de azúcar aumentara repentinamente en un 60%!
+Esta cifra es realmente muy atractiva para Wen Tong. Además, este tipo de equipo es técnicamente bastante simple y la capacidad industrial de los viajeros temporales es completamente capaz de producirlo.
+
+Sin embargo, al utilizar un sistema de tres rodillos de acero, es inevitable considerar el problema de la potencia. No es algo que pueda ser arrastrado por una mula. En la realidad, las pequeñas fábricas semi-mecanizadas de Zhanjiang que utilizan prensas de tres rodillos están impulsadas por motores diésel de 20 caballos de fuerza. Ahora que hay escasez de diésel, Wen Tong naturalmente pensó en las turbinas hidráulicas y visitó específicamente la única fábrica de azúcar que tenía un sistema de rodillos hidráulicos. Después de visitarla, se sintió bastante decepcionado, ya que el sistema de rodillos hidráulicos era simplemente una turbina hidráulica muy básica, sin canales ni presas, y básicamente utilizaba la diferencia de altura de los ríos naturales, con una eficiencia muy baja.
+
+La fábrica de Huánán tiene acceso a ríos, pero estos tienen un flujo lento y un caudal insuficiente. Jefe Wen, aunque no es experto en hidráulica, sabía que para instalar turbinas en este río y poder accionar prensas de rodillos de acero, era imprescindible construir una presa para almacenar agua. Sin embargo, construir una presa implicaría problemas de uso del agua en las áreas aguas arriba y aguas abajo, lo cual era un asunto complicado y que podría incluso arrastrarlo a una larga y costosa disputa legal. Por lo tanto, rechazó esta idea.
+
+Quizás sería mejor usar una máquina de vapor. Wen Tongxin pensó: la turbina hidráulica, creada con un gran costo, solo podía usarse para triturar caña de azúcar. Si pudiera conseguir una máquina de vapor, podría introducir muchos equipos que mejoraran la eficiencia, y la eficiencia de las máquinas es mucho mayor que la de las turbinas hidráulicas. Con una máquina de vapor, también habría una caldera, y el vapor producido por la caldera también sería útil para la producción de azúcar. Al menos, podría usarse para calentar el jugo de caña de azúcar de manera muy uniforme, reduciendo la posibilidad de que se quemara.
+
+Existe una gran variedad de maquinaria disponible para la producción de azúcar, y con un enfoque cuidadoso, todo el proceso podría ser mecanizado. Por supuesto, esta es una tendencia futura. Jefe Wen consideró los procesos de la fábrica de azúcar de Huannan y seleccionó varios equipos de procesamiento simples y fáciles de operar.
+
+Después de considerar cuidadosamente la situación, inmediatamente envió un mensaje a Zhang Xin en Guangzhou, explicando sus ideas y adjuntando una lista de las máquinas específicas que había solicitado. Además, solicitó a Lingao que proporcionara los materiales de construcción necesarios, como cemento, acero, ladrillos y piedras, ya que, para alcanzar un nivel de producción semi-automatizado, era necesario aumentar la escala de las operaciones.
+
+El informe de Wen Tong, después de ser transferido a través de la estación de Guangzhou, llegó a Lingao. Después de una breve discusión, el comité ejecutivo aprobó la asignación de todo el equipo que él necesitaba.
+
+Dos semanas después, un gran barco llegó al puerto de Hai'an Jie, y su llegada causó gran revuelo. El diseño de este barco era muy particular. Era de gran tamaño, casi equivalente a 400 "liao" de barco, pero tenía una calada muy baja, casi plana, y una cubierta ancha. Además de la cubierta de popa y las dos mástiles, no había nada que sobresaliera en la cubierta.
+
+En la amplia cubierta, había montones de cajas de diferentes tamaños, así como mercancías voluminosas envueltas en marcos de madera y esteras. Las mercancías estaban cubiertas con una gran red para asegurar su transporte. Este tipo de barco de carga, con toda la mercancía apilada en la cubierta, era algo que todos veían por primera vez y que atraía la atención: ¿Quién fue el astillero que tuvo esta idea? ¿Cómo pueden apilar la mercancía en la cubierta? ¿No se mojará todo con el viento y las olas?
+
+Chang Shide vio ese gran barco de cubierta plana y pensó que era algo que definitivamente estaba muy por delante de su época. Era simplemente inapropiado. Justo cuando estaba pensando eso, el gran barco se acercó lentamente al embarcadero, y el sonido del agua al caer de las plataformas de conexión anunció la llegada de una figura familiar.
+
+Al echar un vistazo, resultó ser Beǐ Wěi, el capitán del equipo especial. Es una persona poco común. Sin embargo, durante los meses posteriores al "Día D", se le veía con frecuencia a él y a sus compañeros por todas partes, pero luego se volvió cada vez más misterioso. De hecho, ya no se le veía en lugares frecuentados por el público en general. La última vez que Chang Shide lo vio fue durante una reunión de consulta política, cuando lo vio con un grupo de personas en un punto estratégico.
+
+Esta persona, que no tiene nada que ver ni con el comercio ni con la industria, ¿cómo apareció de repente en un barco con destino a Leizhou? ¿Podría tener una misión secreta? El Comité Ejecutivo cree que Leizhou es una fuente de riqueza, ¿y quiere tomar el control de ella primero? Pero, ¿cómo podrían tomar el control de toda la isla de Qiongzhou?
+
+"Mientras divagaba, Bei Wei ya llegado a su lado. Vestía ropa de la época Ming, un atuendo corto y sencillo, como el de un sirviente, y detrás de él había varios jóvenes fornidos que no reconocía, probablemente miembros del equipo de investigación especial. Estaba a punto de hablar cuando Bei Wei le hizo un gesto con la mirada, indicándole que no dijera nada. Bei Wei, por su cuenta, llevó a un grupo de personas y se mezcló con el equipo de trabajadores que se preparaban para descargar las máquinas."
+
+A continuación, apareció quien realmente era el responsable de la misión de transporte: Mei Lin, de la empresa de construcción de Lingao, que obviamente estaba allí para supervisar los trabajos de construcción de la fábrica de azúcar. Los otros dos no los reconoció, y probablemente eran del departamento de maquinaria, allí para ayudar con la instalación. Los tres vestían de manera muy formal, con pelucas y turbantes, lo que les daba un aspecto poco apropiado y fuera de lugar.
+
+"Bienvenido, bienvenido", Chang Shide se acercó rápidamente. Ahora mismo, él se consideraba un "funcionario temporal", por lo que debía mostrarse muy amable con los funcionarios que venían de "la capital". "Lao Mei, ¿has venido de viaje de negocios? Estos dos son…"
+
+"Meilin rápidamente presentó: "Todos son del taller mecánico. Este es Xiao Zishan, vino a instalar la máquina de vapor, y este es Chen Tianxiong…"
+
+"Me llamo Chen Tianxiong. Esta vez, el comité ejecutivo me envió a Leizhou para que me encargue específicamente del funcionamiento y la puesta a punto de los equipos mecánicos de la fábrica de azúcar, y también para capacitar a algunos trabajadores." La persona que hablaba tenía cerca de cuarenta años, su porte era sereno y su cuerpo parecía aún muy fuerte, sin perderle a los jóvenes.
+
+"¡Esto es excelente! Antes, me preocupaba si la instalación mecánica se realizaría correctamente, pero ahora tengo dudas sobre el mantenimiento y cuidado posteriores". Él miró a su alrededor y dijo: "No es el lugar adecuado para hablar de esto. Vamos a descansar un poco en el cobertizo cercano".
+
+Dado que había muchas mercancías que descargar, Chang Shide había organizado previamente el alquiler de una pequeña estructura, un "téng", para servir como lugar de supervisión y descanso durante la descarga. Los guardias de seguridad, liderados por Qiwéi, custodiaban el lugar por todos los lados.
+
+"No esperaba que fueran tan rápidos", comentó Chang Shide, indicando a Wen Xiu que trajera té. "Por favor, beban agua, beban agua". Se sentó y, después de que Wen Xiu se retiró, preguntó: "¿Ya llegaron los equipos?".
+
+(Fin del capítulo).

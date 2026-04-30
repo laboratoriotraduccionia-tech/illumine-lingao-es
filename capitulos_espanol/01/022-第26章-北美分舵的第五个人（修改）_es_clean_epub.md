@@ -1,4 +1,4 @@
-## Capítulo 22: La quinta persona de la sucursal norteamericana (modificado)
+## Capítulo 22: La quinta persona de la sucursal norteamericana
 
 Shi Niaoren se fue a Estados Unidos al día siguiente. En cuanto a qué tipo de armas se iban a comprar, la decisión era difícil debido a las muchas opiniones diferentes. Los "viajeros temporales" de Norteamérica sugirieron esperar noticias antes de actuar, ya que de todos modos no era conveniente almacenar las armas durante mucho tiempo, y aún habría tiempo para comprarlas unos meses antes de la partida.
 
@@ -74,7 +74,7 @@ Cómo enviar el dinero a Estados Unidos se convirtió de nuevo en un problema. S
 
 "¿De verdad crees en ese tal Shi Daifu, y en Lin Shenhe?", preguntó Xiao Zishan a Wen Desi una vez mientras caminaba por el campo.
 
-"¿No confiar en ellos, qué más podemos hacer?", preguntó Wen Zong. "Nuestras armas dependen de ellos; no hay otra alternativa."
+"¿No confiar en ellos, qué más podemos hacer?", preguntó Jefe Wen. "Nuestras armas dependen de ellos; no hay otra alternativa."
 
 "Es cierto", Xiao Zishan se quedó en silencio.
 
@@ -82,7 +82,7 @@ Cómo enviar el dinero a Estados Unidos se convirtió de nuevo en un problema. S
 
 Xiao Zishan sintió un escalofrío y dijo: "¡Ten cuidado con lo que dices!"
 
-"Mmm," Wen Zong asintió con la cabeza. "¿Cómo está Xi Yazhou últimamente? ¿Ha tenido algún problema emocional?"
+"Mmm," Jefe Wen asintió con la cabeza. "¿Cómo está Xi Yazhou últimamente? ¿Ha tenido algún problema emocional?"
 
 "No, además, sus ideas no han sido completamente rechazadas. Parece que todavía bebe con Lin Shenhe, y varias personas fueron, el ambiente era bastante animado. Lin Shenhe tiene mucha experiencia práctica, es también un experto."
 
@@ -90,7 +90,7 @@ Xiao Zishan sintió un escalofrío y dijo: "¡Ten cuidado con lo que dices!"
 
 "Consideran que estamos exagerando y complicando innecesariamente las cosas", Xiao Zishan sonrió con amargura. Tenía cada vez más familiares trabajando bajo su mando, y a través de sus conversaciones, podía conocer los pensamientos de muchas personas. "En su opinión, lo importante es tener armas, y el resto es irrelevante. Por lo tanto, no tienen muchas objeciones sobre qué tipo de arma se utiliza".
 
-"Así está bien, todos deben mantener la calma. Para ser sinceros, ahora todo es bueno, lo que sea, pero me preocupa lo que pueda pasar después..." Wen Zong no terminó su frase.
+"Así está bien, todos deben mantener la calma. Para ser sinceros, ahora todo es bueno, lo que sea, pero me preocupa lo que pueda pasar después..." Jefe Wen no terminó su frase.
 
 "Cuando uno posee un arma poderosa, la intención de matar surge naturalmente."
 

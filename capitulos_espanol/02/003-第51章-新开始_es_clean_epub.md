@@ -79,6 +79,6 @@ Ma Qianzhu estaba a punto de hablar cuando, de repente, una joven extranjera irr
 
 "No tengo ningún comentario al respecto", respondió Ma Qianzhu con una actitud poco colaboradora. En realidad, ese día estaba muy emocionado, pero simplemente no le gusta que lo entrevisten. Prefiere expresar sus pensamientos y sentimientos cuando está escribiendo tranquilamente sus memorias, en lugar de que alguien lo presione con preguntas.
 
-"¿Y qué opina Wen Zong?", preguntó Ding Ding, cambiando rápidamente de tema. Inmediatamente después, Pan Pan se acercó y comenzó a golpear a Chang Shide con fuerza.
+"¿Y qué opina Jefe Wen?", preguntó Ding Ding, cambiando rápidamente de tema. Inmediatamente después, Pan Pan se acercó y comenzó a golpear a Chang Shide con fuerza.
 
 "Un día histórico", dijo Wen Desi.

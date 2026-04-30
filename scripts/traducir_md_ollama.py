@@ -43,7 +43,7 @@ Strict rules:
 广州 = Guangzhou
 海南 = Hainan
 台湾 = Taiwan
-文总 = Wen Zong
+文总 = Jefe Wen
 高老爷 = señor Gao
 红楼梦 = Sueño en el pabellón rojo
 

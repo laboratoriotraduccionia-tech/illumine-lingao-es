@@ -38,7 +38,7 @@ Sin embargo, en este momento, necesitan desesperadamente a alguien que investigu
 
 Sun Keping dijo: "Aunque los 'Zha' viven en el agua y se ganan la vida allí, algunos son pescadores. Sin embargo, no todos los pescadores son 'Zha'". Explicó que los 'Zha' se dedican a todo tipo de negocios en el agua, y sus barcos se encuentran prácticamente en cada puerto y desembocadura del río Perla.
 
-Entre los secuestradores, había personas de la etnia "zhaijia", lo que hizo que la situación fuera mucho más clara. Es muy probable que Wen Zong esté escondido en algún barco en el agua; aquí estamos en Nanchang, y al otro lado de la muralla está el río Perla. Una vez que los secuestradores lo suban al barco, tendrán libertad total. Además, la etnia "zhaijia" es un grupo social muy cerrado, con diferentes dialectos y costumbres que los de la gente del continente. Es difícil obtener información sobre ellos a menos que se conozca bien su cultura.
+Entre los secuestradores, había personas de la etnia "zhaijia", lo que hizo que la situación fuera mucho más clara. Es muy probable que Jefe Wen esté escondido en algún barco en el agua; aquí estamos en Nanchang, y al otro lado de la muralla está el río Perla. Una vez que los secuestradores lo suban al barco, tendrán libertad total. Además, la etnia "zhaijia" es un grupo social muy cerrado, con diferentes dialectos y costumbres que los de la gente del continente. Es difícil obtener información sobre ellos a menos que se conozca bien su cultura.
 
 Tras escuchar esto, todos sintieron que sus corazones se hundían. Esto no es nada bueno.
 
@@ -106,7 +106,7 @@ Todos se animaron y rápidamente se reunieron alrededor.
 
 "No hay problema, por lo que parece, el señor Sun cree que podrán encontrarlo en unos días."
 
-"No sé cómo estará ahora mismo Wen Zong."
+"No sé cómo estará ahora mismo Jefe Wen."
 
 Sun Zhanggui regresó a la agencia de transporte y bebió varias tazas de té fuerte, pensando durante mucho tiempo. Había prometido con mano firme en la empresa comercial australiana, y ya tenía una gran confianza en sí mismo. Era seguro que había habido participación de burdeles, incluso si el inspector australiano Ran no había mencionado el asunto de las huellas descalzas, el olor que percibió en la casa le indicaba lo mismo. Sin embargo, la forma de investigar era un poco complicada, ya que las reglas de la agencia de transporte prohibían entrar en lugares como burdeles y casas de citas. Tampoco conocía a muchas de las personas que trabajaban allí.
 

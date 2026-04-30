@@ -66,7 +66,7 @@ Saiga-308 es un fusil de acción articulada desarrollado por la fábrica de Izhe
 
 "Esto equivale a devolver la pelota al Comité Ejecutivo. Por aquí, la gente está discutiendo mucho, pero no se llega a una decisión. A diferencia de las apasionadas discusiones de los aficionados, el departamento de deportes, salvo Xi Yazhou, simplemente no muestra interés en este tema. Para ellos, el Tipo 56 era suficiente, ¿por qué complicar las cosas con tantas cosas innecesarias?"
 
-"¿No se puede usar un fusil de avancarga?", pensó Wen Zong, recordando que una vez, durante un viaje a Estados Unidos, había visitado una exposición de armas donde había visto una gran variedad de antiguos fusiles, como los Mauser, Springfield y Mosin-Nagant, entre muchos otros. Y además, los precios eran muy bajos. Un fusil de este tipo, con una larga bayoneta, combinado con sombreros negros y uniformes de lana roja y amarilla, sería una imagen impresionante si los soldados marcharan en filas lentas.
+"¿No se puede usar un fusil de avancarga?", pensó Jefe Wen, recordando que una vez, durante un viaje a Estados Unidos, había visitado una exposición de armas donde había visto una gran variedad de antiguos fusiles, como los Mauser, Springfield y Mosin-Nagant, entre muchos otros. Y además, los precios eran muy bajos. Un fusil de este tipo, con una larga bayoneta, combinado con sombreros negros y uniformes de lana roja y amarilla, sería una imagen impresionante si los soldados marcharan en filas lentas.
 
 Sin embargo, él sabía que era imposible para los viajeros temporales llevar a cabo esa tarea, así que no mencionó ese pequeño interés.
 

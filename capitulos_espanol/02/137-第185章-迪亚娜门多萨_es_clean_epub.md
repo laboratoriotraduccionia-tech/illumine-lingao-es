@@ -101,7 +101,7 @@ Zhu Cai Lao realmente tenía la intención de colaborar con los viajeros tempora
 
 "¿Cómo se llama, Li, qué apellido tiene?"
 
-Ran Yao frunció el ceño, recordó algo y, gracias a su excelente memoria, rápidamente se dio cuenta de que esta mujer debía ser la que había secuestrado a Wen Zong años atrás.
+Ran Yao frunció el ceño, recordó algo y, gracias a su excelente memoria, rápidamente se dio cuenta de que esta mujer debía ser la que había secuestrado a Jefe Wen años atrás.
 
 "¿Tiene el cabello rizado y negro, con ojos ligeramente marrones?"
 

@@ -49,7 +49,7 @@ Sin embargo, algunas personas se oponían a esta práctica: para la gente común
 
 "¿Un plan de desarrollo?", varios miembros de la comisión se sorprendieron. Aunque estaban organizando un mercado libre fuera de la ciudad de Bairen, el objetivo era simplemente promover el intercambio de bienes y mejorar las relaciones entre los viajeros temporales y los habitantes locales. Sin embargo, pocos habían pensado detenidamente en cómo administrar y gestionar este mercado. Todos imaginaban que este mercado sería como los mercados libres que existen en muchas ciudades de China: agricultores y pequeños comerciantes vendiendo sus productos, y quizás alguien pensaría en eliminar las tarifas de puesto.
 
-"Es correcto, es un plan de desarrollo." Dong Men aprovechó la oportunidad para levantarse. "Estimados miembros del comité, permítanme presentarles ahora este plan de desarrollo integral. Creo que, con este plan, y bajo el correcto liderazgo del comité, bajo la guía de Wen Zong, y con el fuerte apoyo del miembro Cheng..."
+"Es correcto, es un plan de desarrollo." Dong Men aprovechó la oportunidad para levantarse. "Estimados miembros del comité, permítanme presentarles ahora este plan de desarrollo integral. Creo que, con este plan, y bajo el correcto liderazgo del comité, bajo la guía de Jefe Wen, y con el fuerte apoyo del miembro Cheng..."
 
 "¡No digas tonterías! ¡Ya estamos en la dinastía Daming y sigues con estas cosas!", exclamó Dugu Qiuhun, visiblemente impaciente.
 

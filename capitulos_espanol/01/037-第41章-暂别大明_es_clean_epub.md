@@ -36,11 +36,11 @@ Por lo tanto, de este grandioso proyecto de construcción, solo se había implem
 
 Tras la transición formal, ya no eran simples comerciantes australianos, inofensivos, que traían productos novedosos para ganar dinero aquí, sino una fuerza política singular, con la intención de sublevarse. Como miembro del comité ejecutivo, es poco probable que me asignen de nuevo a la ciudad de Guangzhou, que está bajo el control de esta fuerza enemiga. No sé cuánto tiempo pasará antes de que la bandera de los viajeros temporales ondee en este primer edificio de Lingnan.
 
-Justo cuando estaba pensando eso, Wen Desi entró desde el exterior, con una expresión alegre en su rostro. Durante la última semana, Xiao Zishan ha estado supervisando la construcción de la nueva casa, mientras que Wen Zong y Wang, el ingeniero, se encargan de los asuntos relacionados con el comercio.
+Justo cuando estaba pensando eso, Wen Desi entró desde el exterior, con una expresión alegre en su rostro. Durante la última semana, Xiao Zishan ha estado supervisando la construcción de la nueva casa, mientras que Jefe Wen y Wang, el ingeniero, se encargan de los asuntos relacionados con el comercio.
 
 "¿Xiao Zishan, todavía estás supervisando los trabajos?"
 
-"¿Wen Zong, cómo has llegado aquí? Deberías evitar aparecer en público últimamente."
+"¿Jefe Wen, cómo has llegado aquí? Deberías evitar aparecer en público últimamente."
 
 "No hay problema, tengo a los expertos de la compañía de transporte 'Qiwēi' protegiéndome, y además, tengo mis propios talismanes..."
 
@@ -110,7 +110,7 @@ Gao Qing apenas comenzaba a escuchar cuando su esposa, de repente, estalló:
 
 Gao Qing, callado y abatido, no dijo nada, pero su intención era seguir intentando salir.
 
-"Gao Xigan, desesperada, comenzó a llorar y a protestar: 'He tenido mala suerte al casarme con un inútil como tú. ¿Aún tienes algo de sentido común? ¿Qué nos ha dado la familia Gao? ¿Cómo nos han tratado Wen Zong y los demás? ¡Y tú, encima, los ayudas y aún les das dinero!"
+"Gao Xigan, desesperada, comenzó a llorar y a protestar: 'He tenido mala suerte al casarme con un inútil como tú. ¿Aún tienes algo de sentido común? ¿Qué nos ha dado la familia Gao? ¿Cómo nos han tratado Jefe Wen y los demás? ¡Y tú, encima, los ayudas y aún les das dinero!"
 
 "El señor Wen siempre ha sido alguien de fuera... en el futuro..."
 

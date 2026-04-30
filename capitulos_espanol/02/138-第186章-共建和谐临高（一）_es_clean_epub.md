@@ -9,7 +9,7 @@ Esta vez, la batalla capturó prisioneros de diversas etnias. Normalmente, no ha
 
 Sin embargo, un grupo de nacionalistas liderados por Dugu Qiu'hun se opusieron firmemente a tales privilegios: estos españoles, sin importar cuán "civilizados" se consideren, llegaron a la costa de China con la esperanza de saquear y enriquecerse; son, sin lugar a dudas, piratas. Ser ahorcados directamente en Bolu sería una muestra de clemencia; reutilizarlos es, simplemente, una forma de servilismo hacia los extranjeros.
 
-La marina finalmente sucumbió bajo la bandera del nacionalismo. Incluso Wen Zong, quien siempre los había favorecido, se negó a apoyarlos. La razón de Wen Zong era simple: "Esto es una violación de las regulaciones".
+La marina finalmente sucumbió bajo la bandera del nacionalismo. Incluso Jefe Wen, quien siempre los había favorecido, se negó a apoyarlos. La razón de Jefe Wen era simple: "Esto es una violación de las regulaciones".
 
 Claro que no se puede decir que estos dos españoles no hayan recibido trato preferencial. Fueron integrados en un grupo de trabajo junto con prisioneros indios; aunque estos últimos no eran compatriotas de los españoles, al menos hablaban algo de español, lo que permitía cierta comunicación y evitaba que se sintieran demasiado solos. En cuanto a los piratas malayos, a nadie le importaba su destino. Después de una simple selección, fueron directamente trasladados a canteras para realizar trabajos forzados.
 

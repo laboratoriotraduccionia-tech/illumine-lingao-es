@@ -24,11 +24,11 @@ El trabajo de inteligencia, así como el trabajo de estabilización, implican qu
 
 Uno de los personajes mencionados en el documento se llama Wen Desi. Según la información de registro, él es el representante legal, presidente y gerente general de la empresa.
 
-Guo Yi nunca había visto el perfil de esa persona. De hecho, Wen Zong no es alguien que pueda tener citas aquí. Sin embargo, dentro de la organización, es conocido por su afición a revisar minuciosamente los documentos y los archivos. Esta afición le ha causado problemas a algunas personas, aunque él mismo no sabe a quiénes han ofendido esos documentos que él revisó. Por lo tanto, a pesar de varias rondas de promociones en su departamento, sigue siendo un empleado de nivel inferior. Además, no se le asignan tareas que puedan generar méritos.
+Guo Yi nunca había visto el perfil de esa persona. De hecho, Jefe Wen no es alguien que pueda tener citas aquí. Sin embargo, dentro de la organización, es conocido por su afición a revisar minuciosamente los documentos y los archivos. Esta afición le ha causado problemas a algunas personas, aunque él mismo no sabe a quiénes han ofendido esos documentos que él revisó. Por lo tanto, a pesar de varias rondas de promociones en su departamento, sigue siendo un empleado de nivel inferior. Además, no se le asignan tareas que puedan generar méritos.
 
 Según los datos disponibles sobre Wen Desi, se trata de una persona común y corriente, de unos treinta y tantos años, que anteriormente fue ingeniero y gerente en varias empresas, con un buen nivel de ingresos. Le gusta viajar y tiene un gran interés en la historia y la milicia, además de dedicarse a trabajos manuales. Es un aficionado a los deportes al aire libre y a las armas, y se le podría describir como un "entusiasta de la supervivencia", que pasa el día preparándose para un posible invierno nuclear, probablemente con grandes provisiones de alimentos en su casa. Sin embargo, no hay evidencia de que posea o intente poseer armas de ningún tipo, ni siquiera perros. También frecuenta algunos sitios web, donde publica mensajes haciendo preguntas, por ejemplo, sobre qué tipo de munición es más barata o sobre equipos para actividades al aire libre. Su historial es limpio, sin ningún registro negativo, e incluso no se encuentran infracciones de tráfico.
 
-La empresa que él poseía fue registrada hace medio año, con un capital registrado de un millón. Guo Yi, por supuesto, sabía que el capital registrado era solo una formalidad. Sin embargo, basándose en los impuestos sobre la renta que Wen Zong pagaba cuando trabajaba, era fácil obtener un millón de capital, como se deduce de los registros bancarios de Wen Desi: hace medio año, retiró varios depósitos bancarios en varias ocasiones, por un total de más de ochenta mil. Después de eso, ya no había depósitos fijos tan grandes en su cuenta personal.
+La empresa que él poseía fue registrada hace medio año, con un capital registrado de un millón. Guo Yi, por supuesto, sabía que el capital registrado era solo una formalidad. Sin embargo, basándose en los impuestos sobre la renta que Jefe Wen pagaba cuando trabajaba, era fácil obtener un millón de capital, como se deduce de los registros bancarios de Wen Desi: hace medio año, retiró varios depósitos bancarios en varias ocasiones, por un total de más de ochenta mil. Después de eso, ya no había depósitos fijos tan grandes en su cuenta personal.
 
 La actividad de la cuenta de la empresa, tanto en ingresos como en egresos, no revela nada significativo; se trata de transacciones comerciales normales de compra y venta. Los gastos registrados incluyen: salarios, gastos de electricidad, agua y oficina. La cuenta tiene un saldo en efectivo, pero no muy elevado, que se mantiene en un nivel de alrededor de cien mil unidades.
 
@@ -70,7 +70,7 @@ Todos los que llegan deben someterse a un corte de pelo, esta regla extraña no 
 
 "Lo sé, lo sé...", Xiao Zishan estaba sudando. Era una persona discreta y, con la sensación de estar haciendo algo mal, bajó la voz. "Vayan al estacionamiento, hay una camioneta, el número de matrícula es ******."
 
-"¿Y Wen Zong...?"
+"¿Y Jefe Wen...?"
 
 "En un momento podré verlos... todavía tengo que recoger a algunas personas..." Xiao Zishan, con el corazón en un puño, miraba a su alrededor, esperando que sus palabras no hubieran llamado la atención.
 

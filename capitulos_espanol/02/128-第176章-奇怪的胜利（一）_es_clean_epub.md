@@ -26,7 +26,7 @@ En ese momento, Ma Qianzhu notó un problema. El equipo de reconocimiento de Bei
 
 Todo estaba preparado. Se le pidió a Wu Nanhai que comenzara a cocinar rápidamente y que enviara la comida a la muralla. Todas las personas con experiencia en el manejo de armas no podían bajar a comer. Además, el equipo médico estaba listo para atender a los heridos. Wu De reunió a los miembros de la milicia de la comuna, les entregó armas frías y los designó como reserva. Los trabajadores estaban organizados para estar listos en todo momento para transportar heridos y municiones.
 
-Finalmente, se instruyó al equipo de reconocimiento de Beiwai para que asignara a varios francotiradores, equipados con rifles de precisión, radios y motocicletas, quienes se desplegarían a lo largo de la ruta de avance para emboscar y eliminar a los principales líderes enemigos.
+Finalmente, se instruyó al equipo de reconocimiento de Bei Wei para que asignara a varios francotiradores, equipados con rifles de precisión, radios y motocicletas, quienes se desplegarían a lo largo de la ruta de avance para emboscar y eliminar a los principales líderes enemigos.
 
 Una vez que todo estuvo listo, las filas del enemigo finalmente aparecieron en el horizonte. Xi Yazhou estimó que había como máximo 400 soldados enemigos; ¿qué podían lograr con tan pocos? Los prisioneros de Zhuo Cai, que habían estado en el campo de prisioneros durante unos días, habían visto bastante y sabían que los viajeros temporales tenían miles de trabajadores, además de excelentes armas. Incluso para buscar venganza, ¿no sería necesario traer al menos dos o tres mil personas?
 

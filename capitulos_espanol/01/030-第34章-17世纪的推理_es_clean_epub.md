@@ -11,15 +11,15 @@ El comité ejecutivo recibió la noticia y convocó urgentemente una reunión: �
 
 "¡¿Por qué?!" Wang Gong estaba furioso y, al ver que alguien se oponía, inmediatamente lo increpó.
 
-"Ir así solo causaría problemas, no ayudaría", dijo Ma Qianzhu. "Allí está Guangzhou de la dinastía Ming, y nosotros no la conocemos en absoluto. ¿De qué sirve ir tantos? Ni siquiera tenemos un mapa, y solo nos dicen dónde está Wen Zong, ¿cómo van a encontrarlo?".
+"Ir así solo causaría problemas, no ayudaría", dijo Ma Qianzhu. "Allí está Guangzhou de la dinastía Ming, y nosotros no la conocemos en absoluto. ¿De qué sirve ir tantos? Ni siquiera tenemos un mapa, y solo nos dicen dónde está Jefe Wen, ¿cómo van a encontrarlo?".
 
 "Todos se miraron unos a otros; esta pregunta parecía que nadie la había previsto."
 
-"Los asuntos de la dinastía Ming deben ser resueltos por personas de la dinastía Ming. En realidad, lo que se necesita es información. Una vez que se sepa el paradero de Wen Zong, se puede tomar cualquier medida, ya sea un rescate militar o una negociación para liberar a la persona, y eso no sería un problema. Con tanta gente llegando de forma desorganizada, Xiao Zishan y Wang Luobin tampoco tendrán fácil explicar la situación a sus colaboradores allí."
+"Los asuntos de la dinastía Ming deben ser resueltos por personas de la dinastía Ming. En realidad, lo que se necesita es información. Una vez que se sepa el paradero de Jefe Wen, se puede tomar cualquier medida, ya sea un rescate militar o una negociación para liberar a la persona, y eso no sería un problema. Con tanta gente llegando de forma desorganizada, Xiao Zishan y Wang Luobin tampoco tendrán fácil explicar la situación a sus colaboradores allí."
 
 "¿Rescatar a alguien? Es que no se te ocurre otra cosa." Algunas personas ya estaban muy indignadas: "¡Esto del 'xia ruandan' no lo haremos!" Esta declaración provocó un murmullo de acuerdo. Los *viajeros temporales*, aunque dicen cosas como "No subestimen la sabiduría de los antiguos" y "Los antiguos también son muy hábiles", en realidad están llenos de un sentimiento de superioridad propio de los modernos: la idea de que los "modernos, civilizados y avanzados" deben ceder ante los "antiguos, ignorantes y atrasados" es algo que les hiere profundamente.
 
-"Si se puede resolver de forma rápida y segura, la negociación no es necesariamente una mala opción", insistió Ma Qianzhu en su opinión. "Un rescate por la fuerza, en primer lugar, carece de información, y en segundo lugar, probablemente representaría una amenaza para la seguridad personal de Wen Zong. Finalmente", recordó a todos, "nuestro objetivo no es enfrentarnos a la mafia de la dinastía Ming".
+"Si se puede resolver de forma rápida y segura, la negociación no es necesariamente una mala opción", insistió Ma Qianzhu en su opinión. "Un rescate por la fuerza, en primer lugar, carece de información, y en segundo lugar, probablemente representaría una amenaza para la seguridad personal de Jefe Wen. Finalmente", recordó a todos, "nuestro objetivo no es enfrentarnos a la mafia de la dinastía Ming".
 
 "Ma Qianzhu notó que el ambiente se había calmado un poco y continuó: "Estamos preparados en todos los aspectos. Ran Yao irá para investigar la situación en el lugar. Estoy seguro de que sus conocimientos en investigación criminal serán suficientes. No es un caso de asesinato en una habitación cerrada que requiera deducciones, así que no es necesario que vayan".
 
@@ -37,7 +37,7 @@ Lin Shen y He Ji llegaron y dijeron: "Yo también voy. Llévenme esa ametrallado
 
 Aquí, mientras las discusiones cesaban, todos se apresuraban a recoger el equipo. Ran Yao llevó su cámara y su cuaderno de registros de investigaciones criminales. Originalmente, también tenía herramientas para recolectar huellas dactilares, pero no eran necesarias, ya que no había archivos de huellas disponibles para Daming. El equipo de deportes llevó tres escopetas de cinco cartuchos cada una, pero no había suficientes balas, y no había tiempo para recargar con munición nueva. Cada escopeta solo tenía diez balas. Además, llevaron algunos equipos de reconocimiento: visores nocturnos, balizas inalámbricas y micrófonos. Los equipos de escucha no estaban disponibles de inmediato, pero sí pudieron conseguir grabadoras, micrófonos y cámaras. En cuanto a las radios, los granadas de humo, los gases lacrimógenos y las máscaras antigás, junto con otros artículos diversos, se colocaron en dos grandes mochilas, sin importar si eran útiles o no.
 
-Ran Yao, acompañado de Xiao Zishan y Sun Chang, inspeccionó la habitación de Wen Zong y todo el patio, y dibujó algunos planos. Sun Chang, en cuestión de unas pocas horas, se sorprendió al ver que había varios australianos más en el patio, incluso más de lo que sabía sobre el secuestro del señor Wen. Observando a estos recién llegados, que no decían nada y simplemente se movían de un lado a otro dentro de la casa y el patio, a veces subiendo escaleras, a veces agachándose en el suelo con un pequeño espejo de vidrio, y a veces usando algo parecido a un bolígrafo para garabatear en un cuaderno, pensó que probablemente eran los agentes australianos, aunque se preguntaba cómo habían llegado tan rápido.
+Ran Yao, acompañado de Xiao Zishan y Sun Chang, inspeccionó la habitación de Jefe Wen y todo el patio, y dibujó algunos planos. Sun Chang, en cuestión de unas pocas horas, se sorprendió al ver que había varios australianos más en el patio, incluso más de lo que sabía sobre el secuestro del señor Wen. Observando a estos recién llegados, que no decían nada y simplemente se movían de un lado a otro dentro de la casa y el patio, a veces subiendo escaleras, a veces agachándose en el suelo con un pequeño espejo de vidrio, y a veces usando algo parecido a un bolígrafo para garabatear en un cuaderno, pensó que probablemente eran los agentes australianos, aunque se preguntaba cómo habían llegado tan rápido.
 
 Ran Yao dedicó más de una hora a la investigación y, en general, comprendió todo el proceso del crimen.
 
@@ -53,7 +53,7 @@ Ran Yao dedicó más de una hora a la investigación y, en general, comprendió 
 
 "Luego, cerraron con candado la puerta de la habitación del punto de viaje temporal, e intentaron forzar la cerca. Se observan al menos tres o cuatro puntos en la cerca donde se intentó abrirla con herramientas de metal. Por el desgaste, parece que se utilizaron cuchillos toscos u otros objetos de metal alargados."
 
-"Finalmente, se llevaron a Wen Zong, que estaba inconsciente, y la ruta que siguieron fue directamente por la puerta del patio trasero."
+"Finalmente, se llevaron a Jefe Wen, que estaba inconsciente, y la ruta que siguieron fue directamente por la puerta del patio trasero."
 
 "Aunque las huellas no son muy evidentes, según las huellas extraídas del barro del patio y de las marcas en las paredes, se observan al menos tres grupos de huellas de diferentes tamaños. Además, hay un grupo de huellas fuera de la pared del patio, por lo que se deduce que participaron al menos cuatro personas. La estatura de los criminales oscila entre 1.55 y 1.60 metros. Llevaban consigo herramientas especiales para escalar, armas y fármacos para inducir el coma, lo que sugiere que se trataba de criminales profesionales."
 
@@ -73,18 +73,18 @@ Todos estaban un poco decepcionados. Originalmente, pensaban que con la interven
 
 "Se trata de un plan premeditado. Analizando todo el proceso del crimen, los criminales conocían muy bien la distribución de la casa. Hay más de veinte habitaciones, y solo en las habitaciones habitadas se utilizó el aroma adormecedor; en las ventanas de las habitaciones desocupadas, no encontré ningún agujero por donde pudiera haber entrado la sustancia."
 
-"El uso de la fragancia embriagadora es, obviamente, porque saben que ustedes tienen una gran capacidad de defensa. De lo contrario, sería mucho más difícil lograrlo; Wen Zong es alguien que siempre lleva consigo un spray anti-agresión, en cualquier lugar y momento."
+"El uso de la fragancia embriagadora es, obviamente, porque saben que ustedes tienen una gran capacidad de defensa. De lo contrario, sería mucho más difícil lograrlo; Jefe Wen es alguien que siempre lleva consigo un spray anti-agresión, en cualquier lugar y momento."
 
 "Además, cuando Beǐ Wěi explicó la situación, también mencionó que, hace unos días, ustedes se enfrentaron a un incidente de intrusión. Esto probablemente fue una acción de reconocimiento por parte de los criminales."
 
-"En cuanto al motivo, es un poco complicado", dijo Ran Yao, rascándose la barbilla. "Según la lista de los objetos robados, parece que el objetivo era obtener bienes materiales, pero secuestrar únicamente a Wen Zong sugiere un secuestro con un propósito específico."
+"En cuanto al motivo, es un poco complicado", dijo Ran Yao, rascándose la barbilla. "Según la lista de los objetos robados, parece que el objetivo era obtener bienes materiales, pero secuestrar únicamente a Jefe Wen sugiere un secuestro con un propósito específico."
 
-"¿Sabían ellos la identidad de Wen Zong como comerciante marítimo australiano?"
+"¿Sabían ellos la identidad de Jefe Wen como comerciante marítimo australiano?"
 
 "Creo que sí lo saben", dijo Ran Yao, señalando la lista de objetos robados. "A esta gente no solo le interesaba el dinero, sino también sus llamados productos australianos. De hecho, dejaron de lado muchos objetos antiguos de la dinastía Ming, pero se llevaron zapatos, calcetines, bolígrafos y otras baratijas modernas. Es evidente que estaban preparados".
 
 "¿Quieres decir...?"
 
-"Este asunto no es tan simple como un robo o un secuestro", dijo Ran Yao, negando con la cabeza. "Creo que secuestrar a Wen Zong podría no ser motivado por un intento de extorsión."
+"Este asunto no es tan simple como un robo o un secuestro", dijo Ran Yao, negando con la cabeza. "Creo que secuestrar a Jefe Wen podría no ser motivado por un intento de extorsión."
 
 Todos conversaron en voz baja por un rato y finalmente estuvieron de acuerdo en utilizar la ayuda de personas de la dinastía Ming para investigar. Xiao Zishan entonces le dijo a Sun Chang: "Llama al gerente de la agencia Qiwai."

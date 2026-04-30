@@ -145,9 +145,9 @@ Después del desayuno, aunque era día libre, no había mucho que hacer. Wu Duzu
 
 Al llegar a la obra, vi a Wen Desi y a varias personas del departamento de construcción trepando sobre un enorme montículo de arena, señalando y discutiendo algo.
 
-"¡Buenos días, Wen Zong! Ah, y feliz año nuevo."
+"¡Buenos días, Jefe Wen! Ah, y feliz año nuevo."
 
-"¡Feliz año nuevo!", gritó Wen Zong desde arriba. Wu De vio a Mei Wan, la jefa del departamento de construcción, y a varias personas que no conocía.
+"¡Feliz año nuevo!", gritó Jefe Wen desde arriba. Wu De vio a Mei Wan, la jefa del departamento de construcción, y a varias personas que no conocía.
 
 Wu De subió a la pila de arena junto al río. Wen Desi tenía en la mano un boceto y estaba discutiendo asuntos con el departamento de construcción. Al asomarse, vio que era el plano de la nueva estructura de construcción en Baotu Village.
 

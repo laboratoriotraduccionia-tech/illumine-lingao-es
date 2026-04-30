@@ -27,7 +27,7 @@ El algodón de árbol tiene fibras mucho más cortas que el algodón común, lo 
 
 Actualmente, se han encontrado algunos árboles de algodón dispersos a lo largo de la orilla del río Wenlan, pero nunca se había visto una plantación tan extensa. Si se desarrollara, podría ser muy rentable.
 
-"Wen Zong, me gustaría ir a recolectar algunas muestras", pidió Fashi Lu.
+"Jefe Wen, me gustaría ir a recolectar algunas muestras", pidió Fashi Lu.
 
 "Fa Gong, habla de esto con el capitán Lu", dijo Wen Desi. "Yo soy solo un miembro del equipo, no tengo autoridad para dar órdenes."
 

@@ -1,6 +1,6 @@
 ## Capítulo 16: Reunión – Mecánica y Química
 
-La discusión se centró en la fabricación de maquinaria, un campo en el que Wen Zong tiene experiencia. El tema principal fue el debate sobre qué tipo de equipos se deberían llevar. Zhan Wuya ya había ofrecido una pequeña fábrica de maquinaria y comunicó los tipos de equipos disponibles.
+La discusión se centró en la fabricación de maquinaria, un campo en el que Jefe Wen tiene experiencia. El tema principal fue el debate sobre qué tipo de equipos se deberían llevar. Zhan Wuya ya había ofrecido una pequeña fábrica de maquinaria y comunicó los tipos de equipos disponibles.
 
 "¿Estos equipos son capaces de producir los diversos tipos de maquinaria especializada que necesitamos? Hmm, por ejemplo, ¿calderas?"
 

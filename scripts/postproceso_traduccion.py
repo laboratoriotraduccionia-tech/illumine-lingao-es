@@ -20,7 +20,7 @@ FIXED_REPLACEMENTS = {
     "萧子山": "Xiao Zishan",
     "王洛宾": "Wang Luobin",
     "高举": "Gao Ju",
-    "文总": "Wen Zong",
+    "文总": "Jefe Wen",
     "高老爷": "señor Gao",
     "从天降鹰": "Cong Tian Jiang Ying",
 
@@ -125,7 +125,7 @@ GLOSSARY_NOISE_TERMS = [
     "Hainan",
     "Taiwan",
     "Danzhou",
-    "Wen Zong",
+    "Jefe Wen",
     "señor Gao",
     "Sueño en el pabellón rojo",
 ]

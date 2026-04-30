@@ -65,7 +65,7 @@ Debido al uso de maquinaria, el progreso de todo el proyecto fue muy rápido. De
 
 "Creo que este objeto fue creado para satisfacer los deseos de liderazgo de los líderes del Comité Ejecutivo. Quizás Ma Qianzhu está ansioso por gritar esas frases como 'Compañeros, buenos días, compañeros, gracias por su arduo trabajo'".
 
-"No acuses a Magong de esto; incluso si se necesita una llamada, no le corresponde a él; Wen Zong es el presidente del comité ejecutivo. Magong, como máximo, podría decir 'Por favor, inspeccione'. ¿No es él el jefe de estado mayor?"
+"No acuses a Magong de esto; incluso si se necesita una llamada, no le corresponde a él; Jefe Wen es el presidente del comité ejecutivo. Magong, como máximo, podría decir 'Por favor, inspeccione'. ¿No es él el jefe de estado mayor?"
 
 "Me parece que, en este asunto, están bastante unidos y trabajando en equipo."
 

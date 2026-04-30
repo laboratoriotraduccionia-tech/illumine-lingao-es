@@ -80,7 +80,7 @@ La Universidad Marítima y la energía de los agujeros de gusano, dos factores c
 
 En una reunión especialmente convocada para tratar asuntos relacionados con embarcaciones, fue contratado como asesor. Esto hizo que este joven, que apenas había estado graduado por unos pocos años, sintiera por primera vez que era muy valorado.
 
-"Wen Zong, esta situación es difícil de manejar", dijo Mengde después de escuchar la presentación del plan del comité ejecutivo. "No tenemos tripulación, no tenemos barcos."
+"Jefe Wen, esta situación es difícil de manejar", dijo Mengde después de escuchar la presentación del plan del comité ejecutivo. "No tenemos tripulación, no tenemos barcos."
 
 "¿Cuántas personas se necesitan?"
 

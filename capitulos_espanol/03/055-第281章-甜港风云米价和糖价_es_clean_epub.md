@@ -124,5 +124,3 @@ Chang Shide, sin rodeos, ocupó una cabina individual y le pidió a A Xiu que la
 La determinación de la latitud y longitud por parte de Lelin ha estado fluctuando constantemente, y la magnitud de sus errores es tal que resulta difícil creer que realizó esas mediciones. Algunas personas murmuraban que deberían haber contratado a un marinero local para que dirigiera el barco, en lugar de dejar que este "segundo" estuviera al mando.
 
 "Tú toma el timón", dijo Chang Shide, y con una patada, apartó a Le Lin, llamando a Zhang Dabas para que manejara la embarcación.
-
-(Fin del capítulo).

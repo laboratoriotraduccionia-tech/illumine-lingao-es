@@ -126,5 +126,3 @@ El puerto de Yulin es mucho mejor que la bahía de Sanya que está a su lado. La
 
 Nota: Esta nota se encuentra fuera del texto principal de 4000 caracteres y no se incluye en el conteo de palabras.
 "Bahe" es un término en la lengua Li que se utiliza para referirse a personas con conocimientos y sabiduría.
-
-(Fin del capítulo).

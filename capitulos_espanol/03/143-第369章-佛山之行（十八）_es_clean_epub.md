@@ -15,13 +15,13 @@ En la dinastía Daming, ser funcionario artesano era un puesto hereditario. Era 
 
 Bao Lei creció en una familia de artesanos al servicio del gobierno, una tradición familiar de fabricación de ruedas. Sin embargo, pronto descubrió que algunas personas decían que ser artesano al servicio del gobierno era prácticamente ser un esclavo de la administración. De hecho, la vida de un artesano era incluso peor que la de un esclavo; al menos, el dueño de un esclavo se aseguraba de que comiera lo suficiente para poder trabajar, mientras que los artesanos al servicio del gobierno estaban casi hambrientos.
 
-<p>Un día, Bāo Lěi huyó.</p>
+Un día, Bāo Lěi huyó.
 
 La huida de Bao Lei no fue espectacular ni llena de drama; no hubo cruce de alambradas ni saltos de vallas. Simplemente, un día, empacó algunas pertenencias de su casa, las cargó en un carrito que él mismo había construido, y se fue con su familia, sin que nadie le preguntara a dónde se dirigía. Después de un tiempo, los funcionarios encargados de investigar los casos de personas desaparecidas incluyeron a toda su familia en la lista de "personas extraviadas".
 
 "Abandonar el sistema de castas y no pagar los impuestos correspondientes es lo mismo que desertar. Sin embargo, este tipo de cosas ya no se consideraban un gran problema en la dinastía Ming. A pesar de ello, la familia de Bao Lei se sentía muy culpable, así que decidieron huir corriendo hasta la provincia de Guangdong, que para ellos era el extremo sur de la dinastía Ming. Si hubieran sabido que aún más al sur existía la isla de Qiongzhou, quizás habrían huido hasta la isla de Hainan."
 
-<p>Sin embargo, la vida de Bao Lei después de su huida no fue fácil. Descubrió que la gente de aquí no usaba mucho los vehículos, y aunque había artesanos habilidosos, los negocios eran siempre muy lentos. Afortunadamente, como Foshān era una zona comercialmente desarrollada, todavía había algunos talleres de vehículos, lo que le permitía sobrevivir a duras penas.</p>
+Sin embargo, la vida de Bao Lei después de su huida no fue fácil. Descubrió que la gente de aquí no usaba mucho los vehículos, y aunque había artesanos habilidosos, los negocios eran siempre muy lentos. Afortunadamente, como Foshān era una zona comercialmente desarrollada, todavía había algunos talleres de vehículos, lo que le permitía sobrevivir a duras penas.
 
 Actualmente, la vida de Bao Lei se había vuelto insostenible. La administración gubernamental, por alguna razón desconocida, lo había recordado de repente: en toda la provincia de Guangdong, se estaban fabricando cañones, y la demanda de carros para cañones había aumentado repentinamente. Por lo tanto, todos los artesanos de la provincia relacionados con la fabricación de carros recibieron órdenes oficiales, y toda la familia de Bao Lei sufrió las consecuencias. Él mismo y sus hijos también recibieron órdenes oficiales: su hijo mayor, que había completado su aprendizaje como artesano en una empresa en Guangzhou, también fue reclutado para ir a Foshan, en una reunión familiar inesperada.
 
@@ -102,5 +102,3 @@ Acepté llevarme a las familias de los trabajadores, para que estos pudieran tra
 "Es cierto. He oído que la tierra allí es fértil y que siempre ha sido una zona deshabitada, habitada solo por salvajes. Ir allí para establecer colonias tiene sentido. Lingao es un condado perteneciente a la dinastía Ming; desde la época de la dinastía Han, ha sido un condado perteneciente al gobierno central. ¿Cómo podrían permitir que extranjeros vengan a colonizarlo?"
 
 "Esto es difícil de decir", dijo Kuake Qiong. "He oído que ellos y la nación china comparten la misma cultura y lenguaje, y quizás ellos mismos se sienten con derecho a ejercer ese poder."
-
-(Fin del capítulo).

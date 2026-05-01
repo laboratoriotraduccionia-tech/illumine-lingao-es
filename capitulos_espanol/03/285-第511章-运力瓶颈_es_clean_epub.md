@@ -75,5 +75,3 @@ Los canales navegables del río Nan'du, que se extienden desde Chengmài hasta H
 
 Un comentario adicional de más de tres mil caracteres:
 La profundidad actual del agua en la parte baja del río Nan'du es considerable, con un promedio de 5 metros y hasta 12 metros en los lugares más profundos. Esto es resultado de la extracción de arena. Hasta el año 2000, no existía una industria de transporte a gran escala en el río Nan'du.
-
-(Fin del capítulo).

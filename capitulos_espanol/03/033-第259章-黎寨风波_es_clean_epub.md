@@ -129,5 +129,3 @@ Ahora que alguien ha sido identificado como "jin mu" (禁母), la vida de esta m
 **Nota:** El texto principal ya supera las 4000 palabras. Este párrafo no se incluye en el conteo de palabras para la facturación y no se considera parte del costo de suscripción.
 
 La información relacionada con las "prohibiciones" de la etnia Li de Hainan, incluyendo todas las costumbres y la vida social de la etnia Li mencionadas en este libro, proviene de los materiales de investigación social que el gobierno realizó después de la liberación sobre las minorías étnicas de Hainan. Muchos de los fenómenos, costumbres y hábitos mencionados en este libro, en realidad, datan de la dinastía Qing e incluso del final de la dinastía Qing, y existen pocos materiales visibles de la etnia Li de la dinastía Ming.
-
-(Fin del capítulo).

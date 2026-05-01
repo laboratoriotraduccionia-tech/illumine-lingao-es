@@ -77,7 +77,7 @@ Finalmente, fue imposible resistir la tentación de las herramientas de hierro. 
 
 Sin embargo, la esposa volvió a causarle problemas. Después de haber gastado cientos de kilogramos de arroz para comprar herramientas agrícolas, la esposa lo regañó durante más de una hora. Fú Bueri, enfurecido, golpeó a su esposa y decidió ignorarla. Por su cuenta, ordenó a alguien que recogiera todas las herramientas agrícolas de la casa, lavó a los bueyes y los alimentó con pienso de alta calidad, preparándose para trabajar a fondo tan pronto como llegaran los técnicos agrícolas.
 
-<p>Él, cada día, esperaba ansiosamente, y finalmente llegó la semilla de alto rendimiento y el técnico agrícola que tanto deseaba. Cuando un joven hombre, con la cabeza rapada, apareció solo en la entrada del pueblo, cargando un gran paquete, todo el pueblo de Meiyang se conmocionó: ¡nunca antes había llegado un "kunzei" (bandido con la cabeza rapada) a Meiyang! Las jóvenes fueron llamadas de vuelta a casa, los ancianos de la familia Fu, como el rico Fu You, se asustaron tanto que fingieron estar enfermos y se escondieron.</p>
+Él, cada día, esperaba ansiosamente, y finalmente llegó la semilla de alto rendimiento y el técnico agrícola que tanto deseaba. Cuando un joven hombre, con la cabeza rapada, apareció solo en la entrada del pueblo, cargando un gran paquete, todo el pueblo de Meiyang se conmocionó: ¡nunca antes había llegado un "kunzei" (bandido con la cabeza rapada) a Meiyang! Las jóvenes fueron llamadas de vuelta a casa, los ancianos de la familia Fu, como el rico Fu You, se asustaron tanto que fingieron estar enfermos y se escondieron.
 
 Este joven rebelde, sin saber la magnitud del alboroto que había causado, maldiciendo, sacó sus pies cubiertos de barro del camino de tierra. Un par de zapatillas deportivas estaban completamente cubiertas de lodo, formando dos grandes masas. Llevaba un uniforme "australiano" estándar: una chaqueta verde con solapas, y un sombrero colonial de bambú y cobre con una visera trasera. Era Wanlihui.
 
@@ -148,5 +148,3 @@ Fú Bueri limpió una de las habitaciones secundarias para que Wanlihui pudiera 
 La familia de Fu Bueri tenía cuatro hijos. Además de estos tres, había otro llamado Fu Fù, que era mayor. Cuando el grupo "Viajeros Temporales" reclutó nuevos miembros, enviaron a Fu Bueri.
 
 "Dicen que estuvo en la guardia de seguridad", dijo Fu Xi. "Cuando uno se alista en el ejército, se vuelve imprudente. El señor Gao esperaba recibir su paga, pero no recibió ni un centavo, lo que lo enfureció tanto que empezó a insultar a su madre". Dijo esto y soltó una risita, probablemente porque le pareció muy divertido.
-
-(Fin del capítulo).

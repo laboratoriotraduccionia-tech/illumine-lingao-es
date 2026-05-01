@@ -152,5 +152,3 @@ Considerando todo, es probable que, tan pronto como se lance al mercado el "fide
 "¿De verdad?", exclamó Mo Xiaonan, sintiéndose inmediatamente desanimado. Pensando en las recientes construcciones de nuevos pueblos de inmigrantes, la expansión de los campamentos de cuarentena, los horarios de producción continua las 24 horas en las fábricas de procesamiento de madera, cemento y ladrillos, y los pedidos recientes de ropa y artículos para el hogar recibidos por el Ministerio de la Industria Ligera, todo indicaba que lo que se decía era cierto.
 
 "Los fideos de arroz secos ya están listos para la producción, después de todo, son fáciles de almacenar y ofrecen variedad a la comida." Xūn Sùjì no estaba interesado en el ambicioso plan de "conquistar el mercado con los fideos de arroz secos de Lingao", pero los fideos eran muy populares en la cafetería. "También se pueden hacer fideos de arroz instantáneos, así, cuando la gente tenga hambre, no tendrá que ir necesariamente a la cafetería para comer."
-
-(Fin del capítulo).

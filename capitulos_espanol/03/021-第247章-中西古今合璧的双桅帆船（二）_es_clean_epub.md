@@ -29,7 +29,7 @@ Aunque a largo plazo, la tecnología de velas blandas es la tendencia en el desa
 
 "Wen Desi sacudió la cabeza: "Al menos durante los próximos 20 años, los barcos de vela seguirán siendo nuestra opción para el transporte marítimo de larga distancia, ya que no necesitan combustible. Los barcos de vapor no tienen una ventaja significativa en el transporte de grandes volúmenes de mercancías; son ineficientes y consumen mucho carbón. Para los viajes de larga distancia, es necesario resolver el problema de las estaciones de reabastecimiento de carbón en el extranjero. Cuándo podremos desarrollar turbinas de vapor dependerá de la rapidez con la que podamos avanzar en la investigación tecnológica."
 
-<p>De hecho, los barcos de vela fueron gradualmente eliminados del mercado mundial del transporte marítimo hasta la década de 1950. Antes de eso, los barcos de vela seguían siendo el mejor medio de transporte para el transporte a larga distancia de grandes volúmenes de mercancías por mar.</p>
+De hecho, los barcos de vela fueron gradualmente eliminados del mercado mundial del transporte marítimo hasta la década de 1950. Antes de eso, los barcos de vela seguían siendo el mejor medio de transporte para el transporte a larga distancia de grandes volúmenes de mercancías por mar.
 
 "Qué ganas de poder pilotar pronto nuestros buques acorazados", dijo Lè Lín, una aficionada a la marina que, aunque no entendía de técnicas de construcción naval, siempre aprovechaba para visitar los astilleros.
 
@@ -54,5 +54,3 @@ Justo cuando estaban hablando, un velero europeo de un solo mástil, con una lar
 "Usar esto como una forma de entretenimiento es, sin duda, algo peculiar", pensó Wen Desi, sintiendo una profunda desconfianza.
 
 Li Huamei, al llegar a Lingao, generó sospechas en el Comité Ejecutivo sobre sus intenciones, por lo que no se estableció una postura clara sobre cómo tratarla. Por lo tanto, solo se envió personal del departamento de asuntos exteriores para recibirla con hospitalidad. Li Huamei, aburrida en el puerto, naturalmente estableció relaciones con los marineros de Bopu. Gracias a su nombre, su apariencia atractiva, su carácter vivaz y su barco rápido, la mayoría de los marineros, a excepción de algunos oficiales de la Armada del EPL que se habían retirado, perdieron rápidamente su cautela. A menudo navegaban en su barco por las aguas fuera del puerto, supuestamente para aprender técnicas de navegación. Li Huamei, por su parte, fue generosa, compartiendo su experiencia en navegación y, de vez en cuando, demostrando sus habilidades. Rápidamente ganó popularidad y se ganó una gran cantidad de seguidores. Incluso, en cada reunión del Comité Ejecutivo, alguien hablaba bien de ella, lo que demostró el fuerte atractivo que tenía esta mujer.
-
-(Fin del capítulo).

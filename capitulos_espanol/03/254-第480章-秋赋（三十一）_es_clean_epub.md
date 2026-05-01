@@ -128,5 +128,3 @@ Actualmente, Delong Liangxing, además de tener su sede principal en Dongmen, cu
 "Así es como debe ser. Los nativos aún confían en la autoridad de la ciudad del condado."
 
 "Además, debemos crear una institución especializada", dijo Wu De, "la llamaremos 'Zhengliangju'".
-
-(Fin del capítulo).

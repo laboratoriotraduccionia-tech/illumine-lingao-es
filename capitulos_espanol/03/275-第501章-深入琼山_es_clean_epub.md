@@ -4,7 +4,7 @@ Lin Baiguang proporcionó un presupuesto bastante generoso para las actividades 
 
 ¿Cómo encontrar un lugar para establecerse, cómo recopilar información, cómo utilizar los fondos disponibles? Todo esto se enseñó en el programa de capacitación, pero si se puede aplicar en la práctica depende de esta experiencia.
 
-<p>Después de asignar las tareas, Lin Baiguang personalmente realizó una inspección preliminar del entorno tanto dentro como fuera de la ciudad, así como de los alrededores de la ciudad de la milicia de Haikou. También observó a distancia la fortaleza de Baisha y el sistema de defensa de Haikou.</p>
+Después de asignar las tareas, Lin Baiguang personalmente realizó una inspección preliminar del entorno tanto dentro como fuera de la ciudad, así como de los alrededores de la ciudad de la milicia de Haikou. También observó a distancia la fortaleza de Baisha y el sistema de defensa de Haikou.
 
 El sistema de defensa de toda la ciudad de Haikou, según los estándares de esta época, era bastante avanzado. Lin Baiguang, al seguir una carrera administrativa, tenía cierto conocimiento de obras históricas, aunque principalmente se trataba de obras como "Zizhi Tongjian", y no estaba particularmente interesado en los detalles históricos. Después del "Día D", debido a las necesidades de su trabajo, comenzó a estudiar este tipo de temas y tenía cierto conocimiento de la historia militar de la dinastía Ming.
 
@@ -83,5 +83,3 @@ Este es un método extremadamente seguro, aunque, desde el punto de vista de Lin
 La estación de inteligencia de Qiongzhou comenzó a organizarse rápidamente. Lin Baiguang no tenía intención de ser el gerente, ya que no entendía nada de negocios de granos, por lo que el Comité de Inteligencia lo trasladó desde la industria azucarera de Leizhou. El dueño de la tienda de arroz Dachang, Zhu Fushēng, estuvo encantado de recomendar a algunos de sus empleados para que fueran gerente y ayudante, y expresó su disposición a establecer relaciones comerciales con esta nueva empresa, "Wanfeng Liangxing".
 
 El gerente y el resto del personal que llegaron desde Dàchāng no participan en el trabajo de inteligencia. El trabajo de inteligencia es realizado por estudiantes transferidos del programa de entrenamiento de Lingao, quienes desempeñan funciones de ayudantes y sirvientes. Esta estructura de dos líneas facilita la gestión y la confidencialidad.
-
-(Fin del capítulo).

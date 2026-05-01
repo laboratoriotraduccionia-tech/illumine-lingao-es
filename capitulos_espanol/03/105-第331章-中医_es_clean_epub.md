@@ -143,5 +143,3 @@ Fusi Nan, aunque se hacía llamar el cuarto hijo, en realidad era el segundo en 
 "No tengo dinero para estudiar…"
 
 "Mmm, ¿te gustaría ser mi aprendiz? En el futuro, también podrías ser médico."
-
-(Fin del capítulo).

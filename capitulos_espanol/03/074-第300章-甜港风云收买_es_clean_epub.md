@@ -135,5 +135,3 @@ Chen Tianxiong pensó: "Tienes razón, has considerado todo cuidadosamente."
 "De acuerdo, entonces no los obligaré." Chen Tianxiong, sin poder evitarlo, sintió una sincera admiración por este antiguo intelectual.
 
 "Sin embargo, tu situación actual es precaria, te preocupan la comida y el alojamiento, y no puedes molestarse a la señora Liu todos los días."
-
-(Fin del capítulo).

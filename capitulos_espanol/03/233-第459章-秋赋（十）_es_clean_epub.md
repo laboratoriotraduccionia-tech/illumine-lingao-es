@@ -65,5 +65,3 @@ Sin embargo, en la ciudad del condado, tenía demasiados conocidos, y entre los 
 Para su gran sorpresa, encontró en el salón ancestral a los hermanos Lai, que originalmente vivían en su casa. Desde que la familia Gou fue destruida, los dos hermanos perdieron sus medios de vida. Antes, él trabajaba para la familia Gou y, sin duda, tenía cierta actitud de prepotencia. Después de su caída, fueron abandonados por todos, y nadie quiso cuidarlos. Los dos hermanos eran desde pequeños unos holgazanes que no sabían cómo ganarse la vida y tampoco estaban dispuestos a trabajar duro, por lo que terminaron convirtiéndose en mendigos.
 
 Tres personas, el amo y sus sirvientes, se encontraron y, de inmediato, rompieron a llorar. Normalmente, Gou Chengyuan y estos dos hermanos no tenían mucha relación, pero ahora, al ser todos desgraciados, sintieron una mayor cercanía. Los hermanos Lai, que no tenían mucha experiencia, al ver que su amo había regresado, insistieron en que el joven señor debía vengarse.
-
-(Fin del capítulo).

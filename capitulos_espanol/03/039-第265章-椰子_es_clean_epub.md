@@ -82,8 +82,6 @@ Al caer la tarde, la mayoría de las personas terminaron su trabajo y acamparon 
 
 "¡Cállate, campesino!", con la reprimenda de la persona que había sido despertada, la voz del cantante del siglo XXI se silenció, dejando solo el sonido rítmico de la respiración y el sonido de las olas.
 
-Unas líneas de texto en Markdown.
-
 Una sombra se deslizó silenciosamente desde la popa del barco Hangzhou, y rápidamente escaneó a los guardias en la cubierta. Debería haber otro en la parte superior del mástil, pero él no podía verlo desde allí. Esperó en silencio por un momento, y luego, sin hacer ruido, descendió por la cuerda del ancla desde la proa hasta el agua. Sus movimientos fueron ágiles, casi sin levantar una sola gota de agua, y sin emitir ningún sonido.
 
 Después de un momento, una sombra emergió de las olas en la popa del barco Zhenhai, acercándose sigilosamente a la parte trasera. Observó la costa y la posición de los guardias a bordo, confirmando que estaba en un punto ciego, y sacó algo de su cuerpo, lanzándolo hacia adelante.
@@ -117,5 +115,3 @@ Sobre la cubierta roja, había una tapa redonda. Li Huamei intentó tirar de ell
 Nota: Este párrafo no se incluye en el conteo de 4000 caracteres para la facturación y, por lo tanto, no genera costos adicionales.
 
 El dispositivo para encender fuego que utiliza Li Huamei es el que se usaba en la antigüedad, comúnmente conocido como "huozhez". En realidad, es una mecha lenta que se encuentra dentro de un contenedor tubular.
-
-(Fin del capítulo).

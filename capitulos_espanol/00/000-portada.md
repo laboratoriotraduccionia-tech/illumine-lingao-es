@@ -1,5 +1,7 @@
-# El amanecer de Lingao
+# Información de la edición
 
-## Traducción no oficial al español
+## El amanecer de Lingao
+
+Traducción no oficial al español
 
 Autor original: 吹牛者 (Chuī Niú Zhě)

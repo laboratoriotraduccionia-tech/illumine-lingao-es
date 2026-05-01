@@ -92,5 +92,3 @@ En su visión, en el mundo futuro, solo el grupo de viajeros temporales tendría
 ……
 
 "Esto lo hablaremos más adelante", dijo Ma Qianzhu rápidamente, volviendo a enfocar la conversación, "Hablemos de cuántos equipos especializados el Ministerio de Industria de la Máquina puede proporcionar a cada departamento".
-
-(Fin del capítulo).

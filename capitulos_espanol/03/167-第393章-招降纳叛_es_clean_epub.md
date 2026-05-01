@@ -138,5 +138,3 @@ Ran Yao explicó brevemente las intenciones del comité ejecutivo.
 "¿Qué, ya estás pensando en cómo empezar?", preguntó Chang.
 
 "Es muy difícil", respondió Lin Baiguang con seriedad. "No tenemos ninguna 'relación' que podamos aprovechar dentro de los grupos de piratas. Hasta ahora, la única conexión que tenemos es la de Zhang Youfu, pero él solo tiene contactos con los miembros periféricos de los piratas, y no podemos determinar si esa persona es confiable".
-
-(Fin del capítulo).

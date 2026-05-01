@@ -142,8 +142,6 @@ La muestra que recolectó era una arcilla caolinita de tipo coque, y Cui Yunhong
 
 El carbón marrón es el tipo de carbón con el menor grado de carbonización. Es un carbón de bajo nivel que se encuentra entre la turba y el carbón bituminoso. Su poder calorífico es relativamente bajo, por lo que no puede utilizarse como coque en la producción de acero, pero aún puede servir como combustible o como materia prima para fertilizantes. Si se pudiera desarrollar, sería un recurso muy valioso.
 
-<p>Esta exploración en campo ha dado resultados bastante buenos. Cui Yunhong estaba un poco emocionada y sacó los instrumentos y el cuaderno de su mochila, y decidió comenzar la investigación de campo allí mismo.</p>
+Esta exploración en campo ha dado resultados bastante buenos. Cui Yunhong estaba un poco emocionada y sacó los instrumentos y el cuaderno de su mochila, y decidió comenzar la investigación de campo allí mismo.
 
 "Bái Guóshì estaba terriblemente nervioso. Tenía en la mano una pistola Remington y miraba a su alrededor, temiendo que de repente apareciera un nativo en algún lugar. Nunca había matado a nadie, y no quería empezar aquí."
-
-(Fin del capítulo).

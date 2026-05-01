@@ -81,5 +81,3 @@ Entre las colinas y las orillas de los ríos, hay pequeñas áreas planas, mucha
 "El guía vio que ellos no se apresuraban en el camino, y que cada poco tiempo se detenían para dibujar o escribir, y que algunas personas llevaban palos, cajas y otras cosas, moviéndose por todas partes, sin saber qué estaban haciendo. Se sintió extraño y le dijo a Cui Yunhong: 'Señor, a este ritmo, tardarán varios días en llegar a Lizhai'."
 
 Cui Yunhong solo pudo inventar una excusa, diciendo que estaban buscando hierbas medicinales. El joven no creyó mucho esa historia, pero al menos, en lugar de trabajar en la pesada atmósfera de la posada, salir a caminar era un descanso raro y agradable. Así que, después de un momento, dejó de preguntar y decidió caminar un poco más.
-
-(Fin del capítulo).

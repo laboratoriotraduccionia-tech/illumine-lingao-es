@@ -103,5 +103,3 @@ En ese momento, He Ming irrumpió en la sala, serio.
 Le entregó un informe.
 
 —Es del Grupo de Seguridad.
-
-**(Fin del capítulo)**

@@ -136,5 +136,3 @@ A la mañana siguiente, cuando apenas amanecía, Liu San y Huang Tianyu se levan
 "También lo robaste de tu tío Li, ¿verdad?".
 
 "¡No es así! Fueron personas contratadas por mi padre quienes me golpearon."
-
-(Fin del capítulo).

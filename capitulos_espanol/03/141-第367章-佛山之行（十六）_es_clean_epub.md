@@ -102,5 +102,3 @@ Yang Shixiang sintió que ahora tenía un importante apoyo. Aunque Runshichang h
 "Liu San" accedió de buen grado. El comité ejecutivo aprueba este tipo de acciones para establecer relaciones con los nativos locales, que implican reverencias y gestos de sumisión, siempre y cuando la otra parte sea una persona de utilidad.
 
 "Liu Xian," Yang Shixiang hizo una reverencia y cambió la forma de dirigirse a él, "en cuanto al 'biyunshan' y el 'xingjunshan', creo que la explicación es bastante acertada. Sin embargo, una farmacia no puede depender solo de una 'solución mágica' para sobrevivir. Me pregunto qué otras ideas tiene Liu Xian."
-
-(Fin del capítulo).

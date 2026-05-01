@@ -82,5 +82,3 @@ Esta es una carta que no tiene encabezado ni despedida. Primero, felicita a quie
 Su tarea fue modificada para que se encargara de supervisar a los otros capitanes dentro de la unidad naval donde se encontraba el barco número 4 de Yutu. Los informes debían presentarse una vez al mes, pero en situaciones de emergencia, se podían presentar en cualquier momento. La carta enfatizaba que los informes se enviarían por correo, y se adjuntó la dirección postal: apartado de correos número 119 de la oficina central de correos de Bairen.
 
 A bordo de su propio barco, ¿quiénes son los miembros del grupo de diez? Según el tamaño del Yutu 4, la tripulación debería estar entre 12 y 18 personas, por lo que debe haber al menos un miembro del grupo. Ruan Xiaowu estaba seguro de que podría identificarlos, pero después de pensarlo detenidamente, sintió que era mejor no hacerlo.
-
-(Fin del capítulo).

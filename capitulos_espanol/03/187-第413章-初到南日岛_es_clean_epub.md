@@ -157,5 +157,3 @@ Tras seguir a Shi Shisi durante un rato, apareció una puerta de辕 en el camino
 "No", respondió Lin Baiguang con franqueza. "¿Este caballero piensa registrar a alguien?"
 
 "¡No, no es necesario!", exclamó Shi Shisi rápidamente, acercándose para hablar con la persona. Había estado acompañando al grupo y sabía que el gerente Lin no tenía armas y estaba completamente desprotegido.
-
-(Fin del capítulo).

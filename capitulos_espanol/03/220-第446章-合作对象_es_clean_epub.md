@@ -101,5 +101,3 @@ La noche siguiente, en la finca de Zhang Youfu, se llevó a cabo una reunión se
 "…Como ustedes son nuevos en esta región, y no conocen mucho sobre la dinastía Daming ni sobre la situación de los condados aquí. Piénselo: estos campesinos no han estado involucrados en la administración del condado por mucho tiempo, y sus relaciones son muy estrechas. Si, aprovechándose de la influencia de los *viajeros temporales*, causan problemas y perjudican a la gente, eso dañaría gravemente la reputación de los *viajeros temporales*."
 
 Wang Zhaomin sabía que los australianos daban mucha importancia a la reputación, así que decidió intentar impresionarlos por ese lado.
-
-(Fin del capítulo).

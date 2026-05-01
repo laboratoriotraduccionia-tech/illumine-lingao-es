@@ -25,7 +25,7 @@ Liu San sonrió por dentro. Ahora, la cuestión de "invertir" se había hecho re
 
 La empresa "Gao Guang Chuangxing", que transportaba mercancías en la ruta entre Lingao y Guangzhou, aprovechó el espacio disponible en los barcos para establecer vuelos regulares, ofreciendo servicios de transporte de pasajeros y mercancías entre Guangzhou y Lingao. Los precios de los billetes eran muy bajos, y aunque las condiciones eran modestas, atrajeron a algunos comerciantes y viajeros que se desplazaban entre Lingao y Guangzhou; sin embargo, este negocio era pequeño, ya que el número de pasajeros que viajaban entre ambas ciudades era bastante limitado.
 
-<p>Observando su manera de actuar, se notaba que era eficiente y directo, sin rodeos, lo cual es un fenómeno positivo. Liu Sancheng aprovechó la oportunidad para sugerir: "¿Por qué no aprovechamos para ir a Foshan también?"</p>
+Observando su manera de actuar, se notaba que era eficiente y directo, sin rodeos, lo cual es un fenómeno positivo. Liu Sancheng aprovechó la oportunidad para sugerir: "¿Por qué no aprovechamos para ir a Foshan también?"
 
 "¿Qué hacen en Foshān? ¡Estos oportunistas!"
 
@@ -45,7 +45,7 @@ Liu San quería aprovechar esta oportunidad para ingresar a la empresa farmacéu
 
 Liu San regresó a su casa y rápidamente montó en bicicleta para ir a Bairencheng. Allí, informó a Shi Niaoren. Shi Niaoren elogió mucho su trabajo, diciendo que su eficiencia era realmente alta, aunque quizás un poco excesiva. Aún no se había aprobado su solicitud de fondos, y si salía mañana, probablemente no tendría de dónde sacar el dinero. Además, este asunto también debía ser comunicado al comité de asuntos exteriores y comerciales, que es responsable del comercio, ya que, en teoría, esto está dentro de su ámbito de competencia.
 
-<p>Shi Niaoren estaba por todas partes, haciendo llamadas telefónicas y entregando documentos. Liu San estaba sentado solo en la oficina, aburrido, observando a las enfermeras que pasaban por el pasillo. Una hora después, Shi Niaoren regresó.</p>
+Shi Niaoren estaba por todas partes, haciendo llamadas telefónicas y entregando documentos. Liu San estaba sentado solo en la oficina, aburrido, observando a las enfermeras que pasaban por el pasillo. Una hora después, Shi Niaoren regresó.
 
 "Todo está resuelto", dijo Shi Niaoren con cierta emoción, colocando la carpeta de documentos sobre la mesa. "El Comité Ejecutivo y la Comisión de Comercio Exterior apoyan tu plan. Además de los cuatrocientos tael de plata que se te asignaron según la solicitud, se te asignarán cien tael adicionales. Además, la Comisión de Planificación accedió a proporcionarte algunos medicamentos como muestras: diez cajas de cada uno".
 
@@ -83,5 +83,3 @@ Las operaciones del Banco Delong son similares a las de las casas de cambio de �
 El banco Delong, bajo el pretexto de la gestión de las transacciones de cuentas corporativas, supervisaba eficazmente el flujo de fondos de la estación de Guangzhou y también eliminaba la necesidad de transportar grandes sumas de dinero entre Guangzhou y Lingao; simplemente era necesario realizar una transferencia en la cuenta bancaria y notificarlo a través de un informe eléctrico.
 
 Para que la empresa Debuchangshi pudiera comenzar sus operaciones lo más rápido posible, Meng Xian inicialmente implementó un sistema de remesas simple y básico en el delta del río Perla. Este era también el método de operación común utilizado por las casas de cambio de Shanxi durante la dinastía Qing: en áreas con un alto flujo de dinero, se buscaban comerciantes grandes y sólidos, con una actividad comercial frecuente, para establecer alianzas de remesas. Los giros emitidos por Debuchangshi podían ser canjeados en estas empresas, y viceversa, las alianzas emitían giros que Debuchangshi aceptaba en Guangzhou. Entre las alianzas, se realizaba una conciliación de cuentas mensual para liquidar todas las transacciones a través de remesas.
-
-(Fin del capítulo).

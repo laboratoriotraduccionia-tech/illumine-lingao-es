@@ -74,5 +74,3 @@ Aquellas que no fueron seleccionadas tampoco se quedarían sin propósito; como 
 La llegada de la mujer no causó una gran conmoción; después de la intensa actividad y el revuelo de las primeras etapas, la gente se había vuelto un poco indiferente al asunto. Incluso las discusiones sobre esto en los foros en línea se habían enfriado.
 
 Este grupo de mujeres fue directamente tomado por la oficina administrativa. Se estableció un campamento de cuarentena especial, completamente aislado de otras áreas.
-
-(Fin del capítulo).

@@ -73,5 +73,3 @@ Los mineros y los soldados de la guardia, viajaron a Qingshan a bordo del tercer
 Además, la empresa minera de Qionghai envió un pelotón de ingenieros militares liderado personalmente por Pan Da, junto con cientos de barriles de pólvora. Para completar el desarrollo de la mina y la construcción de carreteras en un corto período de tiempo, era imposible hacerlo sin la ayuda de explosivos.
 
 Los mineros, por supuesto, no sabían que estaban durmiendo en un enorme depósito de explosivos en Xiao Zishan. Habían firmado un contrato, ahora llevaban nuevos uniformes de trabajo y descansaban sobre grandes maletas que les habían proporcionado, llenas de artículos de uso personal. Además, en cajas grandes se transportaban armas y herramientas.
-
-(Fin del capítulo).

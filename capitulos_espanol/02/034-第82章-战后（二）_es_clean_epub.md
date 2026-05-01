@@ -1,5 +1,4 @@
-## Capítulo 78: Después de la guerra (II)
-
+## Capítulo 78: Después de la batalla (II)
 
 "Espero que no quieran nuestras vidas."
 

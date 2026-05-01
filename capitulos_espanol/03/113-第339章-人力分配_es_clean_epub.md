@@ -96,5 +96,3 @@ Después de asignar al personal, la notificación de que el equipo de aprendices
 "El procedimiento es el mismo", dijo Bai Yu. "En cuanto al aprendizaje de los aspectos operativos, ustedes son responsables de eso."
 
 "¿Esto significa que habrá una doble dirección? Los requisitos para los estudiantes de la academia militar son diferentes a los de los demás."
-
-(Fin del capítulo).

@@ -103,5 +103,3 @@ Sin embargo, el sentimiento de repulsión por haber sido extorsionado siempre pe
 "Cuando se habla de la cosecha, el ánimo de Liu Youren mejora ligeramente: ¡Afortunadamente, la cosecha de este año no ha sido mala!
 
 La primera bendición fue que el clima ha sido favorable y no ha habido grandes desastres. La segunda es que, desde que se unió a la organización Tiandi Hui, el jefe Yun ha hecho todo lo posible para ayudar a su familia con la agricultura. Algunos de sus métodos le parecen bastante comunes, pero otros son completamente inesperados. Ahora, los campos de arroz ya están inundados y se están secando. Aunque Liu Youren es un terrateniente, es muy experto en la agricultura, y al ver las espigas de arroz de este año, nota que no solo son numerosas, sino que también son generalmente muy pesadas. Recoge una espiga al azar y cuenta, y observa que no solo tiene muchas más granos de lo habitual, sino que también hay muy pocos granos vacíos."
-
-(Fin del capítulo).

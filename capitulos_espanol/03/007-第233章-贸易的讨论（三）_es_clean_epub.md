@@ -75,5 +75,3 @@ La tecnología de fabricación de motores diésel de un solo cilindro es la más
 "Wu Nanhai inmediatamente expresó su apoyo: "Esto es excelente. Tengo muchos pequeños equipos agrícolas aquí, pero no puedo usarlos porque no tienen motores".
 
 Wang Luobin continuó: "Nuestros motores diésel de un solo cilindro, aunque actualmente no pueden competir con los motores diésel convencionales en términos de potencia, son generalmente suficientes para su uso. Si hay escasez de electricidad, también se pueden utilizar para alimentar equipos industriales. Los equipos de las fábricas anteriores solían ser impulsados por máquinas de vapor u otras máquinas de energía. Teniendo en cuenta que la fabricación de motores eléctricos propios presenta cierta dificultad, es probable que las fábricas necesiten utilizar máquinas de vapor o motores diésel durante un período prolongado en el futuro."
-
-(Fin del capítulo).

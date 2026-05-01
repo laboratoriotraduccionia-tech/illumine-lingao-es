@@ -107,5 +107,3 @@ En la antigua sociedad, la injusticia era rampante. Sin embargo, esta joven es b
 "Soy Qianqian, una sirvienta. Saludo a los dos señores." La joven hizo una reverencia.
 
 "¡Por favor, atienda bien a los dos señores!", Yang Shixiang le dijo esto y luego se levantó y se fue.
-
-(Fin del capítulo).

@@ -32,8 +32,6 @@ Xiao Hu, que trabajaba en una tienda de sombrillas, tenía cierta base debido a 
 
 Probablemente, debido a su discapacidad física, Xiao Hu tenía un deseo muy fuerte de ascender. Por supuesto, en el sector de "liang cha" (inspección de suministros), las posibilidades de ascenso eran prácticamente inexistentes. No importaba cuán bueno fuera tu desempeño, todos eran simplemente aduladores de "hu fang shu ban". El objetivo de Xiao Hu era convertirse en el adulador más importante, es decir, en un confidente de Chen Minggang.
 
-Aquí está la traducción del fragmento:
-
 Chen Minggang confiaba más en sus discípulos. Sin embargo, de entre ellos, solo sabía que Zhou Qi era quien tenía el potencial de heredar su legado; los demás eran simplemente ayudantes. El objetivo de Xiaohu, del taller de sombrillas, era superar a Zhou Qi.
 
 周七 desde que era pequeño había trabajado incansablemente para Chen Minggang, y el vínculo entre maestro y discípulo era muy profundo. No era algo que se pudiera destruir fácilmente con unas pocas palabras maliciosas. Desde que Chen Minggang tomó a Qiuhong como concubina, Xiaohu supo que su oportunidad había llegado, pero él era muy astuto; en el día a día, solo dejaba caer sutilmente comentarios negativos en momentos clave, que parecían inocentes, pero que Chen Minggang interpretaba con intenciones ocultas. Además, Zhou Qi no estaba muy contento a su lado, y al no tener esperanzas de ocupar el puesto de asistente de Chang Shide, a veces dejaba escapar algunas quejas. Algunas de estas palabras llegaron a oídos de Chen Minggang. Poco a poco, Chen Minggang comenzó a desconfiar de este discípulo.
@@ -71,5 +69,3 @@ Claro, también pensó en halagar a los australianos, pero Zhou Qi pensaba: es d
 Para ello, durante esta medición de tierras, él se esforzó por atender a los grandes propietarios. La cantidad que su maestro le había encomendado siempre se fijaba como un límite inferior. Él pensaba que, como el límite era establecido por su maestro, si él lograba alcanzarlo, eso sería suficiente, y su maestro no tendría motivos para quejarse. Además, recibió numerosos regalos como muestra de agradecimiento por parte de los grandes propietarios.
 
 "Zhou Qi vio que la mayor parte del trabajo ya estaba hecho y que las tareas eran fáciles de realizar. Estaba contento, y además, ahora tenía algo de dinero en sus manos. Decidió ir a Dongmen para distraerse: comer, beber, y contratar a una joven para que le ayudara a relajarse y aliviar el cansancio de estos días."
-
-(Fin del capítulo).

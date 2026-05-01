@@ -96,5 +96,3 @@ Wen Desi se encontró con un problema. Era cierto que el departamento de recurso
 "Está bien", dijo Liu Zheng, sabiendo que la posibilidad de conseguir un barco nuevo era pequeña. "Sin embargo, espero que la marina nos ayude a capacitar a nuestro personal en conocimientos básicos de navegación, para que, en el futuro, no estemos completamente indefensos cuando tengamos barcos disponibles."
 
 "Todo esto lo asumo yo", respondió Li Haiping con entusiasmo.
-
-(Fin del capítulo).

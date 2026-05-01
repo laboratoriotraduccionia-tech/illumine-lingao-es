@@ -89,5 +89,3 @@ Mientras estaba cerrando los ojos para descansar, Sao Ye entró sigilosamente y 
 "Sí", respondió Sao Ye y se retiró.
 
 "Espera", dijo Li Luoyu, deteniendo a la persona. "Vamos a la residencia interior, llamemos a la tía Jiang".
-
-(Fin del capítulo).

@@ -81,5 +81,3 @@ Dos barcos de pesca regresaron desde Juhua Yu y, al ver que se estaba llevando a
 "Respuesta: 'Un saludo a todos los valientes miembros de la Armada'.", dijo Xi Yazhou.
 
 Dos barcos de pesca, uno delante y otro detrás, escoltaban al "Da Jing" mientras se dirigían a Lingao. Detrás de ellos, aún se podía ver la humareda negra de la flota de piratas de Juhua Yu.
-
-(Fin del capítulo).

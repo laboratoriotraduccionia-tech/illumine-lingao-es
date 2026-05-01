@@ -131,5 +131,3 @@ Chen Tianxiong se culpó a sí mismo por no haber prestado suficiente atención 
 "Chang Shide también dijo: "Es cierto. En este asunto, él fue quien más esfuerzo dedicó, y no podemos dejarlo sin consecuencias. De lo contrario, ¿cómo podrían los demás vernos?"
 
 "Tengo tres propuestas", dijo Chen Tianxiong. "Primero, la Asociación de la Industria Azucarera debe organizar un gran funeral público para honrar su memoria. Todos los miembros de la asociación deben participar para mostrar el máximo respeto. Segundo, el pago de siete mil taels de plata para el azúcar ya se ha realizado, y el recibo debe entregársele lo antes posible para consolar a su esposa. Tercero, debemos seleccionar a un empleado leal y confiable de su propia empresa para que la gestione en su lugar. La Asociación de la Industria Azucarera será responsable de supervisar la gestión."
-
-(Fin del capítulo).

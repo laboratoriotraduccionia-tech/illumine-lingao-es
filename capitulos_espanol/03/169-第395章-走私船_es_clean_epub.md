@@ -186,5 +186,3 @@ En la cabina se encontraron muchos suministros, incluyendo muchas latas y bebida
 "No hay problema, miren este botiquín de emergencia."
 
 Zhou Weishen abrió la caja, un kit de emergencia para embarcaciones con una excelente capacidad de sellado, completamente impermeable. Dentro, se encontraban alimentos, medicamentos y bengalas, elementos esenciales en caso de naufragio. La fecha de caducidad indicaba que el tiempo al que habían viajado era el mismo que el de su partida.
-
-(Fin del capítulo).

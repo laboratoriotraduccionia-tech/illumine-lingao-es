@@ -68,5 +68,3 @@ En la región de Foshān, hay varias fábricas que trabajan para la corte, fundi
 "La propuesta de establecer una fundición en Foshan, por supuesto que la apruebo", dijo Ma Yangchun. Este alemán vestía con ropas de la dinastía Ming y llevaba un turbante, y continuó: "El presidente me ha indicado que las armas de fuego son lo que más preocupa a la dinastía Ming. Siempre y cuando podamos satisfacer las necesidades del emperador y los funcionarios en este ámbito, nuestra labor de evangelización será aún más exitosa".
 
 "El padre tiene razón", dijo Li Luo. "El padre Lu y el padre Tang entraron a la capital de esa manera".
-
-(Fin del capítulo).

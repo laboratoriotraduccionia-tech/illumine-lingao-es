@@ -225,5 +225,3 @@ Lin Baiguang tomó una decisión firme: los alimentos, absolutamente no se podí
 Solo utilizando la palabra "拖" (tuō) se pudo detener a la flota de transporte de grano en Lingao. De esta manera, incluso si su intento de rebelión fracasaba, al menos el grupo de viajeros temporales podría obtener doce grandes barcos y varios cientos de personas.
 
 ⃀Sin embargo, de esta manera, la situación de uno se vuelve mucho más peligrosa. Lin Baiguang estimó que, después de que Zhucailao no pudiera obtener alimentos, su actitud podría ser tolerada durante unos días, pero con el tiempo, uno podría perder la vida, y no solo eso, sino que Zhucailao, enfurecido y avergonzado, podría atacar a Min'an, o incluso lanzar un ataque total contra Lingao.
-
-(Fin del capítulo).

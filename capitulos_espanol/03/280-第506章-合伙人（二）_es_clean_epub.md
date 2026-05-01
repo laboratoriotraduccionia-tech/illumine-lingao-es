@@ -59,7 +59,7 @@ Originalmente, Ha Shuzu siempre había estado preocupado. La situación en la qu
 
 "¿Acaso mi querido hermano no lo sabrá en Guangzhou? La fama de los productos australianos es tan grande que incluso en un lugar tan remoto como Qiongzhou, se oye hablar de ello. Un simple espejo de cristal vale más que la mitad de la fortuna de su hermano." Hai Shuzhu expresó su entusiasmo, "Si no fuera por la insistencia de su madre y su esposa, su hermano realmente quería ir a Lingao para ver el mundo y echar un vistazo a cómo son los australianos, y cómo han logrado crear tantas cosas ingeniosas." Dicho esto, suspiró con envidia.
 
-<p>Parece que esta persona no solo es muy honesta, sino que también valora mucho los lazos familiares. Lin Baiguang sintió un poco más de confianza en su capacidad para controlar realmente al grupo de viajeros temporales. Después de todo, el grupo pronto necesitará algunos símbolos que demuestren su compromiso con la corrección política.</p>
+Parece que esta persona no solo es muy honesta, sino que también valora mucho los lazos familiares. Lin Baiguang sintió un poco más de confianza en su capacidad para controlar realmente al grupo de viajeros temporales. Después de todo, el grupo pronto necesitará algunos símbolos que demuestren su compromiso con la corrección política.
 
 "Conozco a algunos comerciantes que hacen negocios con los australianos y que tienen una buena relación con ellos. Si usted no puede ir, puedo enviar a alguien en su lugar. Aseguraré que el barco regrese sin problemas", dijo Lin Baiguang. Ahora que ya han establecido una relación, no es necesario que él mismo vaya. Simplemente puedo enviar el barco.
 
@@ -96,4 +96,3 @@ Haiji, por supuesto, asintió a todo, aunque estos australianos, a pesar de que 
 Lo siguiente corresponde a un contenido que supera las 3000 palabras y no se cobrará:
 Nota: Cometí un error. La mina de carbón Chang en Haikou, en la antigüedad, realmente pertenecía al territorio del condado de Ding'an. Además, estaba en una zona interior, a 120 millas de la región de Haikou. El desarrollo por parte del grupo de viajeros temporales sería bastante difícil. Por lo tanto, aquí se asume que, en el plano de la historia, cerca de Haikou hay pequeñas minas de carbón que podrían ser explotadas.
 
-(Fin del capítulo)

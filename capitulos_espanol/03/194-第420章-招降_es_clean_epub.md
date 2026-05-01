@@ -96,5 +96,3 @@ Shi Shisi y los demás se levantaron rápidamente. Vieron que el líder, que apa
 "Este es el primer líder tan sencillo que todos han visto, y algunos están un poco desorientados."
 
 Shi Shisi tuvo más tratos con el grupo de viajeros temporales. Con un movimiento rápido, hizo una reverencia y dijo algunas frases como "He oído hablar mucho de su reputación, deseo unirme a ustedes, y en el futuro trabajaremos juntos y nos ayudaremos mutuamente", palabras típicas para ganarse el favor. Después de decir esto, presentó los libros que había traído consigo: eran listas de nombres y registros de barcos, alimentos, armas y pólvora, transcritos durante los últimos días en el mar, como muestra de buena voluntad.
-
-(Fin del capítulo).

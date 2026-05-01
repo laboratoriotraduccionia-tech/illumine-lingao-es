@@ -139,5 +139,3 @@ Cuarenta mil taels solo pueden comprar dieciséis mil shi de azúcar, lo cual es
 "Es como transportar grano y plata desde Guangzhou", dijo Wen Desi, "el proceso es demasiado lento. Un barco a vela tarda de seis a siete días en hacer el viaje de ida y vuelta. Cuando llega a Leizhou, ya es demasiado tarde".
 
 "Estoy de acuerdo con la opinión de Jefe Wen: ¡hay que transportar el dinero!", dijo Ma Qianzhu, frunciendo el ceño. "Si no transportamos el dinero, la fábrica de Huannan será eliminada. La excelente situación que se ha logrado en Leizhou desaparecerá."
-
-(Fin del capítulo).

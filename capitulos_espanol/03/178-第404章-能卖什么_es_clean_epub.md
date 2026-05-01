@@ -146,5 +146,3 @@ Apenas terminaban de hablar, cuando se escuchó un fuerte ruido proveniente de u
 "La razón por la que vine a la fábrica de alimentos es por cosas como estas", dijo Huang Tianyu mientras desmontaba la caja de cambios. Sacó varios engranajes dañados de su interior y cuidadosamente retiró los dientes rotos, comparándolos uno por uno. Luego, le dijo algunas cosas a los aprendices, quienes rápidamente sacaron unos nuevos de un armario en la esquina.
 
 "Estos engranajes, que son de producción de Lingao, son de una calidad excepcional", dijo Huang Tianyu. "Necesito estar aquí constantemente para supervisar la situación y poder realizar mejoras."
-
-(Fin del capítulo).

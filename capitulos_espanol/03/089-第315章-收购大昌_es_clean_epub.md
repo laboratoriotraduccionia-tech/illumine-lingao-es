@@ -131,5 +131,3 @@ Cuando la nube se disipó y la lluvia cesó, Wen Tong, completamente agotado, es
 
 "¿Después se convirtió en pirata?", bromeó Jefe Wen, pensando en su origen. No se dio cuenta de que la cara de Ajú ya se había puesto pálida. Ella, forzando una sonrisa, dijo:
 "Señor Gao, usted se está burlando. Sus padres eran pobres, y desde pequeña fue vendida a una familia rica para ser sirvienta. Recientemente, no tiene dónde ir y quiere encontrar un lugar para servir a otra familia. Es de buen aspecto, tiene buen carácter, y sabe de todo tipo de labores…"
-
-(Fin del capítulo).

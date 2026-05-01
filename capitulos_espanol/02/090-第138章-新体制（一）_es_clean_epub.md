@@ -71,8 +71,6 @@ No es necesario decir que los trabajadores que tienen un plan de pagos a plazos 
 
 "Es correcto", asintió Wu Dezheng. "Tenemos que hacer que este puesto sea difícil de conseguir, así habrá competencia."
 
-Aquí está la traducción del fragmento de Markdown:
-
 Él propuso las siguientes condiciones básicas para que los empleados pudieran presentar su solicitud:
 
 1. Personas que están dispuestas a servir a los viajeros temporales y que poseen habilidades especializadas reconocidas por estos viajeros. Por ejemplo, artesanos, intelectuales, militares, etc.

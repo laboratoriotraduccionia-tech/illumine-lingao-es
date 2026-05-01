@@ -97,5 +97,3 @@ En el lago de arrecife, efectivamente había bastantes tiburones, y de muchas es
 Bai Guoshi, debido a que tenía la tarea de supervisar la extracción de guano, se vio obligado a bajar del barco. Conteniendo la respiración y con gran cautela, cruzó el puente flotante y llegó a la isla. Este lugar era exactamente como lo había aprendido en geografía sobre la isla de Dongsha.
 
 La isla tiene un relieve donde la parte noreste es ligeramente más alta, la parte suroeste es ligeramente más baja y el centro es un área baja. La altitud promedio es de aproximadamente cinco o seis metros. La parte noreste es la más alta, con unos diez metros. La isla en su conjunto tiene una forma de elevación en los bordes y depresión en el centro. La zona baja del centro es una laguna poco profunda que ocupa aproximadamente un tercio de la superficie total de la isla, y se abre hacia el oeste.
-
-(Fin del capítulo).

@@ -93,5 +93,3 @@ Tres disparos, tan rápidos que no dieron tiempo a reaccionar, interrumpieron lo
 "Deben sujetar el arma con mucha fuerza, ¡pero de una manera cómoda!", dijo Salina, observando a las estudiantes que se esforzaban por sujetar las armas. "Deben sujetarla hasta que sientan que sus manos tiemblan ligeramente, y luego aflojar un poco. La muñeca debe estar tensa".
 
 "Salina revisó cuidadosamente el agarre de las armas de cada persona. Para aquellos que no sujetaban las armas con firmeza, ella, sin rodeos, les ayudaba a apretarlas. Nadie se había imaginado que esta mujer de pelo rojo tuviera tanta fuerza. Lu Cheng sintió que sus manos estaban a punto de ser aplastadas entre la mano de Salina y la culata del arma, y no pudo evitar gritar."
-
-(Fin del capítulo).

@@ -62,7 +62,7 @@ Sin embargo, pensándolo bien, ninguna de las partes se queda en desventaja: si 
 
 Especialmente para los pequeños comerciantes, esta condición es incluso favorable. Los pequeños comerciantes simplemente no tienen la capacidad de transportar y vender sus productos por sí mismos; dependen de los grandes comerciantes para que los vendan en su nombre. No solo deben pagar comisiones, sino que también sufren pérdidas durante el proceso de transporte y venta. Ya sea porque los grandes comerciantes trasladan todos los costos de pérdida a los pequeños comerciantes, o porque existen diversos tipos de cargos ocultos.
 
-<p>Si se pudiera realizar la transacción directamente en Leizhou a un precio de tres a ocho monedas, cada parte probablemente estaría dispuesta a aceptarlo.</p>
+Si se pudiera realizar la transacción directamente en Leizhou a un precio de tres a ocho monedas, cada parte probablemente estaría dispuesta a aceptarlo.
 
 En comparación, los riesgos en el sur de China son mucho mayores. Incluso si los precios en Guangzhou se mantienen estables, el sur de China aún tiene que cubrir los costos de transporte y otros gastos; si los precios bajan, las pérdidas serían aún mayores.
 
@@ -131,5 +131,3 @@ Las personas presentes, naturalmente, no conocían los planes ocultos de los via
 "De acuerdo", asintió Chang Shide. Luego, se dirigió a Liao Daxing y le dijo: "Apunta: 'Rihsheng', dos mil toneladas."
 
 "La declaración de Liu Yulin fue inesperada para los comerciantes de azúcar. Aunque dos mil toneladas representaban solo la mitad de las cifras de años anteriores, el hecho de que cincuenta mil monedas de plata se entregaran a Huannan demostró un coraje considerable. Todos los presentes comenzaron a discutir animadamente."
-
-(Fin del capítulo).

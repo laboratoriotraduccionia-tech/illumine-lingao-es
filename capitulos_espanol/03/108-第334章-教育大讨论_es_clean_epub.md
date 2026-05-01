@@ -33,7 +33,7 @@ La tasa de ocupación de los dormitorios es cada vez más baja. Él recuerda que
 
 Como no se alojaban en los dormitorios, cada uno tenía su propio lugar. La mayoría de los funcionarios administrativos del Comité Ejecutivo vivían en sus oficinas, los oficiales del ejército vivían principalmente en las barracas y solo regresaban a los dormitorios los fines de semana. No hace falta decir que el personal de la granja no quería salir de sus pequeñas casas en Xia'anle. Incluso muchas personas que trabajaban para el Comité Funcional vivían en las fábricas; a medida que la dirección profesional de cada uno se hacía más clara, parecía que la gente prefería descansar cerca de su lugar de trabajo en lugar de regresar a los dormitorios colectivos.
 
-<p>Este fenómeno parece indicar que la gente tiene mucha energía, pero Xiao Zishan sabe que si esto continúa, pronto comenzarán a surgir voces que piden la distribución de viviendas.</p>
+Este fenómeno parece indicar que la gente tiene mucha energía, pero Xiao Zishan sabe que si esto continúa, pronto comenzarán a surgir voces que piden la distribución de viviendas.
 
 "Fenómeno número uno: El número de correos electrónicos solicitando que se cumplan las promesas hechas por los asistentes personales ha aumentado significativamente, y también hay muchas discusiones al respecto en los foros en línea."
 
@@ -90,5 +90,3 @@ La propuesta de la academia militar de la armada y la marina pronto generó una 
 "Incluso una persona sin educación puede ser un buen trabajador. Como máximo, podría asistir a clases nocturnas para complementar sus conocimientos básicos. " dijo Ma Qianzhu. "En las empresas donde trabajaron mis antepasados, antes de la liberación, había muchos trabajadores con habilidades técnicas excelentes, a pesar de ser analfabetos. Después de la liberación, con un poco de capacitación en clases nocturnas, podían avanzar aún más."
 
 "El doctor Zhong no estaba de acuerdo: 'Esto es una aplicación de bajo nivel del empirismo. Puede que no haya problemas a corto plazo, pero ¿qué pasa después de la modernización de la industria? La tecnología siempre debe avanzar'. "
-
-(Fin del capítulo).

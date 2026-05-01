@@ -93,5 +93,3 @@ Li Luo, después de una cuidadosa consideración, consideró que este asunto era
 Para los "kuake qiong", esto representa una oportunidad enorme, pero también conlleva un riesgo muy grande. Para ser exactos, si los equipos que él mismo adquiere se hundieran durante el transporte a China, perdería por completo toda la inversión inicial.
 
 Después de pensarlo cuidadosamente, el inglés asintió: "De acuerdo. En unos días le daré un precio." (7.12)
-
-(Fin del capítulo).

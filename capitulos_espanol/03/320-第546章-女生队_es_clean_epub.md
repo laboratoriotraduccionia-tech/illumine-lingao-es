@@ -80,5 +80,3 @@ Lu Cheng abrazaba una réplica de pistola con barras de metal: era un arma de en
 Ahora, todavía es la primavera, y el sudor ya ha empapado sus uniformes de entrenamiento de tela azul, haciéndolos casi negros.
 
 La primera parte del programa de entrenamiento consistía en entrenamiento militar, y no había ningún trato preferencial para las chicas. Esto incluía el uso de las armas de entrenamiento, el tiempo y el contenido del entrenamiento. La única diferencia era que Hé Chūn, al ser una joven, se sentía incómoda al usar las palabras obscenas que los oficiales usaban con tanta facilidad. Sin embargo, esto fue reemplazado por el uso más frecuente de varas. El trasero y los muslos de Lù Chéng estaban doloridos, y no sabía cuántas veces la habían golpeado. Pero ella siempre estaba mejor que Yáo Yùlán, quien ya estaba tirada en el suelo e inmóvil. No importaba cuántas veces Hé Chūn la golpeara con su vara, ella se negaba a levantarse y fue directamente arrastrada a un lado y le echaron un cubo de agua fría.
-
-(Fin del capítulo).

@@ -94,5 +94,3 @@ Ma Qianzhu no dijo nada, bebió un sorbo de té caliente y sacudió la miga de p
 "¡Está bien! Asumo la responsabilidad de lo que he hecho. ¡De ahora en adelante, me encargaré de todo yo mismo!", dijo Dugu Qiuhun antes de salir corriendo.
 
 Ma Qianzhumu frunció el ceño y guardó el tablero de ajedrez. Perder la oportunidad de proponer matrimonio a Dugu era una pérdida importante para él, pero después de este incidente, si no establecía una clara distinción con él, eso se convertiría en una herida fatal para su carrera política.
-
-(Fin del capítulo).

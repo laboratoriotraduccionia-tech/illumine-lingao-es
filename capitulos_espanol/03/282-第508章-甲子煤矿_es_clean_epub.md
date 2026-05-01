@@ -74,5 +74,3 @@ Sin embargo, esta misión de asignación fue excepcionalmente difícil. Aunque l
 "No hay problema, es lo que corresponde", Xiao Zishan asintió repetidamente. "Además, le asignaremos un secretario personal".
 
 "¡¿Una secretaria personal?!" Tang Menglong había estado hablando de la posibilidad de tener secretarias personales durante muchos meses. Aparte de unos pocos que recibieron secretarias debido a sus responsabilidades laborales, nadie más había tenido la oportunidad de disfrutar de este beneficio. Parece que el Comité Ejecutivo está dispuesto a hacer cualquier cosa por esta mina. Esto todavía se puede considerar algo bueno.
-
-(Fin del capítulo).

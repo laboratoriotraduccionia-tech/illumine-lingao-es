@@ -115,5 +115,3 @@ Afortunadamente, no era necesario utilizar esos métodos; las pocas estrategias 
 "Debes llevar a gente a diferentes lugares para encontrar a los grandes comerciantes que otorgan préstamos a los agricultores de caña de azúcar, y hacer que aceleren el cobro de deudas a esos agricultores", dijo el señor Zhu. Sus ojos brillaban.
 
 "¡Sí, tercer hermano!", respondieron las personas asignadas con entusiasmo, aunque con cierta vacilación. "Sin embargo, tercer hermano, es natural que los acreedores exijan el pago de sus deudas. Pero, ¿qué pasará si esto lleva a la quiebra de Huannan? ¿No tendrán entonces los agricultores de caña de azúcar más remedio que vender sus productos a un precio de una y dos monedas por tael? ¿No estarán los acreedores preocupados de que los agricultores no puedan pagar sus deudas?"
-
-(Fin del capítulo).

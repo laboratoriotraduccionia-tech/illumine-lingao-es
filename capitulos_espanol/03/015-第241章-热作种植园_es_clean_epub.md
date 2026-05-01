@@ -104,5 +104,3 @@ Fa Shiliu ha estado recientemente a cargo de asuntos relacionados con cultivos t
 "Eso se debe a que ellos pueden importar cáñamo, por lo que no sienten la misma urgencia. En mi opinión, es mejor cultivar espada de fibra; tiene una alta tasa de utilización, e incluso los residuos y el jugo son útiles".
 
 Las fibras largas de la planta *jian ma* se utilizan como materia prima para la fabricación de cables en la industria, la minería y el transporte marítimo. Los residuos resultantes del procesamiento pueden utilizarse como materia prima para la fabricación de papel, alcohol, vinagre, etc. Las fibras cortas producidas durante el proceso de producción se pueden utilizar para fabricar cuerdas, plantillas de zapatos, riendas y otros productos de uso diario, y también se pueden utilizar como material de relleno para muebles. El jugo de las hojas, mediante la fermentación, puede producir biogás, y también se puede extraer azúcar y levadura seca para alimento. La gran cantidad de residuos de hojas procesados es un buen alimento para animales, y los residuos de la planta son un fertilizante orgánico de alta calidad.
-
-(Fin del capítulo).

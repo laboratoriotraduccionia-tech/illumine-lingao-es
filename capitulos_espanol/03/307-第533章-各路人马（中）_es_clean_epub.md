@@ -55,5 +55,3 @@ Después de que Qian se fue, You Laohu pensó si debía registrar este incidente
 El sonido de las campanas de la oración vespertina apenas había cesado, y Wu Shiman, vestido con una túnica negra y con una cruz de plata colgando de su cuello, salió de la iglesia con la lentitud y solemnidad que correspondía a un sacerdote respetado. Los feligreses que acababan de terminar la oración vespertina se inclinaron ante él, y algunos incluso besaron su mano. Con una sonrisa amable, Wu Shiman les bendijo y caminó a través de un terreno baldío, que era un área que la iglesia había comprado recientemente con la intención de ampliar la iglesia en el futuro. Wu Shiman sugirió a Lu Ruohua que comprara más terreno lo antes posible, de lo contrario, los precios de los terrenos podrían ser difíciles de predecir en el futuro.
 
 "La tierra que he comprado ya me ha costado doscientos 'bi a's de Aster, ¿a qué más podría costar?", dijo Lu Ruohua. No creía que el precio pudiera ser más alto, y ya estaba muy molesto por los precios de la tierra en esa zona.
-
-(Fin del capítulo).

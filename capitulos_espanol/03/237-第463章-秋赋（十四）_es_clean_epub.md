@@ -96,5 +96,3 @@ Aunque estaba enfadado, la situación requería una solución. Los aspirantes a 
 Liu Dalian es alguien con quien él, Chen Minggang, no puede ni se atreve a enfrentarse. Chen Minggang es muy consciente de esto. Sin embargo, Liu Dalian no tiene la capacidad de actuar; es simplemente una figura venerada que ha sido puesta en escena. La clave de la situación reside en Huang Bingkun.
 
 Una serpiente no puede existir sin cabeza; basta con que Huang Binkun deje de trabajar en este asunto, y la petición conjunta dirigida a las autoridades se desvanecerá.
-
-(Fin del capítulo).

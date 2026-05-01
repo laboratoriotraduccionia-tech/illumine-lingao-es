@@ -124,5 +124,3 @@ La aspirina es un producto de síntesis química, y para el nivel de química de
 "¿Quieres que el comité ejecutivo compre la empresa y luego tú te conviertas en el gerente?"
 
 "Yo no quiero ser el encargado. Es suficiente con ser el dueño de casa y guiarlos sobre cómo hacer las cosas. El encargado, Yang Zhanghu, no tiene mucha experiencia, pero es una persona que aprende rápido. Tiene potencial."
-
-(Fin del capítulo).

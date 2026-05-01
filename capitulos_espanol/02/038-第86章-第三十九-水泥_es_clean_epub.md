@@ -1,12 +1,4 @@
-## Capítulo 82: 第三十九-水泥
-
-# Capítulo 86, Capítulo 39: Cemento
-
-(No hay texto en chino para traducir en este fragmento.)
-
-Capítulo 86, Capítulo 39: Cemento.
-
-Capítulo 86, Capítulo 39: Cemento.
+## Capítulo 82: Cemento
 
 Wang Luobin había adquirido un conjunto completo de pequeños equipos para la producción de cemento mediante el método de horno vertical. Sin embargo, este equipo requiere una gran cantidad de carbón para funcionar, y los viajeros temporales aún no tienen acceso a carbón.
 

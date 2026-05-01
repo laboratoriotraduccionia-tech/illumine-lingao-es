@@ -118,5 +118,3 @@ Mù Mǐn temía que ocurriera algún imprevisto, así que se acordó con el grup
 A la mañana siguiente, Li Benqing ya no tenía fiebre, lo que tranquilizó mucho a He Ping, ya que esto indicaba que el diagnóstico y el tratamiento eran correctos. Luego, se le administraron dos pastillas más. Con este tratamiento durante tres días, se recuperaría por completo.
 
 El equipo de exploración midió la profundidad del río Changhua, que fluye fuera de la aldea Li, y en el punto más profundo ya alcanzaba un metro veinte aproximadamente, lo que permitía la navegación. En la aldea había carpinteros y también había pequeñas embarcaciones de una sola pieza, pero eran muy pequeñas, con capacidad para solo dos o tres personas. Cui Yunhong decidió construir balsas de bambú aquí, con la intención de navegar río arriba. El próximo objetivo era el río Sanhe.
-
-(Fin del capítulo).

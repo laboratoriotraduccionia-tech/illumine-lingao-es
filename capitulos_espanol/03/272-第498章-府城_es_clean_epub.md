@@ -69,5 +69,3 @@ Estas personas, provenientes de diversos orígenes y profesiones, hacen de todo.
 Lin Baiguang seleccionó aproximadamente a veinte personas de la lista de individuos y familias con los que tenían relaciones comerciales con la familia Gou. No era necesario tener una visión general de toda la red de contactos. Según el plan del grupo de viajeros temporales, al final del primer plan quinquenal, ocuparían toda la isla de Hainan, y en ese momento serían los gobernantes del condado de Qiongsan.
 
 Entre las personas que él seleccionó, había funcionarios menores del gobierno, oficiales de bajo rango de las tropas locales, comerciantes que regentaban tiendas y comerciantes que viajaban entre el continente y Qiongzhou. Todos ellos habían brindado una gran ayuda al grupo de viajeros temporales en los últimos años, especialmente en áreas de inteligencia y comercio.
-
-(Fin del capítulo).

@@ -51,8 +51,6 @@ Todos los trabajos de nivelación del terreno se completaron rápidamente. A con
 
 La construcción de la presa de Yanzhe Zhi también comenzó. Debido a las limitaciones de costos, esta presa utiliza una estructura simple de presa de tierra de gravedad, con múltiples filas de pilotes de madera para reforzarla. El exterior de la presa de tierra está revestido con bloques de piedra. La presa está construida a una distancia de más de cien metros de la línea de agua máxima de la temporada de lluvias del río Wenlan, sirviendo como un canal de desvío de agua durante las inundaciones. En épocas de bajo nivel de agua, se aprovechan las condiciones naturales de la orilla del río, donde hay abundante arena, para cultivar sandías y cacahuates.
 
-Aquí está la traducción del fragmento de Markdown:
-
 Se instalaron compuertas de riego y compuertas de desagüe en la presa, para adaptarse a la disposición de canales separados para el riego y el drenaje. Todas las compuertas se abren y se cierran mediante sistemas mecanizados, y la energía utilizada para abrirlas y cerrarlas proviene de la estación de bombeo de vapor ubicada en la presa.
 
 Dos canales principales conectan estas dos compuertas. Ambos canales están construidos con hormigón reforzado con bambú, y su capacidad de flujo ha sido diseñada con un margen considerable para satisfacer las necesidades de riego y drenaje en condiciones extremas. Los canales secundarios de riego y drenaje dentro de los campos se conectan a estos dos canales principales, y cada entrada de canal tiene una compuerta operada manualmente.
@@ -76,5 +74,3 @@ Simplemente aplicar fertilizantes orgánicos y abonos verdes parece que hay much
 "Tanto el carbón marrón como la turba son buenos", dijo Falishi. "Son fertilizantes compuestos naturales, que contienen nitrógeno, fósforo y potasio, y son mucho más eficientes. Sin embargo, la cantidad no es suficiente para mejorar el suelo. Sería mejor tener fertilizantes específicos de fósforo y potasio."
 
 Para las necesidades de fertilizantes potásicos, podrían utilizar los subproductos de cloruro de potasio generados en la industria de salmuera de la fábrica de sal. Además, el contenido de elementos potásicos en el turba y el carbón marrón es suficiente para cubrir las necesidades.
-
-(Fin del capítulo).

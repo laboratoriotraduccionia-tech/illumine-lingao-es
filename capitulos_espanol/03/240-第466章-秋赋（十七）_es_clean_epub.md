@@ -112,5 +112,3 @@ Dado que se va a utilizar para calmar el descontento popular, es mejor elegir pe
 "El visor nocturno de baja intensidad, el arco con poleas… Si con este equipo no puedo acertar a una puerta, entonces puedo darme por muerto", dijo Dai Xie, quien se sentía cuestionado.
 
 戴谐 se sintió muy emocionado al saber que podía participar en una "actividad secreta". Él trabajaba en el comité de planificación y, de vez en cuando, enseñaba a la gente técnicas de arcos y flechas, en las que era experto. La vida era muy monótona, y cuando Zhou Bota lo buscó para que llevara arcos y flechas y "ejecutara una misión", pensó que se trataba de un asesinato u otra operación encubierta. Sin embargo, para su sorpresa, después de ser escoltado por el equipo de investigación especial y subir a la muralla de la ciudad, descubrió que se trataba de esto.
-
-(Fin del capítulo).

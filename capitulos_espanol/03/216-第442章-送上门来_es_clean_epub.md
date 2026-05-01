@@ -87,5 +87,3 @@ La recaudación de los "impuestos reales" era la tarea más importante y fundame
 El mayor problema radicaba en los aumentos de impuestos. Los impuestos de la dinastía Liao ya se habían aumentado tres veces, llegando a 9 li por mu. Por supuesto, en ese momento, tanto Wu Mingjin como Wang Zhaomin aún no sabían que, el año siguiente, en el tercer año de la era Chongzhen, se aumentarían nuevamente, llegando a 1 qian y 2 li por mu.
 
 Esta cifra no representa un gran problema para regiones relativamente prósperas, donde el dinero circula ampliamente, como, por ejemplo, la provincia de Nanzhili. Sin embargo, para un condado remoto como Lingao, donde la economía natural es predominante, esto resulta más difícil.
-
-(Fin del capítulo).

@@ -98,5 +98,3 @@ La imprenta también recibió una notificación: se debía imprimir inmediatamen
 "Hay otra cosa. Chen Minggang nos preguntó: ¿dónde se ubicarán los armarios para almacenar el grano, y cuántas personas de nuestro grupo se necesitarán para supervisarlos?"
 
 "La oficina se establecerá en el condado", pensó Wu De desde hacía tiempo. "Nuestros hombres no son necesarios. Que sigan como siempre". Wu De dijo: "Si van a cargar con la culpa, que la carguen por completo".
-
-(Fin del capítulo).

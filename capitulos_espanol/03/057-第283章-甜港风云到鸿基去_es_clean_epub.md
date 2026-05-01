@@ -115,5 +115,3 @@ Según la información disponible, la sede central de la empresa Hongji Minería
 **贝凯** eligió una pequeña colina como punto de referencia. Siguiendo un patrón de 15 metros entre cada punto, dividió la zona de colinas que rodeaba la colina, abarcando un radio de 1500 metros. Luego, organizó a las personas en grupos de tres, y estos 8 grupos comenzaron a trabajar en 100 puntos específicos. El trabajo principal consistía en excavar zanjas de exploración.
 
 El requisito para la exploración de minas es una profundidad de 3 metros. Hongji es conocida por sus grandes minas a cielo abierto, y las minas de carbón están distribuidas de manera gradual y concentrada. Sin embargo, solo hay tres o cuatro áreas de minas a cielo abierto visibles en la superficie. La zona de Ma'er Shan no es una zona de minas a cielo abierto, por lo que encontrar una pequeña mina a cielo abierto es cuestión de suerte.
-
-(Fin del capítulo).

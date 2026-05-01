@@ -160,5 +160,3 @@ De vuelta en la casa de Li Benqing, alguien trajo comida: pollo asado, huevos, p
 "Esto es muy posible", dijo Hé Píng. "El hipopótamo me ha contado muchos casos similares. Afortunadamente, esto no es de hierro, de lo contrario, si contrajera tétanos, nadie podría salvarlo."
 
 "¡Caramba, ¿nos veremos envueltos en alguna conspiración palaciega?", exclamó alguien, dejando volar su imaginación.
-
-(Fin del capítulo).

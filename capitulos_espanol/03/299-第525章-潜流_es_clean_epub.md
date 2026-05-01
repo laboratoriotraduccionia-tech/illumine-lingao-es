@@ -69,5 +69,3 @@ La cafetería de la granja estaba muy concurrida. La cafetería había sido reno
 El club de derecho de "Majiapi" y otras personas que no pertenecen al club se reunían en esta cafetería, con el pretexto de "reunirnos al final del año", pero en realidad, este grupo de personas insatisfechas o con planes ocultos estaba planeando algo importante: preparar la primera asamblea general.
 
 "Nuestro grupo de viajeros temporales debería convocar inmediatamente una asamblea general", dijo An Xil con entusiasmo. "La estructura política del grupo de viajeros temporales actual ha estado en funcionamiento durante más de un año, y diversas deficiencias y contradicciones han comenzado a manifestarse. Ahora es el momento adecuado para convocar una asamblea y abordar estos problemas".
-
-(Fin del capítulo).

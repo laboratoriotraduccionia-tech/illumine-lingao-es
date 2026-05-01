@@ -78,5 +78,3 @@ Ma Qianzhudi asintió con la cabeza, indicándole que continuara.
 "Estas descripciones, si bien pueden contener sesgos y exageraciones, al menos demuestran las diferencias significativas entre la mentalidad de consumo de una sociedad agrícola y la de las personas modernas. De ellas se puede deducir la mentalidad de consumo generalizada de los trabajadores de las clases bajas en la antigüedad, al menos durante las dinastías Ming y Qing: el tiempo, la fuerza física, la comodidad y la conveniencia se consideraban "gratuitos". Se podía gastar generosamente en estos "gratuitos" elementos, siempre y cuando se pudiera ahorrar incluso una sola moneda. Todavía se puede observar este tipo de hábitos de consumo en algunos ancianos de hoy en día…"
 
 "Hasta ahora, estrictamente hablando, no hemos incursionado realmente en la producción de bienes de consumo masivo. Esto nos permite plantearnos una pregunta: ¿cómo podemos transformar los hábitos de consumo de las personas en este período de tiempo, especialmente para aquellos que buscan el desarrollo económico a través del comercio?"
-
-(Fin del capítulo).

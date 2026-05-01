@@ -88,5 +88,3 @@ De camino a la aduana, Majia comenzó a hablar sobre el veredicto del caso de la
 "Esto es muy bueno, puede promover la armonía social", pensó Ma Jia. Creía que esto podría frenar el uso imprudente de su posición por parte de los *viajeros temporales* para oprimir arbitrariamente a los nativos.
 
 "Jī Xìn negó con la cabeza: "No me preocupo por si la sociedad es armoniosa o no; con nuestro poder, somos capaces de hacer que cada nativo sea infeliz; simplemente creo que todos son seres humanos, y ellos también lo son, y deberían tener al menos ciertos derechos".
-
-(Fin del capítulo).

@@ -87,5 +87,3 @@ Esta persona es precisamente Zhao Mansheng.
 Zhao Mansheng, en su vida diaria, rara vez salía de su residencia en el antiguo complejo del Comité de Asuntos Internos y hablaba muy poco. Casi no participaba en ninguna reunión del Comité de Asuntos Internos, y aunque ostentaba el título de Director del Departamento de Investigación de Políticas del Comité de Asuntos Internos, nadie sabía realmente qué hacía. Sin embargo, todos los departamentos del Comité de Asuntos Internos enviaban copias de sus documentos a él para su revisión. Todos los días, Zhao Mansheng se dedicaba a leer, tomar notas y escribir en grandes cuadernos de formato local.
 
 En la oficina de Zhao Manxiong, poco a poco se acumulaban cuadernos. Los jefes de los diferentes departamentos a veces iban a su oficina para conversar, pero su nombre nunca aparecía en ningún documento.
-
-(Fin del capítulo).

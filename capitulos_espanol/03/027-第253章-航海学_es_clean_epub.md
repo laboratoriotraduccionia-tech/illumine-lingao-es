@@ -140,5 +140,3 @@ Estos mapas marítimos son principalmente de las regiones marinas del este y sur
 "Yo trabajaba en la ruta Goa-Macao. También he estado en Madrás."
 
 "Realmente eres un navegante", dijo con sinceridad. Chen Haiyang, en su esencia, es un aventurero y un amante de las actividades al aire libre. Después de su retiro, cruzó solo la cordillera de Siquan Shan y navegó solo en un velero por el estrecho de Qiongzhou. Sentía una gran afinidad por este tipo de persona.
-
-(Fin del capítulo).

@@ -135,5 +135,3 @@ Luego, fue el turno de Kuake, quien hizo las mismas preguntas. Li Luo, de repent
 "¿Por qué?", Kua Ke sintió que algo no andaba bien. "¡No estoy enfermo, estoy muy saludable!"
 
 "Solo un momento", dijo la mujer, sin ceder. Varios hombres fornidos, armados con palos, se acercaron a ella.
-
-(Fin del capítulo).

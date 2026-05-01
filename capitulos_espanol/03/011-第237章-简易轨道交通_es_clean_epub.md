@@ -80,5 +80,3 @@ Wen Desi y otros observaban los varios vagones de plataforma que había debajo d
 "Sí, tenemos suficiente potencia; el vehículo es muy rápido cuando está vacío, e incluso le hemos instalado un sistema de frenos. El problema es que es difícil de arrancar cuando está completamente cargado." Li Chi ya había realizado pruebas: "Cuando se carga mucha mercancía, sin ayuda externa, las cuatro personas que están en el vehículo no pueden accionar el pedal de ninguna manera. Probablemente se necesitan unas quince personas para empujar y arrancar el vehículo, y una vez que se arranca, se puede avanzar utilizando el pedal."
 
 "¿Acaso es necesario preparar específicamente a diez personas para que actúen como operadores iniciales? Claramente, este tipo de vehículo solo puede utilizarse como vehículo de transporte o para transportar objetos ligeros."
-
-(Fin del capítulo).

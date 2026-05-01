@@ -123,5 +123,3 @@ Sin embargo, Wanlihui no sentía que su trato fuera muy bueno. Para empezar, no 
 "¿Un espíritu zorro macho?", pensó Wanlihui, frustrado. "Yo tampoco soy ese tipo de jovencito delicado que se prestaría para tal cosa, ¿por qué me han dado ese título?".
 
 "Sí, anoche discutió con la hermana Yijin y la hizo llorar". Fú Xǐ dijo con un tono misterioso: "¿Sabes por qué?".
-
-(Fin del capítulo).

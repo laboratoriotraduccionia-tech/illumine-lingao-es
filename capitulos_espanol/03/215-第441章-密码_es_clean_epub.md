@@ -92,5 +92,3 @@ Es difícil hablar de otras regiones, pero el departamento de inteligencia tiene
 "Sin embargo, solo con conjeturas, la precisión es limitada, y además, una vez que se llega a Lingao, este método no es fiable". Mumin dijo: "Es necesario encontrar el alfabeto".
 
 "Permítanme buscarlo con calma", dijo Zhang Xingpei. "Ahora que ya conocemos algunas palabras, podemos intentar adivinar. Empecemos buscando en los textos más comunes como el 'Baijia Xing' (Los cien apellidos), el 'Sanzijing' (El clásico de tres caracteres) y el 'Qianziwen' (El texto de mil caracteres). Cualquiera que haya estudiado en la dinastía Ming debería poder memorizarlos."
-
-(Fin del capítulo).

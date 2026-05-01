@@ -98,5 +98,3 @@ El capitán del barco, por supuesto, se mostró sumiso y, como un autómata, se 
 "Lo que se está insinuando es que esta operación no se llevará a cabo en los próximos cinco o seis meses. Para movilizar los recursos de toda la provincia, es algo que ni siquiera un comandante de la guardia costera como él puede lograr. Solo redactar los informes y enviarlos a las autoridades competentes tomará varios meses."
 
 Además, dada su posición, investigar en el exterior de Bopu ya constituye un "riesgo personal", por lo que no es necesario que él mismo se infiltre como informante; es mejor que lo delegue a sus subordinados.
-
-(Fin del capítulo).

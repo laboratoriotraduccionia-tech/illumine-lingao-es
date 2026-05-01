@@ -92,5 +92,3 @@ La comisaría del condado de Lingao, disfrazada como un servicio de transporte r
 Inmediatamente lo recibieron y lo acomodaron en un pequeño patio, que era el estudio exterior de Yang Shixiang. El complejo "Run Shide" tenía una casa de huéspedes especialmente destinada a recibir invitados, y asignarle el estudio exterior era como tratarlo como a un miembro de la familia. Liu San no entendía las sutilezas de la situación, pero la familia Yang, después de todo, era una familia con cierta reputación, y su padre se había mudado desde Foshan, habiendo visto mucho del mundo. El estudio estaba limpio, elegante y muy cómodo.
 
 Inmediatamente, llamó a dos jóvenes para que lo atendieran, limpiaran la casa y prepararan el agua para el baño. Después de bañarse, inevitablemente tendría que saludar a la familia de su hermano. Una vez completados todos los rituales, Yang Shixiang ordenó que se preparara una mesa con vino y comida en el estudio, y ambos comieron y discutieron asuntos.
-
-(Fin del capítulo).

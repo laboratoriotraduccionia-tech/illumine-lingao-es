@@ -97,5 +97,3 @@ Fueron escoltados a través de las calles del pueblo, dirigiéndose directamente
 "No los considero sus hermanos. En la finca, hay un total de once personas, once hombres y mujeres, dos vacas, veinte habitaciones y un pozo. Además, hay grano y telas almacenadas. Esta finca es realmente buena", dijo Wang Ruixiang con una sonrisa. "Dado que insisten en que no es de ustedes, la aceptaremos con gusto. ¿Alguien tiene algo que decir?"
 
 "Fú Yizhuàng suspiró con tristeza y bajó la cabeza."
-
-(Fin del capítulo).

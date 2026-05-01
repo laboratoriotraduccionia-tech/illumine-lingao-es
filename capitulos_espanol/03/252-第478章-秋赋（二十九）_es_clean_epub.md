@@ -32,7 +32,7 @@ Aquí hay algunas ubicaciones donde se pueden establecer sucursales bancarias, y
 
 Al hablar de esto, parece haber cierta tristeza, como si uno se sintiera decepcionado por sus propios fracasos.
 
-<p>Parece que este Wang Luobin, con su apariencia resbaladiza, es un individuo insatisfecho con la sociedad. Xiong Bu You pensó: "Así es mejor, la insatisfacción genera motivación."</p>
+Parece que este Wang Luobin, con su apariencia resbaladiza, es un individuo insatisfecho con la sociedad. Xiong Bu You pensó: "Así es mejor, la insatisfacción genera motivación."
 
 De acuerdo con la información proporcionada por un informante, Wu Mingjin, en privado, había comenzado a desconfiar gradualmente de este funcionario. Wang Zhaomin, debido a su larga responsabilidad en las negociaciones con el grupo de viajeros temporales, había recibido muchos beneficios. Wu Mingjin sospechaba a menudo si este último estaba involucrado en algo turbio.
 
@@ -109,5 +109,3 @@ En la habitación, había varios de sus discípulos, todos con las mangas enroll
 "Está bien, tú, que eres un funcionario encargado de la distribución de alimentos, ¿es realmente necesario ser tan leal a Chen Minggang?" Zhou Dongtian sabía que él había sufrido mucho, y necesitaba a alguien con un temperamento tranquilo para interpretar el papel del "chico malo".
 
 "¡Guau, guau, por favor, perdóname…", sollozó Xiao Hu, con la cabeza gacha. "¡Yo, de verdad, solo sé de estas cosas…"
-
-(Fin del capítulo).

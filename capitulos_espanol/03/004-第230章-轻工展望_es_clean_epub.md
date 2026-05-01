@@ -114,5 +114,3 @@ Aunque las conservas aparecieron bastante temprano, ya en la época de Napoleón
 La fábrica de cigarrillos, que había generado tanta expectación, comenzó a funcionar hace unos días. No pertenece ni al Ministerio de Agricultura ni al Ministerio de Industria Ligera, sino que está directamente subordinada a la Comisión de Planificación, específicamente al sistema de "tabaco y productos relacionados". Parece que esta tradición continuará.
 
 El comité ejecutivo originalmente esperaba que esta fábrica de cigarrillos no solo pudiera satisfacer las necesidades de los viajeros temporales, sino que también pudiera convertirse en un punto de crecimiento para sus productos de exportación. Esto no era una expectativa demasiado ambiciosa, ya que la demanda de tabaco a finales de la dinastía Ming ya era muy alta, y la producción de tabaco en la provincia de Guangdong ya era considerable. Este nuevo producto, el cigarrillo, con su apariencia y sabor únicos, y su facilidad de uso, podía satisfacer las necesidades tanto de la élite que buscaba nuevas experiencias como de las clases populares que buscaban algo simple y práctico.
-
-(Fin del capítulo).

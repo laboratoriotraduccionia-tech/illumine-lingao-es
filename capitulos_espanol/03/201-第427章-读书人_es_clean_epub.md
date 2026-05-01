@@ -106,5 +106,3 @@ Wang Luobin se quedó atónito. ¿Una asignación mensual además? Su mente no p
 王赐 ahora siente que cometió un error al confiar la administración de la escuela a personas de origen australiano. Cuando llegue el otoño y se puedan distribuir los granos de arroz a los estudiantes, ¿cómo evitarán todos que se sepa que esta es la obra de los "kunzei" (invasores)? Al pensar en esto, Wang Luobin está sumamente arrepentido. Realmente es miope; por unos pocos granos de arroz, permitió que los "kunzei" intervinieran.
 
 "Xiong Buyou" observó cómo el rostro del maestro fluctuaba entre el rojo y el pálido, sin saber realmente qué estaba pensando. En realidad, "Wang Ci" también se había sobreestimado. De acuerdo con la planificación a largo plazo del Comité Ejecutivo, siempre se llevarían a cabo esfuerzos para acercarse a los intelectuales locales, independientemente de si existía o no el asunto de "Xuetian". Todos los estudiantes de "Lingao" acabarían siendo incluidos.
-
-(Fin del capítulo).

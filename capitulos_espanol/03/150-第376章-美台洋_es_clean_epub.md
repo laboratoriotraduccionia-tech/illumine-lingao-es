@@ -83,5 +83,3 @@ Wu Nanhai planeaba construir tierras de alta productividad en una zona árida a 
 Wu Nanhai, aunque no cuenta con datos hidrológicos disponibles, y basándose en la línea de inundación, la distribución de la arena y las condiciones de la vegetación, se sabe que la mayor parte de la zona de Meitaiyang no se inunda durante la temporada en la que el nivel del agua del río Wenlan es más alto. Desarrollar tierras de cultivo de alto rendimiento en esta zona es relativamente seguro.
 
 Una de las principales razones por las que la Comisión Agrícola busca terrenos en la zona de Mei, Tai y Yang es que esta es una región desolada, sin tierras de cultivo ni asentamientos, lo que facilita la adquisición. Tanto Wu Nanhai como Wu Dedu no planean llevar a cabo proyectos de expropiación y reubicación en la antigüedad. Este tipo de operaciones son difíciles de manejar y, si no se hacen bien, pueden provocar descontento popular.
-
-(Fin del capítulo).

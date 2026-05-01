@@ -3,8 +3,8 @@
 
 Desde Qiwai llegaron varios guardias, expertos en seguridad. Al igual que los empleados del banco de grano, solo se encargaban de sus áreas de especialización y no realizaban trabajo de inteligencia. Qiwai, después de todo, era solo una empresa conjunta, y aunque el Grupo Chuanyue tenía un control efectivo sobre sus finanzas y gestión, el personal, en su mayoría, provenía de la sociedad anterior y no había sido sometido al "proceso de purificación" del Grupo Chuanyue. Por lo tanto, su confiabilidad era ligeramente inferior.
 
-<p>Sin embargo, el personal de la agencia de seguridad tenía un gran sentido del deber y era más que suficiente para realizar las tareas de protección.</p>
-<p>Lin Baiguang siempre creía que el personal de inteligencia debía utilizar principalmente el cerebro y los ojos para llevar a cabo sus tareas, y no los puños.</p>
+Sin embargo, el personal de la agencia de seguridad tenía un gran sentido del deber y era más que suficiente para realizar las tareas de protección.
+Lin Baiguang siempre creía que el personal de inteligencia debía utilizar principalmente el cerebro y los ojos para llevar a cabo sus tareas, y no los puños.
 
 高弟 es una persona inteligente y comunicativa; Lin Baiguang lo nombró "gerente de asuntos externos" de la empresa de suministro de alimentos, que es equivalente al jefe de ventas en la actualidad. Chen Tong es una persona honesta y confiable, y se desempeña como "gerente interno".
 
@@ -98,5 +98,3 @@ Esta escena recordó a Lin Baiguang una escena de la película "Espartaco". ¿No
 "Traigan al prisionero 16280505130080", ordenó Fu Youdi. Sus subordinados se dirigieron inmediatamente al lugar de trabajo y, en poco tiempo, llevaron a un prisionero de aspecto desaliñado y sin ropa.
 
 "¿Eres He Xin?", preguntó Lin Baiguang, examinándolo. Aparte de su piel oscura y áspera, parecía estar relativamente bien, no como la imagen que tenía de alguien torturado y destrozado. Sin embargo, su rostro estaba cubierto de polvo y suciedad.
-
-(Fin del capítulo).

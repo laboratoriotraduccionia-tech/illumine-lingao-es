@@ -123,5 +123,3 @@ Después de caminar más de diez millas, de repente se escuchó un sonido como d
 Nota: Este párrafo indica que, a partir de 4000 caracteres, no se cobrará ningún cargo adicional.
 
 "Bishida" es un instrumento musical de la etnia Li, y quizás sea un nombre adecuado para una mujer. Este instrumento es en realidad un producto de la época moderna, y no se sabe si existía en la dinastía Ming. Su apariencia es similar a la de una flauta de pan.
-
-(Fin del capítulo).

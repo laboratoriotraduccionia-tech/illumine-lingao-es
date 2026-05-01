@@ -167,5 +167,3 @@ Después de la derrota, no había fuentes de suministro de alimentos ni de diner
 "Estas palabras resonaron en muchas personas. Algunos, que solo tenían unas pocas embarcaciones, comenzaron a considerar esta opción. Prácticamente todos habían acumulado cantidades variables de riqueza, y en tiempos mejores, habían confiado a personas en sus lugares de origen la gestión de numerosos negocios, por lo que regresar para cobrar rentas y vivir como hombres adinerados no era un problema."
 
 Después de una gran derrota, es común que la gente se sienta desanimada y pierda el interés, y que los pensamientos de retirarse y vivir una vida tranquila se vuelvan predominantes.
-
-(Fin del capítulo).

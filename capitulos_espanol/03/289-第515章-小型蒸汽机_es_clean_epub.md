@@ -93,5 +93,3 @@ Para ello, él se esforzó más que otros artesanos para aprender a usarlo, y r�
 "Parece que los artesanos tradicionales pueden adaptarse completamente a las nuevas tecnologías", dijo Li Chiqi.
 
 "Jiang Muzhi se burló: 'Hmph, él está trabajando para nosotros porque es un hombre extremadamente pobre. Si él mismo tuviera su propia casa y taller, ¿crees que estaría dispuesto a hacerlo?'"
-
-(Fin del capítulo).

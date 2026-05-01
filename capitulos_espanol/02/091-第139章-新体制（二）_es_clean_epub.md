@@ -63,4 +63,3 @@ Sin embargo, después de regresar y trabajar en el campo, renunció al trabajo e
 
 "Actualmente, Ma Peng trabaja en un campo de ladrillos, donde cava y tamiza tierra todos los días. El ruido constante de las máquinas ya no despierta su curiosidad ni sorpresa. Ya no hay bayonetas de los soldados de "duan mao" cerca de él y de sus compañeros de trabajo, pero su entusiasmo por el trabajo es como nunca antes. Están construyendo sus propias casas. Una nueva vida, completamente diferente al pasado, está a punto de comenzar."
 
-(Fin del capítulo)

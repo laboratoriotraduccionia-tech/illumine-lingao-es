@@ -89,5 +89,3 @@ Pero esto no es lo más problemático. Todos coincidieron en que, aunque el grup
 Según la evaluación, es probable que el barco "Jia" necesite reparaciones que tomarán entre dos y tres años antes de poder volver a estar en servicio. Sin embargo, los diversos equipos de pesca que tiene se pueden desmontar y reutilizar, al igual que en el barco pesquero tipo 8154.
 
 En cuanto al motor, la decisión fue desmontarlo para repararlo, ya que, de lo contrario, ni siquiera se podría limpiar la sal del agua. Respecto a los equipos electrónicos, todos fueron desmontados y entregados a Zhong Lishi para que los estudiara y los reparara en la medida de lo posible.
-
-(Fin del capítulo).

@@ -106,5 +106,3 @@ Los funcionarios de bajo rango tienen como creencia principal la de obtener dine
 Wu De y Zhou Dongtian discutieron los procedimientos y los asuntos más importantes para el interrogatorio del día siguiente, y luego se comunicaron con Yanghe para confirmar que las instalaciones del "curso de formación" reservado para los funcionarios del condado estaban reparadas y listas para ser utilizadas. A continuación, también preguntaron por la disponibilidad del personal enviado por el ejército.
 
 "Los soldados que entren a la ciudad deben llevar ropa de la época de la dinastía Ming, no deben llevar rifles, sino lanzas.邬德 dio instrucciones por teléfono: 'Lleven mucha cuerda y antifaces'."
-
-(Fin del capítulo).

@@ -11,7 +11,7 @@ Lin Baiguang lo ignoró y observó cuidadosamente al ex líder de piratas que te
 
 Este ex-pirata, este ex-joven derrochador, en este momento, estaba prácticamente desnudo, con solo un trozo de tela sucia que cubría su cintura, y su cuerpo estaba cubierto de moretones causados por latigazos. El joven Fu Youdi es realmente despiadado, no es de extrañar que ahora sea un nombre que inspira temor en los nativos de este condado. Lin Baiguang sospechaba que la reciente obesidad de Fu Youdi se debía a que había ganado peso en la prisión.
 
-<p>Sin embargo, eso no era asunto suyo; el problema de la corrupción en los cargos sería resuelto gradualmente por Yì Fán.</p>
+Sin embargo, eso no era asunto suyo; el problema de la corrupción en los cargos sería resuelto gradualmente por Yì Fán.
 
 "Primero, ayúdale a lavarse y cámbiarle de ropa", Lin Baiguang le indicó a Fu Youdi.
 
@@ -120,5 +120,3 @@ Parece que lo que se conoce como "sistematización" es, en esencia, burocratizac
 Días después, ya disfrazado de un rico comerciante de la dinastía Ming llamado Lin Baiguang, partió en barco desde Bopu acompañado de un grupo de personas.
 
 林佰光 se fue sintiendo aliviado. Muchos de los viajeros temporales tenían un sentimiento especial por Lingao y por la ciudad de Bairen, considerándola su segunda patria y un refugio. Siempre se sentían un poco tristes al tener que irse por asuntos oficiales. Sin embargo, Lin Baiguang no sentía eso; al contrario, experimentó una sensación de libertad y despreocupación, como si el cielo fuera el límite para los pájaros. Tenía una vaga premonición de que comenzaría en Qiongzhou un largo viaje, un camino del que no regresaría a Lingao.
-
-(Fin del capítulo).

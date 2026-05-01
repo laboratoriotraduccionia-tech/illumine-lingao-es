@@ -141,4 +141,3 @@ Incluso si los enemigos lograran entrar en el patio, lo único que podrían roba
 
 "Además, ¿han considerado un problema? Varios viajeros temporales son colocados aisladamente en esta tierra desolada. A su alrededor, aparte de ellos mismos, no hay ni siquiera unos pocos nativos, y mucho menos personas vivas. Debido a las limitaciones, el comité ejecutivo no puede proporcionar instalaciones de vida cómodas en cada punto, y con el tiempo, estas personas terminarán sufriendo un colapso mental individual". Jiang Qiuyan gesticulaba con entusiasmo, dando la impresión de que él mismo estaba a punto de sufrir un colapso mental.
 
-(Fin del capítulo)

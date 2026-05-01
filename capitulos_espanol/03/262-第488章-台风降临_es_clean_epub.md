@@ -81,5 +81,3 @@ La Comisión de Asuntos Civiles estableció inmediatamente dos centros de acogid
 Wu Mingjin también mostró gran interés en este asunto. Después de que Xiong Buyou lo visitó, él mismo ordenó que se abrieran los almacenes del condado y se distribuyera grano.
 
 "La situación de las arcas del condado, sin duda, es algo que ustedes, los líderes, conocen mucho mejor que un estudiante como yo", dijo Wu Mingjin con preocupación. "Los registros parecen estar en orden, pero en cuanto a la cantidad de grano…", dijo, y luego hizo un gesto de suspiro y negación con la cabeza, un gesto típico de los funcionarios chinos, para indicar que sabía que la situación era muy grave, pero que no podía hacer nada y, por supuesto, tampoco asumiría la responsabilidad.
-
-(Fin del capítulo).

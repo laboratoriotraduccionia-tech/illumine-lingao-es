@@ -134,4 +134,3 @@ Los eventos que siguieron se desarrollaron sin problemas. Zhou Qi, al ser arrest
 "Fue mi maestro, Chen Minggang, quien me indicó que hiciera eso."
 
 "Aunque esto era lo que todos esperaban, cuando Zhou Qi lo dijo, se escuchó un suspiro de asombro en la sala. Wu Ya y Sun Ruiwu pensaron para sí mismos: ¡Chen Minggang está acabado!"
-(Fin del capítulo)

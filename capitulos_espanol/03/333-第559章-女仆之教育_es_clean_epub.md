@@ -12,9 +12,7 @@ El contenido del programa de estudios diseñado por Dong Weiwu se centra en la e
 
 Cocina: Los miembros más antiguos aún no tienen las condiciones para tener sus propias cocinas, pero se pueden sentar las bases con anticipación. En todas las épocas, cocinar se considera un deber de las mujeres, pero es evidente que una joven proveniente de una familia que apenas puede permitirse suficiente comida no tendrá una gran habilidad culinaria. Sin mencionar las diferencias de gusto entre las diferentes épocas.
 
-Aquí hay una traducción del fragmento de Markdown del chino mandarín al español, siguiendo las instrucciones proporcionadas:
-
-"Incluso las tareas domésticas más básicas, como lavar la ropa, limpiar las ventanas y hacer la limpieza general, requieren ser enseñadas desde cero. En muchos hogares de las empleadas domésticas, simplemente hay barro, y el concepto de barrer el suelo no existe. Por supuesto, tampoco tienen conocimientos sobre cómo mantener el suelo, encerarlo, limpiar los baños o fregar las ventanas."
+Incluso las tareas domésticas más básicas, como lavar la ropa, limpiar las ventanas y hacer la limpieza general, requieren ser enseñadas desde cero. En muchos hogares de las empleadas domésticas, simplemente hay barro, y el concepto de barrer el suelo no existe. Por supuesto, tampoco tienen conocimientos sobre cómo mantener el suelo, encerarlo, limpiar los baños o fregar las ventanas.
 
 Las personas en la actualidad consideran que ciertas cosas son muy simples, pero para los nativos, estos conceptos simplemente no existen o son diferentes. Esto también se aplica a las sirvientas provenientes de familias adineradas. Dong Weiwu investigó las habilidades que estas sirvientas poseían y notó que no eran del todo diferentes a las necesidades de los viajeros temporales. Buscó en la gran biblioteca libros y materiales didácticos especializados en servicios de hotel y servicios domésticos.
 
@@ -83,4 +81,3 @@ Aumentar la nutrición y el ejercicio físico permitía a las sirvientas desarro
 "Liu San se sintió aún más desanimado. El futuro de los hombres solteros, en cuanto a su "felicidad sexual", parecía muy prometedor. Actualmente, solo tienen una asistente personal, pero en el futuro, siempre y cuando su salud lo permita, podrían incluso organizar una compañía entera de mujeres. Su negocio de medicamentos tonificantes probablemente prosperaría mucho, pero él solo podría observarlo desde un lado."
 
 Antes, los hombres solteros que solo tenían a una novia, como las "cinco señoritas", eran envidiados, y uno mismo sentía un cierto orgullo. Ahora, parece que eso es una carga. Liu San, con un sentimiento de melancolía, miraba a las mujeres, sintiendo que había desperdiciado una oportunidad y que debía luchar por ella. ¡Incluso si temporalmente solo podía tener a una como sirvienta, debía conseguir que viniera a casa!
-(Fin del capítulo)

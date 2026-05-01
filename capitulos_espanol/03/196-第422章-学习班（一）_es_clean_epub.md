@@ -61,8 +61,6 @@ Se protegerá toda la propiedad privada que traiga consigo, y se podrá disponer
 
 Los familiares y los hijos de los líderes, sin excepción, desembarcaron y se establecieron en tierra firme. Los hijos menores de edad ingresaron a la escuela, mientras que los hijos mayores de edad, según los requisitos de la familia y la voluntad de la persona, podían optar por estudiar o trabajar.
 
-Aquí está la traducción del fragmento:
-
 "En esta región, no se reconocen los esclavos privados. Por lo tanto, todos los sirvientes que traen los líderes tienen su estatus abolido. Aquellos que desean continuar sirviendo a los líderes son tratados bajo un contrato de empleo. Aquellos que no desean hacerlo, son considerados inmigrantes."
 
 En cuanto a los marineros que trajeron, a aquellos que deseaban regresar a casa o a donde él se dirigía, se les proporcionó una compensación para el viaje. Aquellos que deseaban quedarse fueron concentrados para someterse a un período de cuarentena de 90 días.
@@ -97,5 +95,3 @@ Wei Aiwen adoptó una actitud de liderazgo, bajando las manos y diciendo: "Ahora
 "Continuó diciendo: 'Los barcos de ustedes seguirán siendo administrados por ustedes mismos. Si no desean seguir navegando, el Comité Ejecutivo tiene políticas al respecto'."
 
 De acuerdo con las políticas establecidas por el Comité Ejecutivo: todas las embarcaciones que se ofrezcan serán adquiridas por el Comité Ejecutivo, quien pagará por ellas. Aquellos que entreguen sus embarcaciones y deseen continuar con actividades marítimas serán asignados al Departamento de Marina. Aquellos que no deseen seguir navegando, serán asignados a otros puestos.
-
-(Fin del capítulo).

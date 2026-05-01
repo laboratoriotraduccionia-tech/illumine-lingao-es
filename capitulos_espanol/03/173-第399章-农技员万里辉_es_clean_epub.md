@@ -146,5 +146,3 @@ Los diversos tipos de basura recolectados en todo el pueblo pronto llenaron las 
 "Es correcto."
 
 "Fú Xǐ no continuó preguntando, y Wàn Lìhuī, con entusiasmo, comenzó a explicarle qué es la materia orgánica, qué es la descomposición bacteriana, y por qué estas cosas no se pueden usar directamente como fertilizante… Intentó explicarle todo el principio de los fertilizantes a Fú Xǐ. No era que él tuviera un fuerte deseo de educar a la próxima generación, sino que de esta manera podía hablar con Fú Xǐ de manera legítima, y al mismo tiempo, obtener la infinita admiración en los ojos de la joven."
-
-(Fin del capítulo).

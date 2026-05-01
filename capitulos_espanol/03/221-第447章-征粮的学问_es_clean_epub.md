@@ -81,5 +81,3 @@ Wu De pensó: "Ahora entiendo por qué Luo Duo dijo en ese momento que la verdad
 
 "¡¿En qué reside la dificultad?!” Wu De se aferró a esta pregunta.
 Wang Zhaomin dudó un momento y dijo: "Es caro".
-
-(Fin del capítulo).

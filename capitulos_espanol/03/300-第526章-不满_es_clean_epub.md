@@ -99,5 +99,3 @@ La indignación era palpable, y "Mǎjiǎ" (马甲) sufría en silencio. No le pr
 "Ma Jia" sintió una gran indignación, experimentando la frustración de encontrarse con "ciudadanos problemáticos". Calmando su espíritu, intentó mantener un tono comedido: "Lo que digo es la verdad. Es cierto que existen privilegios y corrupción en el Comité Ejecutivo, pero no es algo generalizado", dijo. "En cuanto a la supuesta relación 'madre-hija' de Wu Nanhai, ¿quién tiene pruebas de que sea cierto?".
 
 Todos guardaron silencio: Wu Nanhai normalmente es una persona muy discreta, y en la mente de todos es un buen tipo. Lo que se dice de "madre e hija juntas" es más una fantasía colectiva. Además, la madre de las hermanas Li trabaja en el Hospital General Bairen, y la hija apenas tiene ocho años. Excepto cuando regresa a casa durante las vacaciones para ayudar en la granja, generalmente vive y estudia en la escuela nacional.
-
-(Fin del capítulo).

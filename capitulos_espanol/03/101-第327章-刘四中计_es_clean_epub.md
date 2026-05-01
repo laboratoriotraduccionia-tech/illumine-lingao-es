@@ -128,5 +128,3 @@ Esa noche, Zhao Dachong y Zhao Haiji conversaron y decidieron que Zhao Dachong s
 "¿Todavía quiere dinero?", exclamó casi Zhao Dachong. "¡La última vez ya le dimos una caja llena de joyas!". Él no quería sacar el dinero, y tenía sus razones. Zhao Haiqing era el "administrador" del partido, y todos los fondos y suministros de la banda criminal pasaban por sus manos. Después de que la base fue destruida, la mayor parte de las reservas desaparecieron, pero aún quedaban muchos bienes escondidos en el pueblo de Daolu. Aunque estos bienes no estaban bajo el control de Zhao Dachong, él ya sabía, desde su padre, dónde estaban escondidos y la cantidad exacta. Él consideraba esta riqueza como su capital, y siempre había guardado este secreto, sin querer revelarlo fácilmente. Zhao Dachong, aunque era arrogante, no era estúpido: sabía que, para tener poder dentro de la banda, ya sea como líder o como un importante jefe, necesitaba controlar esa riqueza.
 
 Xin sabía desde ese día los planes de él. Sin embargo, en ese momento, el grupo de bandidos no tenía nada y solo Zhao Dachong tenía algunos bienes. Solo podía intentar convencerlo.
-
-(Fin del capítulo).

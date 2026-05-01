@@ -126,5 +126,3 @@ Con sus repetidos llamados, más de cien personas se reunieron a su alrededor, t
 PS: Las notas se incluyen en un volumen adicional de 4000 caracteres, y no se incluyen en el costo principal.
 
 Respecto a las actividades de ese grupo de bandidos, la información proviene de registros de actividades de bandidos de la época de la República de China, originarios de Lingao.
-
-(Fin del capítulo).

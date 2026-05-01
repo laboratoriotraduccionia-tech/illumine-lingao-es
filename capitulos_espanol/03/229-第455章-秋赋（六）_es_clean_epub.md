@@ -115,5 +115,3 @@ Después de neutralizar al grupo de funcionarios de Chen Minggang, el siguiente 
 Uno de los objetivos de ganarse a Zhou Qi era que actuara como asesor. Los defectos y las formas de fraude en el antiguo sistema de recaudación de impuestos… son secretos de esta industria específica, que no se pueden conocer solo leyendo antiguos documentos. Zhou Qi ha estado con Chen Minggang durante muchos años, por lo que seguramente tiene mucha experiencia en este campo.
 
 Otro objetivo era permitir que, durante la purga de los funcionarios, se revelaran sus secretos. Zhou Qi, al ser el discípulo principal de Chen Minggang, seguramente conocía muchos de los aspectos negativos de la clase de funcionarios del gobierno, lo que lo convertía en un excelente material para exponer y criticar. Generalmente, la gente tiende a relacionar la moral privada con el deber público. Los escándalos relacionados con la moral privada no solo sirven para perjudicar a alguien, sino que también hacen que la acción de perjudicar sea más atractiva para el público.
-
-(Fin del capítulo).

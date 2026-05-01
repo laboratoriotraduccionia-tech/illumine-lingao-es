@@ -103,5 +103,3 @@ Esto no es necesariamente algo malo. Sin embargo, la carga impositiva se calcula
 "¡Zhang! ¿Este año, el asunto de la recolección de grano sigue estando a cargo de Lao Ba?"
 
 "Por supuesto. Sin Lao Ba, y sin el libro de "Yulin Ce" en manos de los australianos, ¿cómo podríamos conseguir provisiones?", se preguntó Zhang Youfu.
-
-(Fin del capítulo).

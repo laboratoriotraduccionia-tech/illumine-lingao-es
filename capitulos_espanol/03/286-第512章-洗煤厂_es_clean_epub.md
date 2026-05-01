@@ -29,7 +29,7 @@ Esta es la propuesta de Luó Duó. Dado que la capacidad actual es limitada, ¿p
 
 "Ji Tuisi aún no te ha matado", dijo Wang Luobin. "El costoso equipo de producción conjunta de coque que consiguió con tanto esfuerzo desde el siglo XXI quedó inservible. La potencia de este sistema reside en la utilización integral del coque. Trata directamente el alquitrán y los gases residuales producidos durante el proceso de coquización para crear diversos subproductos. ¿Para qué iba a usar esos hornos de coque en la mina Jiuzi?".
 
-<p>En el pasado, los hornos de Kailuan se utilizaban principalmente debido a la inestabilidad en el suministro de carbón para coque. Sin embargo, los equipos combinados, una vez encendidos y puestos en marcha, no podían detenerse y reiniciarse a voluntad, por lo que nunca se utilizaron en funcionamiento regular. Ahora, con un suministro estable, los hornos de Kailuan, que son altamente contaminantes y desperdician muchos recursos, han sido incluidos por el comité como la primera tanda de tecnologías obsoletas a eliminar.</p>
+En el pasado, los hornos de Kailuan se utilizaban principalmente debido a la inestabilidad en el suministro de carbón para coque. Sin embargo, los equipos combinados, una vez encendidos y puestos en marcha, no podían detenerse y reiniciarse a voluntad, por lo que nunca se utilizaron en funcionamiento regular. Ahora, con un suministro estable, los hornos de Kailuan, que son altamente contaminantes y desperdician muchos recursos, han sido incluidos por el comité como la primera tanda de tecnologías obsoletas a eliminar.
 
 Ma Qianzhu aprobó con entusiasmo el plan de modernización de la mina Jiuzi, presentado por el comité de trabajo, y asignó los materiales y equipos necesarios. Establecer un sistema de suministro de carbón estable es ahora una prioridad absoluta.
 
@@ -70,5 +70,3 @@ El volumen del horno, diseñado para contener 125 metros cúbicos, permitiría p
 "¡Esto es como una montaña de acero y un mar de hierro!", exclamó Wang Luobin, muy entusiasmado. Con una capacidad de producción de hierro fundido tan enorme, el acero ya no sería un factor limitante para la industrialización de Lingao. Los ferrocarriles, los barcos con casco de acero, los grandes edificios con estructura de acero, las construcciones de acero y cemento, los equipos industriales completos… todo sería posible.
 
 Con un suministro masivo de acero, el grupo de "viajeros temporales" podría hacer que su producción industrial superara su actual escala, que es casi la de una fábrica, y avanzar hacia una verdadera producción industrial a gran escala.
-
-(Fin del capítulo).

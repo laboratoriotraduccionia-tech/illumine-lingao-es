@@ -20,7 +20,7 @@ Aunque era una mujer de vida disipada, su comportamiento era gentil y reservado.
 
 "¿A los quince años, se considera una niña o una adolescente? Es una pregunta difícil de responder. Recuerdo que Yushan dijo que, en la antigüedad, las niñas mayores de trece años se consideraban adultas y podían casarse cuando quisieran. A los quince años, probablemente ya tengan uno o dos hijos. Sin embargo, pensándolo bien, en el espacio-tiempo moderno, Qianqian todavía está en segundo año de la escuela secundaria… Además, con su figura delgada, su pecho plano y sus grandes ojos tiernos, Huang Tianyu simplemente no puede "conquistarla".
 
-<p>Sin embargo, rechazar la carne que se ofrece voluntariamente sería como explotar injustamente los recursos naturales. Huang Tianyu estaba en una lucha interna muy intensa.</p>
+Sin embargo, rechazar la carne que se ofrece voluntariamente sería como explotar injustamente los recursos naturales. Huang Tianyu estaba en una lucha interna muy intensa.
 
 En ese momento, se escuchaban ruidos provenientes de la habitación de al lado. Se podían oír, de forma tenue, los jadeos y gemidos de una mujer, y ocasionalmente, los fuertes gritos graves de Liu San.
 
@@ -91,5 +91,3 @@ Liu San sabía que este asunto no tenía mucha relación con ella; Shucui simple
 "Shuicui" aceptó todo de inmediato, pero como no sabía leer ni escribir, el asistente escribió su nombre, "Zhang Fubian", y ella puso su huella.
 
 Liu San se acercó primero y examinó a Huang Tianyu, abrió la boca para oler y luego comprobó sus reflejos de rodilla.
-
-(Fin del capítulo).

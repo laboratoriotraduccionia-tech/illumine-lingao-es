@@ -78,5 +78,3 @@ Inmediatamente, los "viajeros temporales" empezaron a tener ideas inapropiadas y
 Aunque la cercanía entre los "viajeros temporales" y Li Huamei aumentaba constantemente, debido a la cautela de los líderes superiores del Departamento de Fuerzas Marinas, los lugares donde Li Huamei realmente podía moverse seguían siendo limitados. Excepto por los veleros, todos los barcos con motor, desde el "Fengcheng" hasta los desembarcadores, no estaban disponibles para ella. Ma Qianzhu, al nombrar a los principales líderes de los órganos navales, fue muy perspicaz al elegir únicamente a oficiales navales de la antigua PLA, con la esperanza de aprovechar la conciencia que habían adquirido a través de la educación del partido para implementar la voluntad del Comité Ejecutivo.
 
 De esta manera, se formaron dos facciones dentro de la marina: una, un grupo de la administración naval compuesto por antiguos oficiales profesionales como Chen Haiyang, y otra, formada por aficionados a la marina y antiguos soldados de la marina. Las dos grandes facciones de la marina futura comenzaron a tomar forma en este momento.
-
-(Fin del capítulo).

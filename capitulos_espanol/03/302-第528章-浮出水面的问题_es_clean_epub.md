@@ -19,7 +19,7 @@ Segundo, esto facilita la delimitación de los problemas del pasado.
 
 "De acuerdo", dijo Mǎjiǎ. "Reúne este plan y envíalo de inmediato."
 
-<p>Tras debates en línea, la recepción de propuestas escritas y varias discusiones y votaciones, a principios de enero de 1630, finalmente se decidió el plan de asignación de secretarios personales. El plan de Ji Xin obtuvo el apoyo de la mayoría, y todos tenían reservas sobre los gustos estéticos de los demás en lo que respecta a las mujeres. Algunos, que habían traído a sus esposas y novias, y que aún no habían logrado la aprobación de sus familias, estaban profundamente angustiados por la posibilidad de perder esta oportunidad. La asignación de efectivo al menos les brindó una pequeña esperanza.</p>
+Tras debates en línea, la recepción de propuestas escritas y varias discusiones y votaciones, a principios de enero de 1630, finalmente se decidió el plan de asignación de secretarios personales. El plan de Ji Xin obtuvo el apoyo de la mayoría, y todos tenían reservas sobre los gustos estéticos de los demás en lo que respecta a las mujeres. Algunos, que habían traído a sus esposas y novias, y que aún no habían logrado la aprobación de sus familias, estaban profundamente angustiados por la posibilidad de perder esta oportunidad. La asignación de efectivo al menos les brindó una pequeña esperanza.
 
 "En medio de los quinientos miembros, solo Du Wen tenía una postura de oposición clara. Al escuchar que el tema de los sirvientes estaba siendo discutido abiertamente, Du Wen, furiosa, corrió directamente al patio de la sede del comité ejecutivo y abrió de golpe la puerta del despacho de Ma Qianzhu."
 
@@ -96,5 +96,3 @@ Sin embargo, si no se entrega de forma voluntaria, con el inicio de un movimient
 Mientras Chang estaba indeciso, Du Wen llegó, visiblemente molesta. Acababa de hablar con Mu Min, quien se había reído de sus palabras y había dicho: "Los hombres son animales sin paciencia. No es sorprendente". Incluso si Minglang quisiera tenerla, no le importaría, ya que sería simplemente una concubina, útil para cocinar, cuidar a los niños y lavar la ropa. Cualquiera que se negara a obedecer o que intentara interferir en la relación matrimonial sería "corregida hasta que obedeciera", dijo Mu Min, "para que supiera el poder de la esposa principal".
 
 "Du Wen" visitó inesperadamente, y ella pensó que quería discutir el asunto con ella, después de todo, "Du Wen" también es una accionista, y fue de las que más la apoyaron desde el principio. Para su sorpresa, "Du Wen" se sentó y comenzó a hablar de cosas como "secretarias personales", "violaciones de los derechos de las mujeres", lo que la molestó mucho. Sin embargo, "Du Wen" es al menos una funcionaria, y "Li Mei" no podía simplemente ignorarla. Así que preparó una taza de té y la acompañó en la conversación.
-
-(Fin del capítulo).

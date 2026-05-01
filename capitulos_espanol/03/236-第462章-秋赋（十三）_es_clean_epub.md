@@ -85,5 +85,3 @@ Suspiró con frustración: "…Ahora vivo un día a la vez, aprovechando que tod
 "Después de todo, somos maestro y discípulo", dijo Zhou Qi. "Él se encargó de ciertas cosas, ¿cómo podría yo no hacerlas? Si las hago, ¡no me agradará a nadie! ¡Es difícil!".
 
 "Gou Bulidao: 'Qige, aún debes buscar una solución lo antes posible'".
-
-(Fin del capítulo).

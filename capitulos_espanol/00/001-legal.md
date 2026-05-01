@@ -1,4 +1,4 @@
-# Aviso
+## Aviso
 
 Esta es una traducción no oficial de la novela china "临高启明".
 

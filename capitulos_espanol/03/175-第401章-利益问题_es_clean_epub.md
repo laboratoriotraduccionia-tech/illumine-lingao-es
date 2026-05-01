@@ -20,7 +20,7 @@ Sin embargo, la actitud de Fu Bueri hacia él seguía siendo ambigua. Aunque no 
 
 Este problema, que resultaba muy difícil de resolver, mantuvo a Wanlihui despierto toda la noche. Ni la agricultura ni la ganadería podían generar beneficios rápidamente. Él había pensado en ayudar a Fu Buer a desarrollar la industria de la sericicultura, un área que él conocía bastante bien, pero había muy pocos árboles de morera en la zona, y sería necesario esperar a que los árboles crecieran antes de poder criar gusanos de seda, lo cual, probablemente, llevaría demasiado tiempo.
 
-<p>Parece que, para enriquecerse rápidamente, todavía es necesario depender de la industria y el comercio. Wanlihui llegó a una conclusión que muchos antes que él habían llegado.</p>
+Parece que, para enriquecerse rápidamente, todavía es necesario depender de la industria y el comercio. Wanlihui llegó a una conclusión que muchos antes que él habían llegado.
 
 Pasaron casi dos semanas de esta manera. Cuando la siembra de arroz de la familia de Fu Bueri estuvo prácticamente terminada, y se habían impartido los puntos clave para el manejo de los campos, se preparó para regresar a la granja. Planeaba descansar unos días.
 
@@ -174,5 +174,3 @@ Wu De sonrojó ligeramente. En la casa de Wu, la hija mayor, Chuyu, todavía se 
 A continuación, se presenta una lista de los diversos incidentes relacionados con las interacciones con las poblaciones indígenas que el Grupo de Viajeros Temporales ha enfrentado hasta el momento. Para cada incidente, se detallan los procedimientos específicos utilizados, las opiniones de referencia y las directrices del Comité Ejecutivo. Este formato permite una consulta rápida y sencilla, ofreciendo una alternativa más clara y comprensible que las complejas leyes.
 
 "Hablemos del problema de las esclavas en el ejército", dijo Wu De, relatándole los acontecimientos del día. "Este tipo de situación es muy común: los señores envían a sus esclavas al ejército y, además, cobran su salario. ¿En qué lado debemos estar? Tras investigar, descubrimos que hay alrededor de treinta personas en el ejército que son esclavas locales, y es probable que haya más señores como Fu Buerui que piensan de manera similar."
-
-(Fin del capítulo).

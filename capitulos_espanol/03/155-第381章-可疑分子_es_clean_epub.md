@@ -107,5 +107,3 @@ Cuando el equipo de investigación se preparaba para partir, Wu De convocó a to
 "Los coordinadores se miraron unos a otros, sin saber qué estaban tramando esos australianos. ¿De qué servía esa cosa oscura?"
 
 Excavar este carbón era fácil, pero transportar tanta cantidad a la ciudad de Báirèn era una tarea considerablemente complicada. El camino de Nánbǎo a Báirèn era muy difícil; normalmente, la gente no iba a la ciudad a menos que fuera necesario, y mucho menos transportar tantas cosas a Dongménshì, que estaba aún más lejos que la ciudad. Todos los enlaces mostraron signos de preocupación y solicitaron una extensión en la fecha de entrega. Wú Dé sabía que la Comisión Agrícola necesitaba urgentemente este lote de fertilizantes, pero también sabía que el camino de la zona local a Báirèn era largo y difícil, y para aliviar la carga de la población, solo pudo aceptar una extensión de tiempo.
-
-(Fin del capítulo).

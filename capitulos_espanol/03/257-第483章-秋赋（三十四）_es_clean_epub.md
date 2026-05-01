@@ -104,5 +104,3 @@ A diferencia de los antiguos recibos de grano, que se elaboraban con papel áspe
 "¿Se debe pagar tres dou de arroz como impuesto por cada shi de cosecha?"
 
 "Se podría decir que es como si me hubieran quitado tres litros menos que cuando estaba con Chen Minggang", murmuró Liu Youren con descontento. Sin embargo, al examinarlo más de cerca, la cantidad de tierras sujetas a impuestos indicada en el documento era de 380 acres, igual que antes.
-
-(Fin del capítulo).

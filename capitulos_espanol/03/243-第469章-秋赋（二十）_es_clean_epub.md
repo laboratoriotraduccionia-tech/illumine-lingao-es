@@ -121,5 +121,3 @@ En cuestión de momentos, la ciudad de Lingao y la administración del condado d
 Los guardias de la policía, apiñados en el salón de flores, observaban con inquietud a Zhou Dongtian, quien daba órdenes extrañas. Lin Changsan parecía aún más asustado y adulador. Estaba a punto de arrodillarse. Esto provocó una risa silenciosa en el corazón de Zhou Dongtian: "Quieren engañar a la gente con este truco, haciéndose pasar por inofensivos? Lamentablemente, yo no soy un ingenuo que se cree que desprende un aura de buena suerte."
 
 "Distinguidos señores", Zhou Dongtian dijo lentamente, "ustedes son herederos de un legado ancestral transmitido a lo largo de muchas generaciones. Son expertos en métodos de interrogatorio, y mañana, durante el interrogatorio, les agradecería que colaboraran al máximo."
-
-(Fin del capítulo).

@@ -62,5 +62,3 @@ Para ser un lector, es necesario tener la calificación de estudiante o ser reco
 Cada estudiante que ingresa recibe una asignación para cubrir sus gastos. Esta asignación no consiste en bienes materiales como arroz, carbón o aceite para lámparas, sino en vales que se pueden utilizar en el mercado. Se distribuyen según un estándar de treinta yuanes por persona al mes. Además, se proporciona anualmente tela para mantas y para confeccionar ropa. Asimismo, los materiales de estudio como pinceles, tinta, papel, tintero y libros se proporcionan de forma gratuita, lo que hace que las condiciones sean consideradas muy favorables.
 
 Los estudiantes de la academia residían en el mismo lugar y recibían comidas proporcionadas por una cooperativa de restaurantes administrada por mujeres en el mercado de Dongmen. El nivel de las comidas era el mismo que el de los estudiantes de las escuelas primarias. Los estudiantes tenían un día de descanso cada seis días. Este sistema de descanso no fue inventado por los viajeros temporales; ya existían academias en la dinastía Ming que tenían un sistema de cinco días de trabajo y un día de descanso.
-
-(Fin del capítulo).

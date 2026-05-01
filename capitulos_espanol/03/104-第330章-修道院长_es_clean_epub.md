@@ -135,5 +135,3 @@ Liu San escuchó que le preguntaban sobre la acupuntura y pensó que este extran
 Liu San no pudo evitar reír y llorar al mismo tiempo; resultó que la medicina occidental también tenía afirmaciones que parecían magia. Antes, solo conocía la teoría de los cuatro humores, y ya la consideraba muy supersticiosa, pero no esperaba encontrar esta teoría aún más esotérica de "energía vital", que, de hecho, tenía mucho en común con los conceptos de yin y yang y los cinco elementos de la medicina tradicional china.
 
 Originalmente, él había pensado en sugerir al departamento de salud que reclutara a algunos médicos europeos a través de la iglesia o de comerciantes, para aprender de la experiencia local. Ahora parece que esto es innecesario. Lu Ruohua claramente es un intelectual, y si los intelectuales confían en este tipo de medicina, es mejor rechazar la medicina occidental en 1629.
-
-(Fin del capítulo).

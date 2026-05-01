@@ -91,5 +91,3 @@ En otra línea temporal, el departamento de organización es un departamento cla
 "Todos los miembros fundadores, siempre y cuando no hayan sido privados de sus derechos políticos, son elegibles para ocupar cargos de funcionarios administrativos de todos los niveles. Para facilitar la administración, la propuesta de Ma Qianzhu de establecer niveles, rangos y salarios finalmente fue aprobada. Sin una clasificación y un rango claros, era muy inconveniente en las operaciones diarias, especialmente en el ejército. Los nativos tenían rangos militares, pero los viajeros temporales no."
 
 Para evitar que las diferencias en el nivel jerárquico de los funcionarios causen conflictos internos entre los viajeros temporales, el Comité Ejecutivo decidió adoptar, en el nuevo sistema, la misma filosofía que en el pasado: es decir, que las diferencias materiales entre los diferentes niveles sean mínimas, y que la diferencia en los ingresos salariales entre el nivel más alto y el más bajo sea de solo 2 veces.
-
-(Fin del capítulo).

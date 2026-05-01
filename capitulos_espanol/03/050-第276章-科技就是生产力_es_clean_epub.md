@@ -72,5 +72,3 @@ Los miembros del equipo, incluyendo a Méilín, que habían venido para ayudar, 
 Chen Tianxiong no estaba muy preocupado. Aunque también tenía la tarea de capacitar a técnicos de mantenimiento, esta implicaba viajes de larga duración, por lo que no tenía que regresar inmediatamente y tenía suficiente tiempo para formar a aprendices. Wen Tong sugirió esperar a que se abriera la escuela para hijos de empleados de la fábrica de azúcar y, posteriormente, seleccionar aprendices de entre niños de trece o catorce años, según su rendimiento académico.
 
 Sin embargo, la acción de Chen Tianxiong llamó la atención de Chang Shide. Además de inspeccionar la máquina tres veces al día, Chang Shide a menudo conversaba con los miembros del equipo de investigación especial en el patio, y a veces se disfrazaba con ropa local, saliendo con el guía de los guardias de seguridad de Qide. Es evidente que Chen Tianxiong no solo vino a mantener la máquina; es muy probable que también sea un agente de inteligencia.
-
-(Fin del capítulo).

@@ -111,5 +111,3 @@ Chen Ming inicialmente fingió estar inconsciente, pero esto no engañó a Zhou 
 "Yo, yo", dijo Chen Minggang, finalmente cediendo.
 
 "De acuerdo, no se preocupe, hable con calma", Zhou Dongtian hizo un gesto para que alguien viniera a tomar nota. Una joven nativa, encargada de tomar apuntes, entró desde la habitación de al lado. Al ver a un hombre de mediana edad, prácticamente desnudo, sentado en una silla, con varios clips y cuerdas sujetando ciertas partes de su cuerpo, se quedó atónita. De repente, los clips para tomar apuntes cayeron al suelo con un ruido.
-
-(Fin del capítulo).

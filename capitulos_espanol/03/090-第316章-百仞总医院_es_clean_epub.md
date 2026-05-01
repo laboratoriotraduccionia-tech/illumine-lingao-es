@@ -27,7 +27,7 @@ La mayoría de las personas no necesitan hospitalización; basta con tratar adec
 
 Lo único que ponía en aprietos a los médicos era el suero antitetánico, que cada vez era más escaso y tenía una fecha de caducidad limitada. Después de usarlo, el estado de los heridos dependería de la suerte.
 
-<p>Para los pacientes en general, el médico simplemente revisaba el historial en la cabecera de la cama y preguntaba si había alguna situación inusual, y luego daba por terminado el examen. Incluso con estas tareas básicas y sencillas, Chang Shide a menudo descubría problemas.</p>
+Para los pacientes en general, el médico simplemente revisaba el historial en la cabecera de la cama y preguntaba si había alguna situación inusual, y luego daba por terminado el examen. Incluso con estas tareas básicas y sencillas, Chang Shide a menudo descubría problemas.
 
 "¡¿Por qué este paciente no tiene la temperatura corporal de la mañana?!" El director Shi volvió a estallar de furia, ¡esta es la cantidad de veces que ha tenido que lidiar con esto! "¿Quién es el responsable, Ban?"
 
@@ -135,5 +135,3 @@ En cuanto al centro de pruebas, Shi Niaoren espera expandirlo, de modo que pueda
 Finalmente, el asunto de la puesta en marcha de la fábrica de productos farmacéuticos. Este asunto es de suma urgencia. La fábrica de vidrio ya puede proporcionarles el equipo especializado necesario. La cepa de microorganismos que trajo la esposa de Hé Píng aún está en el laboratorio. Estos materiales no pueden almacenarse por mucho tiempo; es necesario ponerlos en producción lo antes posible. La química farmacéutica aún no es una opción viable…
 
 "Director, todos están aquí, ¿empezamos?",
-
-(Fin del capítulo).

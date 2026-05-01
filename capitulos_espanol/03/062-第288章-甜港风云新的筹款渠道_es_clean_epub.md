@@ -59,5 +59,3 @@ Sin embargo, lo que hicieron al intentar obtener créditos, no pudo ocultárselo
 文同 sintió un profundo arrepentimiento. Si hubiera sabido que las cosas llegarían a esto, no habría permitido que los hermanos de la familia Liao se fueran a ajustar sus inversiones. No lograron obtener nada, pero sí causaron muchos problemas. Ahora, básicamente, ha revelado todas sus cartas. Si aún no ha llegado el momento de ir a Dengyingzhou, la situación en el sur de China podría ser difícil de controlar.
 
 En cuanto a Xiao Zishan, Meilin y otros miembros del personal que estaban de viaje, estaban completamente indefensos. Al ver cómo la situación estaba a punto de desmoronarse, Chen Tianxiong dijo: "La situación actual requiere medidas drásticas. Si no actuamos, seremos expulsados de aquí".
-
-(Fin del capítulo).

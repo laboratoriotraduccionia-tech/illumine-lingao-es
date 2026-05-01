@@ -9,7 +9,7 @@ Lin Baiguang sabía que no podría reunirse directamente con Mabenyuan, ya que e
 
 Este inesperado regalo asustó a Mabenyuan: era un regalo que él mismo le había dado a Gou Er. ¿Cómo había aparecido de repente frente a él? Desde que Gou Er huyó miserablemente a Qingshan el año pasado, y le contó que la familia Zhuang había sido exterminada, Mabenyuan no había visto a este hombre en casi un año.
 
-<p>Al principio, él despidió sin rodeos a Gou Er, e incluso no le dio los tres mil tael de plata para encubrir el delito. No era que él quisiera quedarse con esa plata, sino que él había sido quien había conectado a Zhu Cai con la familia de Gou, actuando como una especie de garante. Ahora, el líder de este grupo ha sido arrestado, y no queda nada. Si Zhu Cai se enojara y viniera a buscar venganza, él no podría afrontarlo. Esa plata al menos podría ayudar a calmar un poco la ira de Zhu Da.</p>
+Al principio, él despidió sin rodeos a Gou Er, e incluso no le dio los tres mil tael de plata para encubrir el delito. No era que él quisiera quedarse con esa plata, sino que él había sido quien había conectado a Zhu Cai con la familia de Gou, actuando como una especie de garante. Ahora, el líder de este grupo ha sido arrestado, y no queda nada. Si Zhu Cai se enojara y viniera a buscar venganza, él no podría afrontarlo. Esa plata al menos podría ayudar a calmar un poco la ira de Zhu Da.
 
 Después de que Gou Er fue expulsado, Ma Benyuan vivió con constante temor. En el condado de Qionshan, él era alguien importante, pero frente a un líder como Zhucai Lao, no era nada.
 
@@ -92,5 +92,3 @@ En el registro de sobornos incautado en la caja de Gou Er, solo se mencionaban l
 Lo siguiente, que excede las 3000 palabras, no se cobrará.
 
 Nota: No he podido encontrar información precisa sobre si la provincia de Hainan era una provincia militar o una provincia administrativa, ni si esta provincia existía aún al final de la dinastía Ming. Algunos documentos solo mencionan que había una oficina de la provincia de Hainan dentro de la ciudad de Qionshan.
-
-(Fin del capítulo).

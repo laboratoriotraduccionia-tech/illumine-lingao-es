@@ -5,7 +5,7 @@ Originalmente, se había preparado una acusación muy severa contra Chang Shide.
 
 Incluso, algunas personas cuestionan si las motivaciones de personas como Dan Liang se debieron a los "celos". Chang Shide y otros lucharon arduamente en Leizhou, arriesgando sus vidas para asegurar los recursos azucareros de Leizhou, abrir el comercio con Vietnam y proporcionar fuentes estables de riqueza y suministros para el grupo de viajeros temporales. También encontraron la mina de carbón Hongji. Dada su contribución, no sería exagerado gastar algunas decenas de tael de plata de fondos públicos para comprar algunas mujeres para su propio disfrute. Si se insiste en este tema, solo causará desánimo entre el personal asignado.
 
-<p>Dan Liang y otros insistieron en la política de "separar los méritos de los deméritos, recompensar los méritos y castigar los errores", y buscaban prevenir la corrupción "desde sus primeras manifestaciones". Sin embargo, en varias reuniones del comité permanente, cada vez había menos personas que lo apoyaban, e incluso algunos propusieron simplemente suspender la investigación sobre Chang Shide. La nueva junta ejecutiva también demostró claramente su falta de interés en el asunto. Dan Liang, viéndose obligado, finalmente propuso presentar una investigación formal por "malversación de fondos públicos".</p>
+Dan Liang y otros insistieron en la política de "separar los méritos de los deméritos, recompensar los méritos y castigar los errores", y buscaban prevenir la corrupción "desde sus primeras manifestaciones". Sin embargo, en varias reuniones del comité permanente, cada vez había menos personas que lo apoyaban, e incluso algunos propusieron simplemente suspender la investigación sobre Chang Shide. La nueva junta ejecutiva también demostró claramente su falta de interés en el asunto. Dan Liang, viéndose obligado, finalmente propuso presentar una investigación formal por "malversación de fondos públicos".
 
 "Jī Xìn" pensó que, dadas las circunstancias actuales, la absolución de "Chang Shide" era inevitable. No solo eso, sino que el valor del caso era demasiado bajo: apenas diez tael de plata. Incluso en la dinastía Ming, eso no sería suficiente para justificar una acusación.
 
@@ -47,7 +47,7 @@ Finalmente, Chang Shide dijo: "Dado que todos creen que tengo sospechas de usar 
 
 A pesar de que, posteriormente, Danliang y otros cuestionaron y refutaron sus declaraciones, insistiendo en que ninguna contribución, por grande que fuera, podía servir como justificación para violaciones y malas conductas, y exigiendo un castigo severo para tales acciones, Chang Shide no hizo más declaraciones. Después de haber expresado plenamente sus ideas, se mostró humilde y manifestó que aceptaría incondicionalmente la decisión de los ancianos y que ya no se defendería.
 
-<p>Ji Xinyue observaba cada vez con más asombro. Chang Shide parecía un hombre corpulento, pero tenía muchos secretos ocultos. Los métodos técnicos que él mismo había preparado resultaron completamente inútiles.</p>
+Ji Xinyue observaba cada vez con más asombro. Chang Shide parecía un hombre corpulento, pero tenía muchos secretos ocultos. Los métodos técnicos que él mismo había preparado resultaron completamente inútiles.
 
 "Mǎjiǎ" observó que ambas partes habían terminado sus discursos y solicitó que todos votaran sobre si "Chang Shide" había cometido el delito de malversación de fondos públicos.
 
@@ -82,5 +82,3 @@ Después de que Ji Xinxuan leyó las preguntas, como de costumbre, Dugu Qiuhun r
 "Danliang" preguntó inmediatamente: "¿Con qué derecho crees que los manifestantes podrían cometer actos de vandalismo? ¿No es esto una forma de 'presunción de culpabilidad' sin fundamento? ¿Tienes tanta desconfianza en la conciencia política de los 'viajeros temporales'?"
 
 "Dugu Qiuhun no quería quedarse atrás: 'En este mundo, todas las manifestaciones deben ser aprobadas y están acompañadas por la policía. ¿Por qué se cree que los viajeros temporales tienen una comprensión superior a la de cualquier otra persona en el mundo?'"
-
-(Fin del capítulo).

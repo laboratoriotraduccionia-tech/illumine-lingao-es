@@ -107,5 +107,3 @@ El problema que él quería resolver era mucho más complejo. Ya tenía una idea
 "Yo también pienso eso, pero es necesario analizar la situación específica de cada lugar antes de tomar una decisión."
 
 Tras bañarse, las sirvientas vinieron a vaciar el agua sucia y a limpiar la habitación, llevando la ropa que habían usado para lavarla. Poco después, se sirvió la cena, acompañada de vino. Era un vino local de Xuwu, llamado "Xuwu Ye", elaborado con fruta de pan. En la mesa, Liao Dahua y Zhou Shizhai estuvieron presentes, y ambos bebieron una copa simbólicamente. Wen Tong no era un bebedor, y casi todo el vino terminó siendo consumido por Chang Shide. Aunque no llegó a embriagarse, sí se sentía ligeramente afectado. Wen Tong, sin poder hacer nada, le pidió a Wen Xiu que ayudara a llevar a ese hombre de vuelta a su habitación. Originalmente, Wen Tong había planeado hablar con él por la noche, pero ahora parecía que solo podría dormir cuando oscureciera.
-
-(Fin del capítulo).

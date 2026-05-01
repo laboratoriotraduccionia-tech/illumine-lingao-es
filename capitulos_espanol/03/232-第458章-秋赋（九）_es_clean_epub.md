@@ -90,5 +90,3 @@ Huang Binkun se alegró mucho. El hecho de que Liu Dalin estuviera dispuesto a i
 "Ustedes no dejan de hablar de 'mantener la paz y el orden', y eso está causando disturbios entre los agricultores. ¡Queremos ver cómo van a 'mantener el orden'!"
 
 Huang Bingkun se sintió secretamente satisfecho. Aunque no podía ir a la capital provincial para presentar una denuncia, aprovechar esta oportunidad para conectar a los grandes comerciantes fue un logro significativo.
-
-(Fin del capítulo).

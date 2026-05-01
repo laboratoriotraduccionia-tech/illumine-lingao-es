@@ -104,5 +104,3 @@ Mientras se sentía satisfecho, de repente vio a Yang Shixiang salir del interio
 Mientras hablaba, Huang Tianyu también regresó. Esa tarde, había estado con Chen Tong en Foshan, donde contrataron a un empleado de una posada como guía para visitar las industrias artesanales de Foshan. También estaban buscando personas que pudieran ser reclutadas. Comparado con Liu San y los demás, Huang Tianyu tuvo mucho más éxito en medio día.
 
 Visitó varios talleres de fundición y también algunos hornos de cerámica. Vio una gran cantidad de objetos utilitarios en proceso de fundición, como incensarios y campanas, y también muchos cañones. Se enteró de que la corte, debido a que el hierro de Guangdong era bueno pero no quebradizo, estaba llevando a cabo una producción a gran escala de cañones en Guangdong para su uso en Liaodong, y que muchos talleres de fundición estaban sobrecargados de trabajo.
-
-(Fin del capítulo).

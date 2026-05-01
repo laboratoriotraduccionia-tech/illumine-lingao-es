@@ -71,7 +71,7 @@ En su informe, destacó la reciente situación de inestabilidad ideológica dent
 
 "La postura de Yao Yulan no es firme y a menudo difunde comentarios que generan dudas", dijo Ke Yun. Luego, mencionó varias cosas que Yao Yulan había dicho. Debido a que el nivel cultural de la mayoría de los habitantes locales es demasiado bajo, no pueden escribir informes muy precisos. Ran Yao, durante el entrenamiento de los miembros del grupo de diez, se centró en entrenar la capacidad de repetir el lenguaje, es decir, repetir directamente el contenido de las conversaciones de los individuos que están siendo vigilados.
 
-<p>Wumu tomó nota de los puntos clave de su informe. Durante todo el proceso, él no hizo preguntas, esperando a que ella terminara de hablar antes de decir nada, para evitar interrumpir su relato. Luego, ella informó sobre las sospechas que tenía sobre Yang Cao: su edad era inusualmente avanzada, y aunque decía ser cantante, nunca la había escuchado cantar. Además, tenía conocimiento de organizaciones de espionaje gubernamentales como Dongchang y Jin Yiwèi, e incluso sabía que los funcionarios enviados para realizar tareas se llamaban "fanzizi".</p>
+Wumu tomó nota de los puntos clave de su informe. Durante todo el proceso, él no hizo preguntas, esperando a que ella terminara de hablar antes de decir nada, para evitar interrumpir su relato. Luego, ella informó sobre las sospechas que tenía sobre Yang Cao: su edad era inusualmente avanzada, y aunque decía ser cantante, nunca la había escuchado cantar. Además, tenía conocimiento de organizaciones de espionaje gubernamentales como Dongchang y Jin Yiwèi, e incluso sabía que los funcionarios enviados para realizar tareas se llamaban "fanzizi".
 
 姚玉兰的事情, a Wu Mu no le interesaba; ya fuera pedirle que abandonara la escuela directamente o continuar observándola durante un tiempo, no era un asunto importante. Sin embargo, el caso de Yang Cao era especial: ¿podría esta mujer ser una espía?
 
@@ -90,5 +90,3 @@ A continuación, ella informó sobre la situación ideológica de varias otras p
 "Entendido."
 
 "En cuanto a la tendencia de Yao Yulan a dudar, debes prestar atención y eliminar constantemente sus influencias negativas", dijo Wumu. "Debes darles a todos confianza."
-
-(Fin del capítulo).

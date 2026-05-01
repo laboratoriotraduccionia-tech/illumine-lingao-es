@@ -76,4 +76,3 @@ Ran Yao dijo: "Sin embargo, el hijo de Gou Er sigue siendo un 'xiucai' (estudian
 
 "Entonces, nosotros mismos podemos emitir una orden de búsqueda en secreto", pensó Lin Baiguang. "Si no es el condado de Lingao quien emite la orden de búsqueda, este anuncio carecería de validez. No podemos emitirlo en nombre del comité ejecutivo, ¿verdad? O simplemente podemos emitir una orden de búsqueda contra Gou Er personalmente."
 
-(Fin del capítulo)

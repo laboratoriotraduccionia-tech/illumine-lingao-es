@@ -70,4 +70,3 @@ Ella participó en un curso de formación en defensa política, y después de te
 
 "造反" es una palabra extremadamente aterradora para la gente común, ya que implica términos aún más aterradores como "decapitación" o "involucrar a nueve generaciones". Lu Cheng se despertó varias veces sobresaltado de su sueño al pensar que él y toda su familia estaban involucrados en la revuelta de los "traidores".
 
-(Fin del capítulo)

@@ -83,5 +83,3 @@ Xiao Zishan frunció el ceño y pensó: "Dan Liang ha estado hablando durante mu
 "¡Derrocar a los ambiciosos!"
 
 ……
-
-(Fin del capítulo).

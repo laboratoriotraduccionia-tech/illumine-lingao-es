@@ -111,5 +111,3 @@ Chang Shide propuso un plan en el que estos dos millones de yuanes se utilizarí
 "… Todas las personas que nos venden azúcar deben dar una parte a 'Er Kou', pero si no nos unimos a ellos, no podremos acceder a los préstamos y subsidios. La gente siempre busca evitar las desventajas, así que cuando tú implementes la asociación de la industria azucarera, será mucho más fácil."
 
 "¿Eso significa que todavía tenemos que explicarlo públicamente y a la gente común? ¿O deberíamos convocar una asamblea para explicarlo?"
-
-(Fin del capítulo).

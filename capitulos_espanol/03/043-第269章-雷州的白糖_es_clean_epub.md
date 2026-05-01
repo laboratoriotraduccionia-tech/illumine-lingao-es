@@ -71,5 +71,3 @@ Después de que Wen Tong desembarcó, su primer paso fue visitar rápidamente la
 Para garantizar la seguridad de Wen Tong, el comité ejecutivo envió al asesor de la comisaría, Zhou Shizhai, acompañado de un aprendiz para protegerlo. Él y los hombres de Qi Wei provenían de una misma empresa de seguridad, lo que facilitó la comunicación. Además, un viajero temporal llamado Chang Shide lo acompañó. Él no tiene ninguna relación con la producción de azúcar o caña de azúcar, pero es alto y robusto, y es un entusiasta de lo militar. Después de varios meses de entrenamiento, tiene un buen dominio de las armas y puede manejar espadas. Su presencia no se debe a su fuerza, sino principalmente para que los dos viajeros temporales puedan comunicarse entre sí, ya que no podrían hacerlo con los nativos debido a la falta de un idioma común.
 
 Con la ayuda de las extensas instalaciones y líneas de comunicación de Qǐwēi en Leizhou, el viaje de Wen Tong con la caña de azúcar fue tanto conveniente como seguro. Después de desembarcar en Dēnglóngjiǎo, el gerente de la sucursal de Qǐwēi en Leizhou, Haikang, lo recibió con un palanquín y guardias.
-
-(Fin del capítulo).

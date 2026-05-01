@@ -1,7 +1,7 @@
 ## Capítulo 358: Viaje a Foshan (once)
 
 
-<p>Hablando de este Lin Baihu, era un hombre de apariencia distinguida, pero con ciertas limitaciones. Desde que heredó el cargo de "shi baihu" que había pertenecido a su familia, mostró una tendencia a aumentar el número de mujeres en su hogar. Se dedicó a buscar mujeres hermosas, y si no fuera por las restricciones de su posición y sus recursos financieros, probablemente ya habría tenido a doce o trece concubinas. Incluso así, cuando se casó, ya tenía cuatro "dajin gang" (un término que se refiere a un grupo de mujeres cercanas). Con la llegada de la señora Lin, Lin Ming, con satisfacción, dijo: "Esto es lo que se conoce como 'wufu pengshou' (un deseo de longevidad y felicidad)."</p>
+Hablando de este Lin Baihu, era un hombre de apariencia distinguida, pero con ciertas limitaciones. Desde que heredó el cargo de "shi baihu" que había pertenecido a su familia, mostró una tendencia a aumentar el número de mujeres en su hogar. Se dedicó a buscar mujeres hermosas, y si no fuera por las restricciones de su posición y sus recursos financieros, probablemente ya habría tenido a doce o trece concubinas. Incluso así, cuando se casó, ya tenía cuatro "dajin gang" (un término que se refiere a un grupo de mujeres cercanas). Con la llegada de la señora Lin, Lin Ming, con satisfacción, dijo: "Esto es lo que se conoce como 'wufu pengshou' (un deseo de longevidad y felicidad)."
 
 En ese momento, Lin Baihu estaba sentado en el lugar reservado para el jefe de familia, al lado de la señora, con cuatro concubinas dispuestas en una fila semicircular detrás de él, creando una escena de adulación. Lin Ming miraba a su alrededor, muy orgulloso.
 
@@ -140,4 +140,3 @@ Y así, los viajeros temporales partieron hacia su destino. Sabían que el camin
 
 "Señor," dijo Cheng, el administrador, acercándose con respeto: "¿Cómo vamos a organizar la cena? ¿Deberíamos usar al cocinero que el señor trajo para preparar platos de cocina extranjera?" La familia Li, debido a sus constantes tratos con comerciantes occidentales, siempre tenía cocineros especializados en cocina extranjera, así como diversos condimentos, utensilios, ingredientes y provisiones, y esta vez se trajeron todo. Además de atender a dos invitados extranjeros, también planean invitar a algunos clientes habituales a disfrutar de una comida variada.
 
-(Fin del capítulo)

@@ -110,5 +110,3 @@ Estas palabras se unieron repentinamente en una ola, golpeando con fuerza a Fú 
 "¡Este muchacho no sirve para nada!", pensó Wang Ruiren con desprecio. "Tiene más de treinta años y es un hombre, pero no asume ninguna responsabilidad por sus propios asuntos."
 
 "Fu Yizhuang sintió resentimiento: ¿Cómo podría yo asumir responsabilidades en esta familia? Fu Yousan controla todo con mano de hierro; aunque es el hijo mayor, en casa es como un capataz, constantemente siendo utilizado. Obviamente, no podía decir esto, así que simplemente bajó la cabeza y guardó silencio."
-
-(Fin del capítulo).

@@ -105,5 +105,3 @@ Cuanto antes se inicie el transporte de dinero y provisiones, más barato será 
 "La situación es más complicada de lo que parece", dijo Wang Zhaomin. "Los ingresos fiscales de este condado tienen varios destinos."
 
 De los siete mil seiscientos ochenta y seis "shi" de grano de otoño, seis mil cuatrocientos ochenta y nueve "shi" correspondían al arroz almacenado en el Granero Imperial. Esta era la parte del grano de otoño que debía ser transportada.
-
-(Fin del capítulo).

@@ -78,5 +78,3 @@ Wang Luobin preguntó sobre los asuntos internos de la finca Xuedian. Ludai expl
 王赐, muy estimulado, sintió una gran excitación. Como máximo líder del departamento de educación del condado de Lingao, durante la dinastía Ming, se preocupaba constantemente por la escuela del condado. ¡Estos australianos, sin hacer ruido, habían establecido una escuela! Por lo que entendió por la forma de hablar de "Lù Dà", parecía que la estaban gestionando muy bien.
 
 "Sí", dijo Ludai, mirándolo con curiosidad. "Usted, señor Gao, ¿no lo sabe? Mis dos hijos ya han estado estudiando durante varios meses."
-
-(Fin del capítulo).

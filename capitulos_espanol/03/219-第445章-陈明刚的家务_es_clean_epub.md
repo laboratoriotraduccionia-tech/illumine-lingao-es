@@ -80,5 +80,3 @@ Esta instrucción provenía directamente de Ran Yao. La intención de Ran Yao er
 "¿Queremos echar más leña al fuego? ¿Hacerlo más intenso?", preguntó.
 
 "¿Todavía hay materiales útiles disponibles?"
-
-(Fin del capítulo).

@@ -66,7 +66,7 @@ Después de que la operación para atraer al enemigo tuvo éxito, Liu Si tambié
 
 "A partir de ahora, trabaja con diligencia. Primero, concéntrate en el trabajo en la aldea de Daolu, y luego, gradualmente, lo expandiremos a otras aldeas". La situación en las trece aldeas es actualmente muy favorable, y la prioridad para el próximo trabajo del equipo es realizar una investigación social. No habrá tiempo para ocuparse de los asuntos específicos de la aldea. Confío en que Liu Si no tendrá problemas importantes."
 
-<p>Sin embargo, a pesar de todas esas excelentes situaciones, quedaron algunas consecuencias que dejaron insatisfecha a Du Wen: el número de personas bautizadas aumentó considerablemente. Desde la pareja Mei, hasta que toda la aldea se apresuró a ir a la iglesia para escuchar las enseñanzas y ser bautizada. Lu Ruohua se alegró tanto que todos los días agradecía a Dios. Baiduo Lu, por su parte, fue visto con otros ojos, y Baiduo Lu estaba sufriendo, ya que ahora era "bombardeado" todos los días por el padre Lu, quien le pedía que hiciera un voto para convertirse en monje.</p>
+Sin embargo, a pesar de todas esas excelentes situaciones, quedaron algunas consecuencias que dejaron insatisfecha a Du Wen: el número de personas bautizadas aumentó considerablemente. Desde la pareja Mei, hasta que toda la aldea se apresuró a ir a la iglesia para escuchar las enseñanzas y ser bautizada. Lu Ruohua se alegró tanto que todos los días agradecía a Dios. Baiduo Lu, por su parte, fue visto con otros ojos, y Baiduo Lu estaba sufriendo, ya que ahora era "bombardeado" todos los días por el padre Lu, quien le pedía que hiciera un voto para convertirse en monje.
 
 "Con su talento, su devoción a Dios y su contribución a la difusión del evangelio, usted es la persona ideal para ser el próximo arzobispo de la diócesis de Guangdong, y además, ocupará el cargo de director de varios monasterios prósperos…"
 
@@ -99,5 +99,3 @@ He Ying recibió el telegrama de Bai Dalü y, sin mostrar ninguna negligencia, s
 "Según la experiencia social de He Ying en otra dimensión temporal, seguramente diría: 'Estoy de acuerdo con su punto de vista'. Sin embargo, aquí no es necesario decirlo."
 
 "Sí", dijo Hé Yǐng, "Después de esta campaña contra los bandidos, seguramente habrá muchos huérfanos de bandidos en los diferentes pueblos. No podemos matar a estos niños, pero criarlos nosotros mismos sería un problema. Sería mejor que los monasterios los acogieran y los educaran. Así no se desperdician recursos, y además, podríamos influir en su pensamiento, usar la idea del infierno después de la muerte para controlarlos. ¿No es más efectivo que usar armas?". "Es una solución que beneficia a todos", añadió.
-
-(Fin del capítulo).

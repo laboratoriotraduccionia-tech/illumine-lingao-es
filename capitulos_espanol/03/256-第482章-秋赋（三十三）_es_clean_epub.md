@@ -97,5 +97,3 @@ Esta declaración representa a los habitantes de Lingao. Xiong Buyou sintió cie
 "Los 'viajeros temporales' llegan a Lingao, y sin embargo, insisten en proteger el territorio y asegurar la paz, como si no supieran que, en este mundo, proteger el territorio es fácil, pero asegurar la paz es lo más difícil". Liu Dalin adoptó una actitud de superioridad, "Con el poder de los 'viajeros temporales', con sus armas de fuego, cañones y barcos, no hay nada igual en los últimos trescientos años. Sin embargo, ganarse el favor del pueblo es un proceso que lleva tiempo".
 
 Xióng Bǔyòu escuchó esto y se sintió molesto, pero él era el responsable de las relaciones exteriores, esencialmente un diplomático, y no podía mostrarse sin modales. Inmediatamente, adoptó una actitud de escucha atenta.
-
-(Fin del capítulo).

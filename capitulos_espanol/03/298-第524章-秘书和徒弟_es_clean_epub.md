@@ -103,5 +103,3 @@ Ji Runzhi, sin poder evitarlo, decidió ponerle a la niña el nombre de Ji Yuan 
 "Jaja, realmente estás bromeando", dijo Hu Qingbai, reprendiéndole. "Crees que estás en un lugar como el nuestro. Aquí, los niños de trece o catorce años ya son mano de obra. No te preocupes, ellos se encargarán de ti y te tratarán muy bien, como a un maestro".
 
 "Si fuera así, todo estaría bien", pensó Ji Runzhi, mirando a la joven de pelo rubio, Ji Yuan. Pensó que la niña era tan delicada, que no solo sería difícil contratarla, sino que probablemente necesitaría que alguien la cuidara incluso en el día a día. Al pensar en esto, su buen humor desapareció, y maldijo a Wang Luobin en su mente varias veces.
-
-(Fin del capítulo).

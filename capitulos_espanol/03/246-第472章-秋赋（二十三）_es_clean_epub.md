@@ -107,5 +107,3 @@ De esta manera, surgieron dos problemas importantes.
 "El puesto de secretario de la casa, que quedó vacante, será ocupado por Zhou Qi", dijo Xiong Buyou. El trabajo en la casa es muy demandante, y ahora hay asuntos relacionados con los impuestos de otoño que deben atenderse, por lo que no se puede contratar a alguien sin experiencia; Zhou Qi es la persona más adecuada para el puesto.
 
 "Zhou Qi obtuvo este puesto traicionando a su maestro, y por lo tanto, no es bienvenido por sus colegas. Solo sirviendo lealmente al grupo de viajeros temporales puede mantener su puesto y su vida."
-
-(Fin del capítulo).

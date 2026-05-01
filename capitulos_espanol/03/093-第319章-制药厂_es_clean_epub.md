@@ -90,5 +90,3 @@ El principio es muy simple, pero todo el sistema es extremadamente costoso. No s
 Sin embargo, la fábrica de productos farmacéuticos fue uno de los diez proyectos prioritarios durante el período "Uno-Cinco", un proyecto que, según decía Ma Qianzhu, era tan importante que "haría que uno se bajara los pantalones" para llevarlo a cabo. Afortunadamente, este pequeño problema no requirió que Ma Qianzhu se bajara los pantalones, sino que solo provocó la protesta de los departamentos de electricidad y telecomunicaciones, que se sintieron perjudicados por la asignación de recursos.
 
 Este proyecto se puso en marcha rápidamente, y la fábrica de maquinaria comenzó a fabricar las tuberías y los equipos relacionados según los planos.
-
-(Fin del capítulo).

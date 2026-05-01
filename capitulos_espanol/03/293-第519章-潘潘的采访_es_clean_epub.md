@@ -71,5 +71,3 @@ En cuanto a Ruan Xiaoqi, sus habilidades con los cañones no eran inferiores a l
 Ruan Xiaowu tuvo que hacer un gran esfuerzo para encontrar a su hermano mayor y a su hermano menor. Ruan Xiaoe, precisamente, no tenía turno esa noche y podía pedir permiso para salir durante unas horas, y Ruan Xiaqi también pidió permiso en la escuela militar y política.
 
 Tres hermanos entraron juntos en la cooperativa y restaurante "Dongmen Shi". Durante su servicio militar, habían desarrollado una apariencia pulcra y erguida, y al entrar en el restaurante, atrajeron la atención de muchas personas. El sargento de la marina, el subteniente de la marina y el cadete de la marina, con sus diferentes insignias y distintivos, y con la espada de oficial de Ruán Xiaowu, se convirtieron en el centro de atención de todos en el restaurante. Los tres hermanos de la familia Ruán, bajo la mirada de todos, estaban a la vez emocionados, orgullosos y un poco avergonzados. Un camarero del restaurante, observando cuidadosamente, los condujo a una sala privada.
-
-(Fin del capítulo).

@@ -72,5 +72,3 @@ Después de calentarse, el cloruro de sodio se introduce fácilmente en la celda
 El electrolito comenzó a fluir desde la salida. El color era claro y no salía ningún líquido negro y alarmante. Esperó en silencio durante cinco minutos para calcular si el flujo del electrolito era normal. Finalmente, midió la temperatura y el voltaje dentro del tanque; todo estaba normal. La temperatura y el voltaje determinan la eficiencia del proceso electroquímico dentro del tanque.
 
 "¿Es esta la solución de hidróxido de sodio?", preguntó Bái Yǔ.
-
-(Fin del capítulo).

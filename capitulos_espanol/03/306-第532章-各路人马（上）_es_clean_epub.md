@@ -57,7 +57,7 @@ Chang Shide salió un momento y trajo una carta. La carta provenía de Guangzhou
 
 "Chang Shide" se emocionó aún más: "Parece que solo los camaradas que están en la misma situación pueden entender las dificultades de los demás". Él hizo un gesto con la mano: "¡Nosotros también debemos proponer algo! ¡Para que los 'nerds' de "Lingao" sepan que trabajar fuera es difícil!".
 
-<p>Fuera de la ciudad de Bairen, se encuentra la base del batallón de entrenamiento de la infantería.</p>
+Fuera de la ciudad de Bairen, se encuentra la base del batallón de entrenamiento de la infantería.
 
 En una sala de reuniones, las luces estaban encendidas, pero las cortinas estaban cerradas herméticamente. No solo estaban cerradas las cortinas, sino que también se habían cerrado las persianas de madera que se utilizaban para proteger contra los tifones.
 
@@ -80,5 +80,3 @@ Wei Aiwen se puso de pie, ajustó su cinturón y, con paso firme que reflejaba l
 El club de oficiales jóvenes era un pequeño grupo formado por oficiales jóvenes del ejército, todos ellos jóvenes. Lo que los unía era una ferviente admiración por el ejército alemán y una profunda reverencia por el sistema militar del Tercer Reich.
 
 En el sistema de fuerzas terrestres del grupo de viajeros temporales, los oficiales que desempeñan funciones están claramente divididos en dos categorías. Una categoría está representada por personas como Hé Míng y Ying Yu, que son ex militares o policías armados originarios de la antigua PLA (Ejército Popular de Liberación). La otra categoría son los llamados "oficiales civiles", y personas como Wèi Ài Wén son representativas de este grupo. La mayoría son personas que, en otra época, sintieron una gran pasión por el militarismo, pero que no pudieron servir en el ejército. Dentro de estas dos categorías, los oficiales que provienen de la experiencia militar reciben más atención debido a su dominio de habilidades especializadas, y ocupan puestos importantes. Por otro lado, los oficiales civiles, además de su entusiasmo y sus conocimientos teóricos sobre el militarismo, la mayoría no han tenido experiencia con armas, y por lo tanto, no reciben mucha atención en el ejército.
-
-(Fin del capítulo).

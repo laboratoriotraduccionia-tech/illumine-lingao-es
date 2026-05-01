@@ -106,5 +106,3 @@ Al ver que todavía dudaba, Yang Shixiang le entregó muestras de la medicina pa
 "En cuanto a la medicina, no hay problema", dijo Yang Shiyi. "Pero tampoco es nada sorprendente, simplemente sirve para mejorar la concentración y abrir la mente. Para venderla en la tienda de Yang Run, probablemente no sería muy conveniente. ¿Qué te parece esto? Como has venido desde lejos, no puedo dejarte sin nada. Más tarde llamaré al encargado de 'Gongji Tang' y te ayudaré a venderla allí, ¿te parece bien?".
 
 "Yang Shixiang" cambió inmediatamente su expresión. Recordaba las palabras de "Liu San": para abrir nuevos mercados, ahora solo podía contar con la ayuda de "Yang Runkai". No podía enfrentarse directamente a "Gongji Tang". Sin embargo, si sus productos se vendían en "Gongji Tang", los precios se desplomarían, y la esperanza de abrir nuevos mercados sería muy pequeña. ¿Cómo podría hacer eso, especialmente después de que "Liu San" le había proporcionado la fórmula y el capital inicial?
-
-(Fin del capítulo).

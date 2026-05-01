@@ -131,10 +131,8 @@ Zhou Shizhai sabía que estos australianos querían reclutar a este joven erudit
 
 Xiao Zishan, aunque consideraba que no era apropiado, sabía que en la cocina solo había un plato de arroz frío y unas pocas verduras saladas; no era suficiente ni siquiera para él mismo, y mucho menos para recibir invitados. Además, pensó que la otra persona era tan abierta y sincera, ¿por qué él debía ser tan formal? Así que decidió no seguir insistiendo.
 
-<p>Apenas un momento después, Zhou Shizhai regresó, acompañado de un asistente que llevaba una cesta de comida. Dentro, había una variedad de platos, tanto fríos como calientes, bastante abundantes, lo que hizo que Xiao Zishan, que llevaba mucho tiempo sin probar carne, tragara saliva con fuerza.</p>
+Apenas un momento después, Zhou Shizhai regresó, acompañado de un asistente que llevaba una cesta de comida. Dentro, había una variedad de platos, tanto fríos como calientes, bastante abundantes, lo que hizo que Xiao Zishan, que llevaba mucho tiempo sin probar carne, tragara saliva con fuerza.
 
 "¡Qué generosidad!" Él hizo una reverencia. "Su amabilidad es inmensa, y yo, Chang, no tengo cómo corresponderla. Me siento avergonzado, avergonzado."
 
 "No hay necesidad de formalidades, todos somos hermanos". Chen Tianxiong, en su vida anterior, había participado en muchas reuniones sociales, y estaba muy familiarizado con las técnicas de establecer relaciones y crear cercanía. Mientras brindaba y bebía, y después de unas cuantas copas, la conversación se volvió cada vez más animada, y entonces comenzó a abordar el tema principal.
-
-(Fin del capítulo).

@@ -132,5 +132,3 @@ Entraban por la puerta principal y salían por la trasera. Detrás de la tienda 
 Sin embargo, las entradas privadas siempre se encuentran en lugares tranquilos. Xiao Zishan guio el camino, rodeando la sede del condado y adentrándose en las zonas más apartadas del mismo. A ambos lados de las calles, predominaban los muros traseros de las grandes casas, con altos muros de protección que solo se abrían mediante pequeñas puertas. Había pocos transeúntes.
 
 Después de tomar varios giros, llegaron a una pequeña puerta doble. Xiao Zishan se detuvo y dijo: "Es aquí".
-
-(Fin del capítulo).

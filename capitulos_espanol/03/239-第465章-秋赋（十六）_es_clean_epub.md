@@ -88,5 +88,3 @@ En las paredes, como en un puesto de venta de pinturas, había colgadas de forma
 En la esquina, se colocaban al azar varios grandes jarrones, dentro de los cuales se insertaban escobas de plumas de gallina de una manera poco convencional. Estos jarrones eran más altos que una persona, no eran útiles en la industria, y la mayoría de la gente no los quería para decorar sus casas. Era una lástima desecharlos, así que se decidió utilizarlos aquí para darles una segunda vida.
 
 "Obviamente, la capacidad de apreciación de los australianos es muy pobre. Decir que son "nuevos ricos" es incluso halagarlos. Liu Dalin negó con la cabeza en silencio; incluso los ricos locales de este condado tienen mejor gusto que ellos."
-
-(Fin del capítulo).

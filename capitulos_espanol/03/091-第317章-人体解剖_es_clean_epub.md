@@ -124,5 +124,3 @@ El hipopótamo, al otro lado de la plataforma, abrió quirúrgicamente una de la
 Shi Nao Ren explicaba, y mientras explicaba, el hipopótamo extraía el estómago y los intestinos de la cavidad abdominal, los colocaba en una bandeja de acero inoxidable para que las enfermeras los vieran, y luego los examinaba para detectar cualquier alteración específica, antes de colocarlos en un frasco de vidrio. Debido a que el departamento de química solo podía producir una cantidad limitada de formaldehído, por el momento no tenía la intención de crear demasiadas muestras de cuerpos humanos.
 
 Shi Niaoren explicaba mientras realizaba la disección, y rápidamente el aire del lugar se llenó de un fuerte olor a sangre y a putrefacción. Aibeibei abrió el ventilador, lo que mejoró un poco el ambiente.
-
-(Fin del capítulo).

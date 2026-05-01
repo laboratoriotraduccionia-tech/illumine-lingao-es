@@ -116,5 +116,3 @@ Tras contar a los prisioneros, se descubrió que el último de los Cuatro Reyes 
 "No importa si se escapa uno; que el condado publique un aviso de búsqueda", dijo Xiong Buyou, quien era responsable de la coordinación, con total indiferencia. Él trajo una noticia importante: "El señor Wu quiere que entreguemos las cabezas de los líderes de los bandidos al condado lo antes posible, para mostrarlas públicamente".
 
 Wu Mingjin sabía que los "kunzei" (bandidos) estaban a punto de lanzar una gran operación contra los rebeldes, y que su oportunidad de mejorar su reputación había llegado de nuevo. Ahora, ya no odiaba tanto a los "kunzei", especialmente después de que, la última vez, los "kunzei" le entregaran una gran cantidad de cabezas de piratas, lo que, al presentarse el informe, naturalmente se atribuyó a su "liderazgo de milicias locales para atacar". Esta vez, el informe de éxito fue bien recibido por el "fudatai" (alto funcionario), lo cual no era raro; sin embargo, fue inusual que hubiera tantas cabezas de piratas reales y pruebas incriminatorias, lo que incluso le dio prestigio al "zhifu" (prefecto).
-
-(Fin del capítulo).

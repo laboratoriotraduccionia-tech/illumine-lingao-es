@@ -90,5 +90,3 @@ Todos se reunieron y, al mirar dentro de una caja recién abierta, encontraron u
 "Este es el fusil automático M77B1", dijo Lin Chuancheng. "En realidad, es un fusil automático AKM que utiliza munición de 7.62 mm de la OTAN". Zhou Weishen dijo: "También es de fabricación yugoslava".
 
 "Así que, según esto, los traficantes de armas estaban vendiendo armas de Yugoslavia. Es una elección realmente extraña."
-
-(Fin del capítulo).

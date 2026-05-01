@@ -153,4 +153,3 @@ PS: El siguiente contenido está fuera de los 4000 caracteres de suscripción.
 Debido a la falta de suficientes fuentes históricas de Vietnam, gran parte del contenido de este artículo y de todos los detalles posteriores relacionados con la historia de Vietnam son, en su mayor parte, especulaciones.
 
 No está claro si "Haifang" se llama "Haiyang"; esto requiere más investigación, pero la ubicación geográfica es similar.
-(Fin del capítulo)

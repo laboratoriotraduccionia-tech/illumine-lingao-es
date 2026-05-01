@@ -60,5 +60,3 @@ Antes de cualquier acción, antes de cualquier batalla, se celebraba una reunió
 Descubrió que en el ejército australiano se fomentaba especialmente la "iniciativa" y la "capacidad de acción" tanto de los soldados como de los oficiales de rango inferior. Si bien se enfatizaba la obediencia a las órdenes y el cumplimiento de la disciplina, también se exigía que tuvieran sus propias opiniones sobre cómo mejorar el combate y que fueran capaces de manejar diversas situaciones imprevistas.
 
 Con el tiempo, comenzó a comprender los beneficios de esto: en cualquier situación, los soldados sabían lo que debían hacer, en lugar de quedarse paralizados o dispersarse.
-
-(Fin del capítulo).

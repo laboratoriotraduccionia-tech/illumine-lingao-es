@@ -87,5 +87,3 @@ Cada vez que Wanlihui visitaba el pueblo, mucha gente venía a preguntarle sobre
 "Haz lo que quieras", dijo Fu Xi. "¿Cuándo vas a regresar?"
 
 "¿Qué, me quieres echar?", Wànlìhuī sonrió mientras miraba a Fú Xǐ. Él y esta hija de la familia Fú ya se conocían bastante bien. Habían desarrollado buenos sentimientos el uno por el otro, y sus conversaciones eran mucho más informales.
-
-(Fin del capítulo).

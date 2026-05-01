@@ -122,5 +122,3 @@ Finalmente, expresó su satisfacción con la higiene y el orden del lugar y sali
 "Fu Wuben sintió un sudor frío recorrer su cuerpo. Lu Jia, con suficiencia, dijo: "Mira, aquí las reglas son estrictas. En la pared hay un reglamento para los dormitorios, más te vale memorizarlo."
 
 "No sé leer", dijo Fu Wuben, sintiéndose un poco avergonzado.
-
-(Fin del capítulo).

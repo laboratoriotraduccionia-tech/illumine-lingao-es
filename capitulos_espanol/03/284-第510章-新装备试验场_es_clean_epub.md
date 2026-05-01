@@ -65,5 +65,3 @@ Afortunadamente, todavía hay algunos aspectos positivos aquí. Cerca de la mina
 Transportar carbón con embarcaciones pequeñas es muy ineficiente; estas embarcaciones, incluso cuando están completamente cargadas, solo pueden transportar entre cinco y seis toneladas. Incluso si operan constantemente durante todo el día, no se pueden transportar más de doscientos toneladas, por lo que el carbón debe esperar pacientemente en el almacén del muelle de Haijia durante muchos días, hasta que se pueda completar una carga completa de carbón de Qionghai. Ni hablar de transportar estos minerales coexistentes.
 
 En cuanto a las condiciones de navegación natural del río Nan, este tipo de embarcación de fondo plano ya ha alcanzado el límite de la capacidad de diseño y fabricación de embarcaciones de gran capacidad y poco calado de la astillería de Bopu. Por ahora, solo podemos seguir así.
-
-(Fin del capítulo).

@@ -88,7 +88,7 @@ El cuerpo docente de esta clase de formación artística está compuesto por los
 
 Chen Shixin, aunque ingresó a la clase de bellas artes, en realidad, la orientación de los profesores de la clase se inclinaba hacia las artes aplicadas. Los estudiantes no solo debían dominar las técnicas básicas de pintura, sino también aprender habilidades en diversas áreas de las artes aplicadas, incluyendo la creación de esculturas, la organización de exposiciones, la decoración, el diseño de interiores, la xilografía y la creación de carteles publicitarios, entre otras. Algunos también aprendían técnicas de hierro forjado y vidrio. En resumen, el contenido de estudio era muy diverso. También había muchas oportunidades para la práctica, es decir, se aprendía mientras se trabajaba.
 
-<p>Sin embargo, estas diversas técnicas resultaron ser del agrado de Chen Shi. Él siempre había sido una persona curiosa y con una considerable habilidad práctica, y estas técnicas le resultaron muy adecuadas.</p>
+Sin embargo, estas diversas técnicas resultaron ser del agrado de Chen Shi. Él siempre había sido una persona curiosa y con una considerable habilidad práctica, y estas técnicas le resultaron muy adecuadas.
 
 "Antes, cuando estábamos juntos, siempre decíamos que los australianos eran '博文强识', con un conocimiento vastísimo. Pero al entrar en contacto real con su conocimiento, es como enfrentarse al océano: inmenso e ilimitado", Chen Shixin gesticuló. "Tomemos la pintura, por ejemplo. Hay tantas técnicas, tantos estilos, que si quieres aprender, es prácticamente infinito; podrías estudiar toda una vida y aún así no aprenderlo todo… Antes, cuando estaba en Guangzhou, siempre pensé que tenía cierto conocimiento, habiendo leído libros y revistas australianas. Pero al llegar a Lingao, me di cuenta de que era como un observador limitado, atrapado en un pozo: ese poco conocimiento que tenía no era ni siquiera la superficie del conocimiento australiano, ni siquiera una mota de polvo."
 
@@ -105,5 +105,3 @@ El vino provenía de Lingao, era una bebida de frutas de la marca "Xue Ziliang",
 "¡Les deseo éxito inmediato en sus nuevos roles!" Todos levantaron sus copas al unísono y exclamaron: "¡Salud!".
 ——
 Próxima actualización: Capítulo 94 de la novena parte, "Estrategia para las regiones de Guangdong y Guangxi".
-
-(Fin del capítulo).

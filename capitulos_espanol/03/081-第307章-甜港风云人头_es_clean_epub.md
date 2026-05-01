@@ -108,5 +108,3 @@ Ambos se saludaron. Chen Tianxiong no quería que la otra persona lo recordara d
 "Entonces, ¿significa eso que los de Hai Yitang saben que usted ha venido aquí?"
 
 "No soy omnisciente", explicó rápidamente Feng Guangfeng, "pero la mayoría de las personas en la organización Hai Yitang probablemente estarán contentas con mi llegada".
-
-(Fin del capítulo).

@@ -16,10 +16,8 @@ Se compraron artículos para "lolitas", "shōtan" y sus padres, por un total de 
 Total: ciento setenta y seis personas. (Nota: ya se han devuelto noventa y ocho personas).
 Veinte jin de cada tipo de verdura y semillas de especias, lo que suma un total de diez taels.
 
-De acuerdo con las estrictas reglas proporcionadas, aquí está la traducción:
-
-"Se compraron 100 libras de tabaco brasileño en una tienda extranjera por 30 reales españoles.
-El costo total de envío de los diversos artículos es de 3 taels."
+Se compraron 100 libras de tabaco brasileño en una tienda extranjera por 30 reales españoles.
+El costo total de envío de los diversos artículos es de 3 taels.
 
 "—Esto es mi informe financiero", dijo Xiao Zishan en la sala de reuniones, frente a un grupo de personas con expresiones serias. Después de terminar su presentación, añadió, como si quisiera asegurarse de que lo entendieran: "Les aseguro que no he malversado ni un centavo".
 

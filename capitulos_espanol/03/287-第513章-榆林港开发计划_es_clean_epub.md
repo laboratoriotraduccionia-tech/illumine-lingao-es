@@ -105,5 +105,3 @@ Esta nueva base es prácticamente un territorio virgen. La población indígena 
 "Yúlínbao será elevado a la categoría de distrito especial de Sanya", dijo Wen Desi.
 
 El comité ejecutivo aprobó inmediatamente el plan de desarrollo de Tiandú. El plan completo comenzaría en la primavera de 1630. La complejidad de esta operación no era menor que recrear el Día D. Los diferentes ministerios comenzaron a planificar la asignación de recursos y personal.
-
-(Fin del capítulo).

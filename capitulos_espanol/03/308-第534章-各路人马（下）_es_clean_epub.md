@@ -74,5 +74,3 @@ Comenzando con las costumbres y hábitos de la vida cotidiana, se busca que la g
 El futuro imperio, por supuesto, no será un paraíso terrenal. Dado que la presión social existe, ofrecer a la gente lo que se conoce como "opio espiritual" y brindarles una garantía sobre el mundo después de la muerte será una forma efectiva de control.
 
 "En lugar de permitir que el fanatismo, incluyendo sectas peligrosas, tome el control, deberíamos ofrecerles una forma de fe", dijo Wu Shimang, evidentemente después de mucha reflexión. "Debemos extender la influencia de la iglesia a todos los niveles de la sociedad, para asegurar que el imperio futuro mantenga una alta unidad en el ámbito de la ideología de la gente".
-
-(Fin del capítulo).

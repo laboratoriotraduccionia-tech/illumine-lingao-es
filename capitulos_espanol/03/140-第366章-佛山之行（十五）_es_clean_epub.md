@@ -109,5 +109,3 @@ Después de que terminó el banquete, Lin Ming estaba muy satisfecho. Tanto Li L
 "Liu San y los demás regresaron a la sede, y Yang Shixiang estaba muy contento: "¡No esperaba que el gerente Yang también me diera este honor!" Miró a Liu San y dijo: "Viejo Liu, no esperaba que tuvieras una relación con el Jin Yi Wei."
 
 Liu San, sin embargo, estaba desanimado. Lo que más quería evitar era a los agentes de la guardia imperial (Jin Yi Wei). Él mismo no entendía bien la situación: esta Qian Qian era familiar de los agentes de la guardia imperial, y probablemente, sus "parientes" también pertenecían a ese grupo. Él la había traído aquí de forma tan confusa. Afortunadamente, parece que este Lin Baihu es bastante honesto y no es una persona malvada.
-
-(Fin del capítulo).

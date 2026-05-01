@@ -132,5 +132,3 @@ Después de diluir la melaza, se puede utilizar en la fermentación con diferent
 "Entonces, ¿deberíamos abrir una tienda de carbón?", pensó rápidamente Chang Shide. "Hay pocas personas aquí que usen carbón; la mayoría todavía usa leña. Quizás, además de usarlo nosotros mismos, podríamos hacer algunos negocios vendiéndolo."
 
 "De acuerdo, de todos modos esto no costará mucho. Déjalo que lo haga 起威."
-
-(Fin del capítulo).

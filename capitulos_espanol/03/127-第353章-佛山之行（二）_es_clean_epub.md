@@ -21,7 +21,7 @@ Un grupo de personas subió a bordo del barco "Guangding". Los barcos de la comp
 
 Durante el viaje, Yang Shixiang y Liu San conversaron sobre las numerosas dificultades y requisitos involucrados en el negocio de las farmacias.
 
-<p>En el pasado, la medicina tradicional china era un negocio muy lucrativo. Aunque existen muchos tipos de hierbas medicinales, la mayoría son productos básicos que se compran por kilogramo, se procesan en las farmacias y luego se venden por gramos. Los márgenes de beneficio son muy altos. Los márgenes de beneficio de las hierbas comunes no son inferiores al 60%, mientras que hierbas como el ginseng y el antler de ciervo, que son más caras, generan aún más beneficios, con márgenes de beneficio superiores al 200%. Por lo tanto, a menos que una farmacia esté mal gestionada, es fácil hacerse rico con este negocio.</p>
+En el pasado, la medicina tradicional china era un negocio muy lucrativo. Aunque existen muchos tipos de hierbas medicinales, la mayoría son productos básicos que se compran por kilogramo, se procesan en las farmacias y luego se venden por gramos. Los márgenes de beneficio son muy altos. Los márgenes de beneficio de las hierbas comunes no son inferiores al 60%, mientras que hierbas como el ginseng y el antler de ciervo, que son más caras, generan aún más beneficios, con márgenes de beneficio superiores al 200%. Por lo tanto, a menos que una farmacia esté mal gestionada, es fácil hacerse rico con este negocio.
 
 Sin embargo, administrar una farmacia requiere una gran inversión inicial, ya que es un negocio que opera con márgenes muy ajustados. Una farmacia, incluso la más pequeña, debe tener un stock de entre ochocientos y mil tipos diferentes de ingredientes. La variedad de ingredientes que se almacenan se basa principalmente en el "Ben Cao Gang Mu" – un libro que ya era muy popular en esa época – y, incluso en las farmacias más pequeñas, es imprescindible tener al menos trescientas variedades de ingredientes comunes.
 
@@ -70,5 +70,3 @@ Liu San pensó que el propósito de su viaje era ir a Foshan, y no le importaba 
 El empleado escribió la nota, arrancó una copia y llamó inmediatamente al joven asistente que esperaba a un lado: "Busquen tres palanquines y los usen para llevar a los señores a la tienda de Tongji Qiao. Además, encuentren a un porteador que ayude a los señores a cargar con sus equipajes".
 
 La sucursal de la posada Qiwai, ubicada cerca del muelle y muy cerca del camino que conduce a Foshan, era un lugar muy diferente. Al entrar, uno notaba que su diseño era muy distinto a las posadas tradicionales, que suelen tener un patio central; más bien, se asemejaba a un hotel moderno.
-
-(Fin del capítulo).

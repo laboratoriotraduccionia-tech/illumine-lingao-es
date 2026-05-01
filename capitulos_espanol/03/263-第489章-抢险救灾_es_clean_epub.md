@@ -88,5 +88,3 @@ Desde los tiempos antiguos hasta el presente, después de cada desastre natural,
 El registro de los damnificados también era un trabajo con muchas lagunas. Como邬德 había visto en el pasado con los programas de asistencia social, muchas personas que realmente necesitaban la ayuda no la recibían, mientras que otras, que no tenían problemas económicos, sí la obtenían y la usaban para jugar al mahjong. Incluso con el fuerte control que el gobierno de la sociedad moderna ejerce sobre los niveles inferiores, todavía existen muchas lagunas. ¿Cómo podrían ser diferentes los "viajeros temporales" en condiciones mucho peores? 邬德 sabía que era imposible que él mismo verificara individualmente si cada uno de los damnificados que recibían ayuda alimentaria realmente lo necesitaban. Si alguien intentaba aprovecharse de la situación, era muy probable que no fuera descubierto.
 
 "¿Quieres que nosotros nos encarguemos de la lucha contra la corrupción?", entendió Ran Yao lo que quería decir.
-
-(Fin del capítulo).

@@ -88,5 +88,3 @@ Además, está claro que todo esto fue instigado por Chen Minggang. Según la id
 "Este… --" Wu Mingjin, sin esperar a que Wang Zhaomin hablara, ya comenzó a divagar, "Desde los tiempos de la Gran Dinastía Ming, no ha habido precedentes…"
 
 "Como no existe un precedente, ¡crearemos un precedente!", dijo Xiong Buyou, sin darle importancia, inventando una nueva palabra. "¡Así está decidido!"
-
-(Fin del capítulo).

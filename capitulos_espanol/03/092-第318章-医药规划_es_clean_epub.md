@@ -122,5 +122,3 @@ Zhang Ziyi asintió con la cabeza. Esto no es discutible.
 "En realidad, solo se les puede considerar asistentes de enfermería. Tienen muy pocas oportunidades de prácticas, y les faltan muchos suministros y medicamentos", dijo Zhang Ziyi. "No tienen muestras, ni equipos, y aparte de alcohol y algodón, casi no hay nada más que las enfermeras puedan usar. Ni siquiera tienen solución de yodo".
 
 "Probablemente para enfatizar el punto", dijo Zhang Ziyi, contando con los dedos, "hasta ahora, las enfermeras solo pueden usar: alcohol médico y solución salina para la limpieza. Ni siquiera pueden preparar la solución salina para inyecciones."
-
-(Fin del capítulo).

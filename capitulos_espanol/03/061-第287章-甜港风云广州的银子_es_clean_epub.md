@@ -157,5 +157,3 @@ El tiempo apremiaba, así que el "Deng Yingzhou" no se detuvo mucho en Guangzhou
 Wu De abrió la copia a bordo del barco. Se trataba de un documento redactado por la estación de Guangzhou. El documento, que había sido redactado conjuntamente por los tres principales responsables comerciales de la estación de Guangzhou, proponía que la estación utilizara sus empresas afiliadas para atraer los depósitos de familias adineradas y con conexiones gubernamentales de Guangzhou y de toda la región de Liangguang, así como de la provincia de Fujian.
 
 "¿Un depósito?", exclamó Wu Deda, sorprendido, y se levantó de la silla de inmediato. En su mente, solo resonaban cuatro palabras: "¡Idea descabellada!".
-
-(Fin del capítulo).

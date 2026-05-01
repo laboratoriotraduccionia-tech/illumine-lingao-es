@@ -92,5 +92,3 @@ Ding Ding se estremeció. Efectivamente, había sido una negligencia. Pero, sint
 "Sigamos llamando 'Dàdōnghǎi' a 'Dàdōnghǎi'", dijo el hombre gordo. "Y 'Ānyóulèshì', todos son nombres de esta época, ¿cómo podrían los de la dinastía Ming no conocerlos? Incluso se escribió 'Ānyóulèshì', que está justo frente a Yúlínbǎo, ¿cómo podrían no saberlo?".
 
 "Ding Ding" no supo qué responder. Aunque sentía que tenía razón, la acusación que le había hecho la otra persona era tan contundente que no pudo refutarla. El interés de los "viajeros temporales" es lo primero, ¿cómo se puede decir que la seguridad personal de estas personas es más importante que el derecho de todos a estar informados?
-
-(Fin del capítulo).

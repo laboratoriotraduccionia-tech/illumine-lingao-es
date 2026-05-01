@@ -13,7 +13,7 @@ En la reunión, todos resumieron los problemas existentes en el club y en todo e
 
 Directrices: El club de derecho debe continuar firmemente con su lema de "pureza académica". Debe mantener los principios de "prioridad a la opinión pública" y "actuar de acuerdo con la ley". Además, se decidió aprovechar la oportunidad que brinda la aprobación de los "Estatutos del Club" durante esta asamblea para fortalecer la organización del club de derecho y aumentar su cohesión.
 
-<p>El último tema de la reunión fue "la distribución de dulces", es decir, la división de los puestos dentro del sistema judicial. Ma Jia, como representante del tribunal de arbitraje y la máxima autoridad del grupo de viajeros temporales, tenía la autoridad decisoria sobre la estructura y la asignación de personal del sistema judicial. Todo el club de estudios jurídicos había estado esperando este día durante mucho tiempo.</p>
+El último tema de la reunión fue "la distribución de dulces", es decir, la división de los puestos dentro del sistema judicial. Ma Jia, como representante del tribunal de arbitraje y la máxima autoridad del grupo de viajeros temporales, tenía la autoridad decisoria sobre la estructura y la asignación de personal del sistema judicial. Todo el club de estudios jurídicos había estado esperando este día durante mucho tiempo.
 
 Ma Jia se tomó este asunto con mucha seriedad y, durante la reunión, prometió que cada uno podría participar en este sistema. Sin embargo, antes de "repartir los dulces", exigió que todos elaboraran un plan para el sistema judicial, que aún estaba en blanco, incluyendo qué sistema legal adoptar, cómo llevar a cabo los juicios, cómo estructurarlo, etc. Es decir, primero hay que construir la casa y luego decidir quién vive en ella.
 
@@ -63,38 +63,6 @@ El futuro político de Dugu Qiuhun está arruinado. Esto es innegable. Ji Xin pe
 
 En resumen, parece haber una corriente subyacente tanto en el gobierno como en la corte, con la intención de utilizar el "Dugu Qiu Hun" para influir en los asuntos de Bairen Cheng. Sin embargo, la mayoría de los líderes esperan que la situación se resuelva y se deje atrás.
 
-Tuvieron unas reglas estrictas:
-- Mantener todos los nombres propios en pinyin.
-- No traducir los nombres a sus significados.
-- No dividir los nombres en pinyin.
-- No dejar caracteres chinos en la salida.
-- Preservar la estructura de Markdown exactamente.
-- No agregar explicaciones, notas o bloques de código.
-- Usar un español natural y neutral.
-- Convertir todos los nombres y lugares chinos recurrentes directamente a pinyin fijo.
-- No mantener caracteres chinos entre paréntesis.
-- No generar bloques de código Markdown como .
-- Mantener los nombres de los autores en pinyin, nunca traducir su significado literal.
-- Usar estas traducciones fijas para este libro:
-Debuchangshi = Debuchangshi
-viajeros temporales = viajeros temporales
-yo, Chang = yo, Chang
-Chang Shide = Chang Shide
-Wen Desi = Wen Desi
-Xiao Zishan = Xiao Zishan
-Wang Luobin = Wang Luobin
-Gao Ju = Gao Ju
-Lingao = Lingao
-Leizhou = Leizhou
-Guangzhou = Guangzhou
-Hainan = Hainan
-Taiwan = Taiwan
-Jefe Wen = Jefe Wen
-señor Gao = señor Gao
-Sueño en el pabellón rojo = Sueño en el pabellón rojo
-
-Devolver solo el texto traducido final.
-
 他决定先去找 Dugu Qiuhun hablar.
 
 El equipo de policía de "Dugu Qiuhun" fue interceptado por Bei Wei y Xue Ziliang. Al día siguiente de su regreso al destacamento de policía, Ran Yao llevó a Mu Min y a varias personas al destacamento, y después de una conversación de cinco minutos con la puerta cerrada, Dugu Qiuhun, con el rostro pálido, fue llevado. Su pistola fue confiscada. Posteriormente, se anunció que Mu Min sería temporalmente responsable del trabajo del destacamento de policía de Dongmen, y se transfirió un grupo de nuevos cadetes de la escuela de asuntos militares y políticos. Originalmente, todos los policías del destacamento de policía de Dongmen fueron llevados y enviados al campamento de entrenamiento de la Dirección General de Seguridad Política, donde el personal de la Dirección General de Seguridad Política les habló individualmente para averiguar qué había sucedido esa noche y qué había dicho Dugu Qiuhun entre los policías locales.
@@ -110,5 +78,3 @@ En una habitación del club militar, Dugu Qiuhun parecía estar en buen estado d
 "姬信" sonrió levemente: "No soy abogado, soy juez."
 
 "Dugu Qiuhun" miraba con cierta confusión. "Ji Xin" se presentó brevemente y le informó sobre la resolución aprobada en la asamblea.
-
-(Fin del capítulo).

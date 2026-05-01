@@ -104,5 +104,3 @@ Después de dar una vuelta más, de repente vi un puesto adicional. Había vario
 Nota (este párrafo está fuera de los 4000 caracteres y no se incluye en el conteo):
 
 "Corregido: La calle Hai'an, que ahora es la ciudad de Hai'an, pertenece al condado de Xuwu, y no al condado de Haikang, como se mencionó anteriormente."
-
-(Fin del capítulo).

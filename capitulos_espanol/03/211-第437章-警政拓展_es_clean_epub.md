@@ -97,5 +97,3 @@ Todos disfrutaron de una abundante comida y bebida. Incluso Gouburi se unió a l
 "Te lo he dicho tantas veces, ¡deberías llamarme 'compañero'!", exclamó Gou Bulǐ, rápidamente cubriendo el papel que había escrito. "Es muy anticuado, ese trato de 'señora'".
 
 "La esposa de Gou Buli es una refugiada que se casó con él recientemente. Es viuda y proviene del continente. Aunque no es particularmente atractiva, es trabajadora y eficiente en la gestión de la tienda, y Gou Buli está muy satisfecho con este matrimonio."
-
-(Fin del capítulo).

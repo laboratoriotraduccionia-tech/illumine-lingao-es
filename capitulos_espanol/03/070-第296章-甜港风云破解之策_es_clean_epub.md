@@ -131,5 +131,3 @@ Una serpiente sin cabeza es inútil. Al eliminar este elemento central y combina
 Las dos personas llegaron frente al templo de Zōu y el monje, y vieron que este templo era bastante grande, ya que Zōu, el monje, es considerado el patriarca de la industria azucarera, y la industria azucarera de Leizhou está muy desarrollada, por lo que el templo de Zōu está muy bien construido. Originalmente, este lugar era donde Haiyi Tang realizaba una representación teatral anual para honrar a los dioses.
 
 Sin embargo, en ese momento, frente al templo, había multitudes de personas con sus familias. Los pasillos estaban llenos. Los niños lloraban al ser llamados por los adultos, y el ambiente era bullicioso, como un mercado. Algunos vestían ropa relativamente decente, mientras que otros estaban prácticamente desaliñados, pareciéndose a refugiados.
-
-(Fin del capítulo).

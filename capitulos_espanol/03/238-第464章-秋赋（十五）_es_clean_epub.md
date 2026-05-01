@@ -85,5 +85,3 @@ Sin embargo, en general, el desarrollo de los eventos seguía la dirección que 
 "No esperaba que nuestro plan tuviera otro plan dentro, Ade, ¿estás escondiendo algo?".
 
 "¡No es cierto!", exclamó Wu Deyu, negándolo rotundamente. "El plan es el plan original. Llegar a este punto ha sido, en cierta medida, producto de la casualidad y de las acciones humanas." Dijo: "Aprovechamos un pequeño cálculo de Chen Minggang, algo que él sabía muy bien. Él tampoco nos estaba utilizando. Simplemente, se equivocó en dos aspectos: primero, no comprendió que poseemos una tecnología y un nivel de gestión que superan la época, y que no necesitamos su antiguo sistema, que él consideraba valioso. Segundo, no entendió que nuestra ambición es reformar el sistema social, y no simplemente acumular riqueza. Es comprensible que no pudiera tener esa visión." Respiró hondo y dijo: "Probablemente, esta es la ventaja que nos brinda la diferencia de épocas."
-
-(Fin del capítulo).

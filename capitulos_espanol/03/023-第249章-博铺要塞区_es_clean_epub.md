@@ -96,5 +96,3 @@ Se estaba discutiendo el plan de defensa cuando, de repente, un guardia informó
 En ese momento, el teléfono sonó. Chen Haiyang contestó y dijo varias veces "sí", luego repitió la solicitud de Li Haiping:
 "Sí, parece que la actitud de Li Huamei ha cambiado, así que… ¿eh? Sí, sí, de acuerdo. Entendí." Dicho esto, colgó el teléfono y le dijo a Li Haiping:
 "Tienes suerte. El comité ejecutivo ha aceptado que la lleves a bordo para una visita, ¡pero no puede entrar en la cubierta! El comité ejecutivo tiene una tarea para la cual necesita su cooperación."
-
-(Fin del capítulo).

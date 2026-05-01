@@ -97,5 +97,3 @@ Este sistema existe en el distrito industrial de Bairun y en el distrito industr
 El agua, después de ser tratada en los filtros de arena, se almacena en un depósito. Los viajeros temporales utilizan un sistema de presión sencillo: una máquina de vapor que bombea continuamente agua a una torre de almacenamiento elevada, y la gravedad de esta torre se utiliza para suministrar agua a la fábrica.
 
 La construcción y el uso del nuevo sistema de suministro de agua fueron posibles gracias a que los viajeros temporales proporcionaron una mejor base material a través de sus industrias mecánicas y metalúrgicas. Fue precisamente la capacidad de producir en masa calderas, máquinas de vapor, y de fundir tuberías de hierro fundido y válvulas de diversos tamaños, lo que hizo posible estas infraestructuras industriales básicas.
-
-(Fin del capítulo).

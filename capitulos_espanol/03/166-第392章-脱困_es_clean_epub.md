@@ -184,5 +184,3 @@ Sin embargo, los hechos demostraron que Ma Qianzhu había calculado mal sus plan
 "No, encontré una lista de pasajeros en el barco. Tenía los nombres de los clientes, la cantidad y el tipo de mercancías. Después de verificarlo, todo es correcto."
 
 Según los resultados de la revisión de la Oficina de Seguridad Política, este barco fue construido con fondos de un miembro de la élite de la familia Hai del condado de Qionshan. Además de sus propias mercancías, el barco transportaba a treinta y ocho comerciantes, cada uno con sus propias cargas.
-
-(Fin del capítulo).

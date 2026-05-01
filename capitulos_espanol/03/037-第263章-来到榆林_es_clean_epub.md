@@ -107,5 +107,3 @@ Wang Luobin notó que había muchas herrerías en esta zona. Al preguntar, descu
 "Pero, al final, siempre encuentran la forma de eludirlas."
 
 Durante los días siguientes, los viajeros temporales navegaron en botes y realizaron un estudio topográfico de la costa cercana al puerto de Yulin, corrigiendo los mapas. También realizaron una inspección in situ del emplazamiento de Yulinbao, y finalmente seleccionaron un terreno baldío en la orilla oeste del puerto de Yulin, que se convertiría en la ubicación del futuro puesto avanzado de Yulin. Este lugar ofrecía protección contra el viento, tenía agua dulce y era de terreno plano.
-
-(Fin del capítulo).

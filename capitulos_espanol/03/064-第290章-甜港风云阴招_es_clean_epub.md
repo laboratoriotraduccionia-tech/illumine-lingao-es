@@ -136,10 +136,8 @@ Aquí no se producen tés de buena calidad, pero las hojas de té de Jiangxi son
 
 Continuar creando problemas con el tema de que la empresa "Huanan" rechaza la compra de azúcar ya no es efectivo, especialmente ahora que una gran cantidad de dinero ya ha sido transportada. Los agricultores de caña de azúcar aún esperan poder vender su azúcar; incluso si causan problemas y "Huanan" se ve afectada, el daño máximo sería una simple molestia, ya que la azúcar seguirá sin poder ser vendida. Mientras los agricultores mantengan la esperanza, no actuarán con determinación. El personal de "Huanan", con un mínimo de capacidad de adaptación, puede fácilmente contrarrestar cualquier intento. Sin embargo, los trabajadores de la fábrica de azúcar en Lin Zhuang ahora no tienen nada que perder y, además, tienen la garantía de él, por lo que actuarán sin reservas. No obstante, el oponente cuenta con personal de la agencia de seguridad y tiene varios cientos de trabajadores, por lo que es difícil predecir el impacto. Sin embargo, si se produce un incidente y hay víctimas, eso sería suficiente para causar grandes problemas a "Huanan".
 
-<p>Simplemente eso no es suficiente para condenar a Huánán, pero la situación financiera de Huánán sigue siendo un misterio. Zhù Sān yé bebió taza tras taza de té fuerte, pero aún no podía encontrar una solución adecuada.</p>
+Simplemente eso no es suficiente para condenar a Huánán, pero la situación financiera de Huánán sigue siendo un misterio. Zhù Sān yé bebió taza tras taza de té fuerte, pero aún no podía encontrar una solución adecuada.
 
 Observando a la Sexta Tía, que se movía constantemente a su alrededor, sirviéndole, de repente se le ocurrió una idea.
 
 La sexta tía es la hermana de un viejo amigo de negocios de Chang, llamado Gu Dachun. Gu Dachun es el líder de un pequeño grupo de piratas que operan en la zona. Se les llama piratas, pero en realidad son una organización con sede en la familia Gu, compuesta por familiares y personas de la misma región. Tienen entre tres y cuatro barcos y entre setenta y ochenta personas. Normalmente se dedican a la pesca y a pequeños negocios costeros, pero cuando tienen la oportunidad, también atacan barcos mercantes que pasan y pueblos costeros.
-
-(Fin del capítulo).

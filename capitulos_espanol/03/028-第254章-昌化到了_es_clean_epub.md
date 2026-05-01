@@ -102,5 +102,3 @@ Al final de la llanura, se extiende un grupo de colinas, con una vegetación den
 "Ahora mismo estamos en el año 1629."
 
 Wang Luobin ordenó que se dejaran la pequeña embarcación. Varios miembros del equipo de exploración navegaron en un bote hacia esa playa. Poco después, regresaron con varias cestas llenas de arena. Wang Luobin tomó un poco en su mano y la examinó cuidadosamente. A la luz del sol, la arena en la palma de su mano era tan blanca como la nieve: ¡era realmente algo bueno! Por supuesto, él sabía reconocer su valor. Una arena de cuarzo de tan alta calidad era demasiado valiosa para usarla en la fabricación de botellas de vino o espejos. Podría utilizarse como materia prima para circuitos, pantallas, etc.
-
-(Fin del capítulo).

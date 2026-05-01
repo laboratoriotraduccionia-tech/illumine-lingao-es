@@ -33,7 +33,7 @@ Esto hizo que Ma Qianzhu comprendiera profundamente la difícil situación que e
 
 Existen numerosos aspectos a considerar, y cada solicitud implica corrección y necesidad. No importa cuánto se esfuerce el comité de planificación, los problemas de retraso y obstáculos persisten por todas partes. Muchos proyectos se ven obstaculizados por la falta de suministro de materiales, especialmente el acero.
 
-<p>Después de una discusión, el comité ejecutivo consideró que era necesario superar el cuello de botella en el suministro de acero. Se decidió concentrar todos los recursos disponibles para resolver este problema de una vez por todas.</p>
+Después de una discusión, el comité ejecutivo consideró que era necesario superar el cuello de botella en el suministro de acero. Se decidió concentrar todos los recursos disponibles para resolver este problema de una vez por todas.
 
 Tras realizar cálculos, la comisión de planificación descubrió un problema considerable. Para desarrollar la mina de hierro de Tianduo y satisfacer la demanda de hierro fundido, sería necesario aumentar la importación de carbón. Las minas de carbón de Guangdong en esta época se caracterizan por ser de pequeña escala, numerosas y dispersas. La calidad del carbón es variable, y la organización del suministro es muy difícil. Sería necesario desarrollar la mina de carbón de Hongji. Abrir dos bases separadas a la vez supone una carga insostenible en términos de mano de obra, recursos materiales y fuerza militar.
 
@@ -90,5 +90,3 @@ Shi Niaoren explicó: "Nuestros cálculos se basan en fundamentos sólidos. La m
 "¿Qué tal si vamos a Japón a capturar esclavos?"
 
 "¡Esto está demasiado lejos! Además, los japoneses también están armados. ¿Será otra guerra? Nos atacaremos mutuamente, y la fuerza de combate no será diferente."
-
-(Fin del capítulo).

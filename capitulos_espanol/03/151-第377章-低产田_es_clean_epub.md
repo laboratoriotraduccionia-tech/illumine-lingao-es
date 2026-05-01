@@ -99,5 +99,3 @@ Para cambiar esta situación, no es suficiente simplemente mejorar el suelo; es 
 "El dique es parte del plan de remodelación de la cuenca del río Wenlan", dijo Yan Quezhi. "Según el plan de Ma Du Gong, en el futuro, la superficie de agua de todo el río Wenlan se elevará 100 centímetros para facilitar la navegación. Actualmente, todas las instalaciones a lo largo del río se han planificado de acuerdo con este esquema".
 
 Según el plan, se construiría primero una gran represa a lo largo del río en la zona de desarrollo, separando las aguas del río de toda la región de tierras de cultivo de alto rendimiento. Esto serviría para proteger contra posibles inundaciones durante la temporada de lluvias. Se instalarían compuertas para los canales de agua en la represa. Además, se instalaría una estación de bombeo de vapor, utilizando una máquina de vapor como fuente de energía para el riego y el drenaje.
-
-(Fin del capítulo).

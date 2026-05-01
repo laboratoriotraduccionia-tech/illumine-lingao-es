@@ -136,5 +136,3 @@ Los trabajadores emitieron un suspiro de sorpresa. De hecho, ya habían presenci
 Después del proceso de plateado, los trabajadores vertían agua destilada para limpiar y luego secaban los recipientes. Xiao Bailang tomaba los recipientes procesados y, primero, calentaba con fuego de gas la parte inferior de vidrio del recipiente hasta que se volvía rojo y se estrechaba, y luego insertaba el tubo de vacío. Esta máquina de vacío sencilla fue diseñada y fabricada por Zhong Lishi, era un sistema de vacío muy básico que apenas alcanzaba un nivel de vacío aproximado.
 
 Mientras exhalaba, utilizaba el fuego del gas para calentar el recipiente exterior, lo que promovía la expansión del gas y facilitaba la extracción rápida del mismo. La bomba de vacío rudimentaria, por supuesto, no podía medir las condiciones de vacío, así que Xiao Bailang, anteriormente, solo podía recurrir al método más primitivo: realizar pruebas repetidas hasta encontrar el tiempo óptimo de extracción.
-
-(Fin del capítulo).

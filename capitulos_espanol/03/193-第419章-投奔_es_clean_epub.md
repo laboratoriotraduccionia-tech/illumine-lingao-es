@@ -103,5 +103,3 @@ Chen Haiyang, al escuchar que habían traído muchos barcos, sintió una gran al
 "Yo iré", dijo Chen Haiyang. "¡Después de todo, soy el jefe de la marina!".
 
 林佰光, de alguna manera, logró traer de vuelta tantos barcos, lo cual no solo fue una sorpresa para Chen Haiyang y los demás, sino también para Ran Yao. Conseguir doce barcos grandes de Zhucai Lao ya era un logro impresionante.
-
-(Fin del capítulo).

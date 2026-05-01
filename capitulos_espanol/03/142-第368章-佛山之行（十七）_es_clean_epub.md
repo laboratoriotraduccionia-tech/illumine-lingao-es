@@ -95,5 +95,3 @@ Lo siguiente es contenido adicional para los suscriptores:
 Nota: Yang Shixiang mencionó que la derrota de las fuerzas gubernamentales ocurrió el 8 de abril lunar de ese año, cuando más de siete mil campesinos de la provincia de Shaanxi atacaron Sanshui, y el comandante Gao Conglong fue derrotado y murió. Más de dos mil soldados gubernamentales resultaron heridos.
 
 El incidente de la revuelta de los soldados de Jizhou ocurrió en febrero de ese año. Los soldados de los diferentes batallones en Zunhua causaron problemas debido a la falta de pago, y se manifestaron exigiendo el pago completo fuera de la puerta oeste de Zunhua, no fuera de las puertas de la ciudad de Jing.
-
-(Fin del capítulo).

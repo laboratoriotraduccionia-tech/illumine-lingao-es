@@ -161,7 +161,7 @@ Para la mayoría de las personas, la combinación de apostar dinero, frecuentar 
 
 Sin embargo, él se adhería estrictamente a un principio: nunca revelaba ni la más mínima intención de reclutamiento en ningún lugar. De hecho, muchas personas le preguntaban sobre la situación y la fuerza de Lingao. En este momento, ya había comenzado a haber pequeños grupos de personas que, al verse sin esperanza de futuro, aprovechaban la noche para escapar con sus barcos y separarse del resto.
 
-<p>Parece que, en un momento de gran confusión, yo podría fácilmente tomar el control de la situación y llevarme cientos de barcos si estuviera atento. Lin Baiguang pensaba para sí mismo.</p>
+Parece que, en un momento de gran confusión, yo podría fácilmente tomar el control de la situación y llevarme cientos de barcos si estuviera atento. Lin Baiguang pensaba para sí mismo.
 
 Sin embargo, en la historia, la flota de Zheng Zhilong y la armada Ming persiguieron directamente hasta la isla de Nanri, y fue en la isla de Nanri donde Zhucai Lao fue derrotado. En medio de una batalla caótica, la pregunta de cómo podría sobrevivir seguía siendo un problema: ¿qué pasaría si muriera en medio de la confusión, sería una injusticia?
 Cada noche, pensaba en esto. Estaba solo, desarmado, ¿cómo podría hacer frente a la situación? Pensó que la única manera era llegar al barco de Shi Shisi antes. Shi Shisi, ese viejo lobo de mar, siempre tenía algún truco para escapar.
@@ -191,5 +191,3 @@ De repente, los jefes se mostraron inquietos. Este "Lao Si" de la bandera negra 
 "¡Gerente principal! ¡Voy a ir a buscarlo y traerlo de vuelta!"
 
 "¡No importa! La gente viene y va." El rostro de Zhaocai estaba pálido. "Somos todos hermanos, si vas a detenerlo, inevitablemente habrá conflicto. No queremos que los demás se rían de nosotros. Déjalo ir, así dejamos una posibilidad de volver a encontrarnos en el futuro."
-
-(Fin del capítulo).

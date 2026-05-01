@@ -104,5 +104,3 @@ La caldera de tubos de fuego fue inventada en 1829 por los franceses Segan y la 
 "Varias máquinas tipo 'guotuo' funcionan las 24 horas del día y no te permitirán desmontarlas para examinarlas."
 
 "Conocemos muy bien la estructura de las calderas de tubo de fuego y de tubo de agua, no es necesario desmontarlas para entenderlas", dijo Wang Luobin. "Lo importante es si los materiales cumplen con los requisitos. Se trata de una caldera de alta presión, y sin un suministro de tubos para calderas de alta presión, el rendimiento de los tubos de acero producidos internamente…"
-
-(Fin del capítulo).

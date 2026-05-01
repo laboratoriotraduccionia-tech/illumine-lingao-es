@@ -108,5 +108,3 @@ El señor Lin invertiría, Hai Shuzu sería el responsable, y se abriría una mi
 "Heshizuzu dudó y dijo: "Entiendo lo que quiere decir, y no es más que pedir que nosotros, como hermanos, intercedamos con las autoridades y los funcionarios locales, lo cual es fácil. Sin embargo, nosotros tenemos cierta influencia en la región. Solo quiero ofrecer un consejo: nunca he oído hablar de que haya carbón explotable en la provincia de Qiongzhou; además, es muy fácil conseguir leña aquí, así que me temo que no habrá mucha gente que use carbón para calentarse. Señor Gao, ¿ha considerado cuidadosamente las posibles consecuencias antes de emprender este proyecto?"
 
 林佰光 asintió con la cabeza. ¡Hai Shuzu es realmente una persona "honesta"! Él sentía una gran admiración por él, y por una buena razón: siempre es tranquilizador tratar con personas honestas, sin importar en qué época o lugar.
-
-(Fin del capítulo).

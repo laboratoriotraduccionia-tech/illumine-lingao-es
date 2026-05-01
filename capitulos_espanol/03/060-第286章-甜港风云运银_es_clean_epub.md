@@ -151,5 +151,3 @@ Aunque la misión era importante, este asunto complicó mucho el trabajo que ten
 "No pasa nada, señor Gao," dijo la mujer con energía, limpiándose la lluvia de la cara. "Los guardias de aquí no son amables; no me permiten entrar para resguardarme de la lluvia…"
 
 "Este es un lugar estratégico militar, ¡vámonos!", dijo él, agitando la mano. "Hablemos en la villa."
-
-(Fin del capítulo).

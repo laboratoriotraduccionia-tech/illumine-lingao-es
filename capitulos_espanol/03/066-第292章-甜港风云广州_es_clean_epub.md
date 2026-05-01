@@ -122,5 +122,3 @@ Los sirvientes y las doncellas, al ver que su amo había llegado, naturalmente t
 "Mmm." PEPI sacó un pañuelo de lino y se secó los ojos; este pañuelo era un producto reciente de la fábrica textil de Lingao, hecho con una mezcla de lino local y algodón de fibra larga de alta calidad, ligero, transpirable y con una textura mucho mejor que la seda.
 
 "Casi todos los productos de lujo y de consumo que se desarrollan primero en Lingao, generalmente se distribuyen primero a Guangzhou, y muchos se suministran prioritariamente a Zǐmínglóu, para establecer la marca. Cuando a las personas con dinero les gusta algo, todo el mercado se abre; en cualquier época, las personas con dinero siempre lideran las tendencias de consumo."
-
-(Fin del capítulo).

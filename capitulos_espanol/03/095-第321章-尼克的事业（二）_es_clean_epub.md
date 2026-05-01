@@ -137,5 +137,3 @@ Sin embargo, este asunto solo podía ser aprobado por Wende, quien tenía contro
 "No es exageración", dijo Wu Dedu. "Sabes cuánto cuesta un caballo en esta época?".
 
 "¿Cien taels?"
-
-(Fin del capítulo).

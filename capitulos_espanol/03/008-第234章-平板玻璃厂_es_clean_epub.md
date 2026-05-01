@@ -90,5 +90,3 @@ Wang Luobin explicó: "El vidrio líquido fundido se vierte sobre esto. Luego, s
 "Esto realmente es un gasto de recursos y tiempo." Ma Qianzhu se sentía cada vez más angustiado. Aunque, con su conocimiento, entendía que esta era una actualización tecnológica necesaria. Para desarrollar la industria, es necesario invertir en sectores básicos. Ampliar la escala de la fábrica de acero no es algo malo, y ahora que se ha construido una instalación tan grande, los viajeros temporales tendrán experiencia en la fabricación de piezas fundidas de gran tamaño.
 
 "De acuerdo, estoy de acuerdo", dijo Ma Qianzhu y firmó el documento del proyecto.
-
-(Fin del capítulo).

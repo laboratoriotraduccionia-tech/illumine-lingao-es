@@ -68,5 +68,3 @@ Después de mucha reflexión, decidí comenzar con la producción de azúcar ref
 Según la descripción del proceso de fabricación en el libro "Tian Gong Kai Wu", primero, Wen Tong hizo que alguien derritiera el azúcar moreno y luego lo vertiera en un recipiente de cerámica relleno de paja. Después de que el azúcar moreno se solidificara por completo, se retiraba la paja. Chang Shide ordenó que trajeran varias cargas de arcilla amarilla pura desde el exterior y la vertieron en un tinaco, donde se mezcló vigorosamente para formar una suspensión de arcilla amarilla. Después de un breve período de reposo, se recogió la solución de la capa superior de la suspensión de arcilla amarilla con una cuchara y se vertió lentamente sobre el recipiente de cerámica.
 
 "Este método es muy extraño", dijo Chang Shide, quien no estaba muy seguro. ¿Podría el agua turbia y el azúcar moreno producir azúcar blanca? Solo con verlo, parecía algo muy sucio.
-
-(Fin del capítulo).

@@ -88,7 +88,7 @@ Después de la cena, Lin Baiguang, con gran consideración, ordenó que todas la
 
 Así, Dugu Qiuhun no tuvo más opción que enviar a un policía a la calle para encargarse de este asunto.
 
-<p>Para lidiar con Shi Shisi, la situación no era tan simple. Afortunadamente, Lin Baiguang, además de beber y disfrutar de baños, contaba con armas modernas del siglo XX, lo suficiente para controlar a este "campesino" del siglo XVII.</p>
+Para lidiar con Shi Shisi, la situación no era tan simple. Afortunadamente, Lin Baiguang, además de beber y disfrutar de baños, contaba con armas modernas del siglo XX, lo suficiente para controlar a este "campesino" del siglo XVII.
 
 Esa noche, tras beber y comer en exceso, Shi Shiyi fue llevado a una habitación sin ventanas en el establecimiento comercial. En el techo, había un proyector, y sobre la pared blanca, se proyectaban letras azules en inglés de Toshiba.
 
@@ -151,5 +151,3 @@ Lin Baiguang continuó explicando su plan: a través de un emisario, contactarí
 "No solo es una idea descabellada, sino también demasiado peligrosa", dijo Ran Yao. "Incluso si tienes algún conocimiento sobre los piratas, es posible que no puedas comprender completamente la mentalidad y las emociones de este grupo heterogéneo. Además, ¿no es probable que Zhej Cai Lao coloque a algunas personas de su confianza en la flota? Incluso si te presentas para coordinar, no hay garantía de que te crean, y podría ser que te maten directamente".
 
 "Por lo tanto, debemos actuar después de la derrota de Min'an", insistió Lin Baiguang. Después de la derrota de Min'an, la flota de Zhucai Lao fue perseguida y atacada por Zheng Zhiblong y las fuerzas Ming, y pronto fue derrotada en el sur. En ese momento, no podía controlar todas las naves de manera efectiva, y solo podía controlar a sus propias tropas leales. En un momento de confusión y descontento, cuando todos buscaban una salida, un llamado de Deng Gao podría tener una alta probabilidad de éxito.
-
-(Fin del capítulo).

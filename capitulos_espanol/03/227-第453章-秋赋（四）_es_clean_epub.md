@@ -69,5 +69,3 @@ Justo cuando estaba tratando de entender algo que no lograba comprender, y esta 
 Su mirada volvió a posarse en ese documento de suministro de grano. Los campos de "cantidad asignada" y "grano consumido" estaban vacíos. El documento adjunto, titulado "diferencia de grano", indicaba que, según las órdenes del señor Gao, esta nueva recaudación de grano incluiría un "cálculo de tierras", y que cada familia debía informar la cantidad de tierras que posee antes de una fecha límite, para que se aplicara la nueva cantidad de grano a recaudar según la superficie de las tierras.
 
 "El octavo señor dijo que esta es la primera vez que los señores de Australia se encargan de la recaudación de impuestos en todo el condado, y sería bueno que cada familia ofreciera un poco de ayuda, y que informaran con precisión sobre la extensión de sus tierras, para evitar molestar a esos señores". El "agente de impuestos" dijo con una sonrisa forzada: "De esta manera, todos podrán vivir bien, y nosotros, los que trabajamos aquí, también tendremos una justificación".
-
-(Fin del capítulo).

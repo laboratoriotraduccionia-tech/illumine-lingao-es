@@ -104,5 +104,3 @@ Pensando un poco más, esto no era más que un truco de los rebeldes para saquea
 "Lo siento, pero no puedo acceder a esa solicitud", dijo Wu Mingjin con frialdad. "Aunque la caja fuerte del condado es pequeña, es un lugar importante para el gobierno. ¿Cómo podría confiársela a un comerciante?"
 
 "Señor Wu, usted se equivoca", dijo Yan Ming con paciencia, anticipando esa reacción. "Delong actúa como agente del condado para la administración de fondos, lo que significa que se encarga de la recaudación y el pago. El mayor beneficio para este condado es que se evita que los funcionarios abusen de su poder."
-
-(Fin del capítulo).

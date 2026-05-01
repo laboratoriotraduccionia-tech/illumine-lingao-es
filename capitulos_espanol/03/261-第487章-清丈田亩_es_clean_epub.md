@@ -4,7 +4,7 @@
 
 Una serie de medidas fueron implementadas, lo que no solo satisfizo a la gente, sino que también aceleró significativamente el proceso de recolección de granos. Las mejoras en los impuestos sobre los granos, aunque de pequeña envergadura, fueron efectivas y beneficiaron a la población. La reputación del grupo de viajeros temporales aumentó considerablemente. El comité ejecutivo estaba muy satisfecho con el trabajo de 邬德.
 
-<p>Pero la parte más difícil aún está por venir.</p>
+Pero la parte más difícil aún está por venir.
 
 "El trabajo de medición y clasificación de tierras está a punto de comenzar", anunció Wu De en la reunión. "Este trabajo es más complicado que cualquier trabajo anterior."
 
@@ -86,5 +86,3 @@ Invirtió una gran cantidad de dinero en el grupo de teatro de marionetas de Lin
 "Ding Ding no solo proporcionó al grupo de teatro nuevos equipos de actuación, sino que también les mostró grabaciones de teatro de títeres de la región de Minnan. Los actores quedaron muy impresionados con la calidad de esta forma de teatro de títeres."
 
 A veces, abrir una ventana a alguien puede despertar una creatividad infinita. El nivel de este grupo de actuación mejoró rápidamente, y Dīng Dīng encontró a un erudito para que se encargara de la escritura de los guiones.
-
-(Fin del capítulo).

@@ -89,5 +89,3 @@ Además de realizar las tareas administrativas del comité organizador durante e
 Los miembros que custodiaban el gabinete estaban, algunos, conversando y moviéndose por diferentes lugares, mientras que otros se escondían en sus oficinas, trabajando diligentemente. Solo Xiao Zishan parecía estar muy tranquilo. Aparte de esperar las instrucciones de Yinfeng para llevar a cabo diversas tareas y mantener el funcionamiento normal del grupo de viajeros temporales, su principal tarea era supervisar el trabajo de las empleadas domésticas y asegurarse de que se llevara a cabo correctamente.
 
 "¡Ha llegado un telegrama de Lingao!", exclamó Zhang Yuchen, saliendo de la sala de telégrafos y entregando el mensaje a los demás en la estación de Guangzhou que estaban esperando las últimas noticias de Lingao.
-
-(Fin del capítulo).

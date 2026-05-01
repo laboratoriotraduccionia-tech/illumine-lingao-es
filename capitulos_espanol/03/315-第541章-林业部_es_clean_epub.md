@@ -23,7 +23,7 @@ Inmediatamente después, él emitió algunos sonidos guturales y dijo: "¿Esto s
 
 "A partir de hoy, la jornada laboral se extiende cuatro horas al día. ¡Es imprescindible cumplir con el plan de producción!" dijo Hailin. Según el sistema de trabajo normal del grupo "Viajeros Temporales", la duración normal de cada turno en una fábrica es de 10 horas. Las empresas que requieren producción continua, día y noche, adoptan un sistema de tres turnos de 8 horas. Esto no es una muestra de respeto por los derechos de los trabajadores por parte de los "viajeros temporales", sino que la mayoría de las empresas que operan en tres turnos son empresas relativamente importantes, y una jornada laboral demasiado larga puede provocar accidentes.
 
-<p>Sin embargo, cada líder de empresa tiene el derecho de decidir si se requiere o no trabajo adicional, siempre y cuando el tiempo total de trabajo adicional no exceda un tercio del tiempo de trabajo normal mensual. El trabajo adicional se paga según las tarifas normales.</p>
+Sin embargo, cada líder de empresa tiene el derecho de decidir si se requiere o no trabajo adicional, siempre y cuando el tiempo total de trabajo adicional no exceda un tercio del tiempo de trabajo normal mensual. El trabajo adicional se paga según las tarifas normales.
 
 Después de que el funcionario local se fuera, Hailin llamó a Wang Luobin y le aseguró que el pedido se completaría a tiempo.
 
@@ -72,5 +72,3 @@ Los miembros de la junta, en silencio, revisaban este documento. Las opiniones e
 "Cuando planeaba atacar la ciudad, no pensó en mostrar clemencia a la gente", dijo Ma Qian con el rostro endurecido. "Su castigo debe ser severo, para servir de ejemplo".
 
 "Ya pasó, ya pasó", pensó Cheng Dong al ver el rostro de Ma Qianzhu tan pálido, creyendo que realmente estaba frustrado y temía que realmente arruinara el futuro político de Dugu. En cuanto a la actitud hacia la propuesta de matrimonio de Dugu, las personas que originalmente formaban el comité ejecutivo y los ciudadanos como Dan Liang tenían sentimientos completamente diferentes. Los ciudadanos veían que Dugu intentaba reprimir las demandas democráticas por la fuerza, pero los miembros del comité ejecutivo veían la lealtad de Dugu hacia el comité y hacia el orden.
-
-(Fin del capítulo).

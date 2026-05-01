@@ -86,5 +86,3 @@ A continuación, apareció quien realmente era el responsable de la misión de t
 Dado que había muchas mercancías que descargar, Chang Shide había organizado previamente el alquiler de una pequeña estructura, un "téng", para servir como lugar de supervisión y descanso durante la descarga. Los guardias de seguridad, liderados por Qiwéi, custodiaban el lugar por todos los lados.
 
 "No esperaba que fueran tan rápidos", comentó Chang Shide, indicando a Wen Xiu que trajera té. "Por favor, beban agua, beban agua". Se sentó y, después de que Wen Xiu se retiró, preguntó: "¿Ya llegaron los equipos?".
-
-(Fin del capítulo).

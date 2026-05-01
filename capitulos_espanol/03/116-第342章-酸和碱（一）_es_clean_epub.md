@@ -70,5 +70,3 @@ Hizo que los trabajadores nativos colocaran leña en los cuatro hornos del horno
 "Esto es un tanque para almacenar ácido sulfúrico concentrado; debe estar bien sellado."
 
 Estos recipientes de cerámica, diseñados específicamente para contener ácido sulfúrico concentrado, pueden cerrarse con una tapa roscada. Sin embargo, esto por sí solo no garantiza un sellado perfecto. El método tradicional consiste en enrollar una cuerda de amianto humedecida con silicato de sodio alrededor de la boca del recipiente y luego cerrar la tapa. Pero los viajeros temporales no tienen ni cuerda de amianto, ni siquiera silicato de sodio en abundancia. El silicato de sodio se puede fabricar más adelante, pero el amianto es difícil de obtener sin el comercio. Afortunadamente, la naturaleza ofrece otro material natural resistente a la corrosión: la goma laca.
-
-(Fin del capítulo).

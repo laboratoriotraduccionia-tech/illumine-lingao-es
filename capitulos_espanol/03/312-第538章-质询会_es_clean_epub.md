@@ -101,8 +101,6 @@ Ji Xin llegó al lugar de la reunión con todos los materiales con anticipación
 
 Chang Shide, acompañado por Yan Maoda y otros miembros de las estaciones en Guangzhou y Leizhou, así como por algunas personas que no reconocía, llegó al lugar. Estaba impecablemente arreglado. Llevaba una camisa limpia y planchada, y, por alguna razón, un par de gafas de montura negra, lo que le daba una apariencia de persona honesta y confiable.
 
-<p>Parece que Chang Shide tiene a alguien que lo guía. "Májiǎ" pensó: "Este aspecto es como el de un sospechoso de asesinato estadounidense que llega a un tribunal".</p>
+Parece que Chang Shide tiene a alguien que lo guía. "Májiǎ" pensó: "Este aspecto es como el de un sospechoso de asesinato estadounidense que llega a un tribunal".
 
 Cuando Dugu Qiuhun llegó, su apariencia era mucho más sombría: su cabello estaba revuelto, vestía una prenda arrugada y desaliñada, y dos personas de la Oficina de Seguridad Política estaban a su lado, vigilándolo. Fue llevado a un asiento en la parte trasera y esperó su turno para ser interrogado.
-
-(Fin del capítulo).

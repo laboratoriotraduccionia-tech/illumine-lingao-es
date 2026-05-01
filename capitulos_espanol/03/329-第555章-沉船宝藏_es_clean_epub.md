@@ -87,5 +87,3 @@ Tras la publicación de los detalles del incidente, surgieron críticas de perso
 Poco después, otras personas se unieron a esta crítica generalizada. Sin embargo, la respuesta de la oficina administrativa fue muy simple: este incidente ocurrió durante el período de gobierno del primer comité ejecutivo, y el segundo comité ejecutivo lo hizo público desde el principio de su mandato, por lo que no hay de qué hablar en términos de "derecho a la información".
 
 "Obviamente, el objetivo de disparo de Danliang ya había desaparecido, lo cual es una técnica astuta, aunque poco razonable pero legal. El segundo comité ejecutivo no tenía pruebas de esto. Además, a la mayoría de las personas no les interesaba mucho este problema; los miembros más antiguos estaban más interesados en los suministros y equipos obtenidos del barco, especialmente las armas."
-
-(Fin del capítulo).

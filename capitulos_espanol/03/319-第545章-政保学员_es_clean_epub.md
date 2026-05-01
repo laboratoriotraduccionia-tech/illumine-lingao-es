@@ -106,5 +106,3 @@ Después de salir, un empleado le entregó una pequeña placa de bambú: "¡Pón
 Luego, cada estudiante recibió una mochila grande. Los estudiantes, con las mochilas a la espalda, fueron al patio trasero, guiados por el empleado.
 
 "¡Las estudiantes, por aquí!", dijo una empleada. Se acercó a Lu Nan y a otras estudiantes, quienes fueron llevadas a un edificio apartado.
-
-(Fin del capítulo).

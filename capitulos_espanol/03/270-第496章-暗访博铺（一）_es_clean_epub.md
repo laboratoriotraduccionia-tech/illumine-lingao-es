@@ -79,5 +79,3 @@ Pensando en esto, no pudo evitar agradecerse a sí mismo por haber escuchado el 
 Sin embargo, al poco tiempo, su ánimo volvió a entristecerse. Observando la situación, los australianos estaban planeando lo mismo que los franceses en el pasado y los holandeses en la época de Tianqi: construir una ciudad en Bopu y establecerse allí a largo plazo. Si esto sucedía, eventualmente, la corte imperial tendría que emitir un decreto para reprimirlos.
 
 Sin embargo, este año no sucederá. Tang Yunwen pensó: recientemente, los Donglu (pueblos manchúes) han tomado una ruta alternativa a través de Mongolia para entrar en la ciudad amurallada, conquistando varias ciudades y dirigiendo sus fuerzas directamente hacia Zunhua, lo que ha conmocionado a la capital. Es probable que el gobierno no tenga tiempo para ocuparse de este asunto en este momento. Si las autoridades locales llevaran a cabo una operación de cerco, probablemente sería una operación conjunta de las provincias de Guangdong y Fujian…
-
-(Fin del capítulo).

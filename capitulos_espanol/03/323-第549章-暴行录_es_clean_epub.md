@@ -117,5 +117,3 @@ El joven Wumu nunca había presenciado una escena tan impactante; después de to
 "¡No es necesario!", Wumu agitó rápidamente la mano. "¡Ponte la ropa!"
 
 "Yang Cao se puso la ropa y dijo: '¿Ahora está usted tranquilo? Esta sirvienta fue rescatada del infierno por el líder. La bondad de los líderes es algo que esta sirvienta nunca podrá olvidar'.
-
-(Fin del capítulo).

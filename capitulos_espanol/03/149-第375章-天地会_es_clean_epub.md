@@ -91,5 +91,3 @@ Aprovechando la característica de toxicidad de la batata, incluso si las varied
 Él propuso un "Plan de promoción de aves de corral". En realidad, se trataba de un modelo de cría de aves de corral que combinaba una fábrica con agricultores, y que buscaba maximizar el uso de la tecnología de incubación especializada que tenía el Ministerio de Agricultura.
 
 En términos sencillos: la Comisión Agrícola realiza la incubación central de los huevos, y los pollitos resultantes se entregan a los agricultores para su crianza, registrando la transacción. Cuando los pollos alcanzan la madurez, la granja los adquiere nuevamente, tanto los huevos como las aves. Además, la granja proporciona alimento animal de origen animal, como lombrices y larvas, como complemento.
-
-(Fin del capítulo).

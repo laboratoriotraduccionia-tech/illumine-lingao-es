@@ -86,5 +86,3 @@ Después de pensarlo mucho, solo se me ocurrió que el segundo hijo de Huang Lao
 Después de dar las instrucciones, llamó a un joven criado que siempre estaba a su lado y le dijo:
 
 "Ve al colegio del condado y pide al segundo hijo de la familia Huang que venga a conversar."
-
-(Fin del capítulo).

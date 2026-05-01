@@ -90,5 +90,3 @@ Todas las costillas fueron instaladas de manera muy compacta, y en la parte cent
 Durante la construcción, se instalaron andamios alrededor del casco para facilitar el trabajo de los carpinteros navales. Las placas del casco se fijaron a las costillas con pernos. Para evitar filtraciones, se utilizó una gran cantidad de algodón como relleno, una fibra natural que apenas absorbe agua y tiene una gran flotabilidad. Todas las juntas se sellaron con un material compuesto de aceite de tung, seda de cáñamo y ceniza de ostras, siguiendo la técnica china de juntas trenzadas. Tanto el interior como el exterior del casco se recubrieron con alquitrán de madera.
 
 La estructura interna del barco, siguiendo el diseño de los barcos chinos, incorporaba compartimentos estancos. Dado que este barco no se construyó como un buque de guerra y no se planeó equiparlo con muchas armas, no era necesario un puente inferior continuo.
-
-(Fin del capítulo).

@@ -134,5 +134,3 @@ Esto significa, esencialmente, usar a los ciudadanos "P" que no forman parte del
 PS: El siguiente contenido supera las 3000 palabras, y no vale la pena traducirlo.
 
 La eficacia de la medicina tradicional china para tratar el tétanos es objeto de debate. Algunos afirman que sí es efectiva, citando numerosos casos clínicos, mientras que otros sostienen lo contrario. Por ahora, digamos que sí es posible.
-
-(Fin del capítulo).

@@ -106,5 +106,3 @@ En ese momento, llamaron a Liao Daxing. Le preguntaron sobre la situación de la
 "Es una buena persona, y también sabe cómo hacer negocios. Es raro encontrar a alguien que no sea materialista. Hay varias empresas en su círculo que lo respetan, y no lo menosprecian por ser un yerno."
 
 Después de esta conversación, todos tenían una idea general de la estructura y los problemas de Hai Yitang. Sin embargo, la información proporcionada por Liao Daxing solo indicaba que la idea de reclutar nuevos miembros era viable, pero la forma de hacerlo seguía siendo un gran problema.
-
-(Fin del capítulo).

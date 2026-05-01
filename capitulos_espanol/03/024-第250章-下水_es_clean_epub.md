@@ -161,5 +161,3 @@ Li Huamei, una vez a bordo, no mostró nada que pudiera levantar sospechas: corr
 "¿Cuál es el propósito de su visita a Bopu? ¿Es para comerciar?"
 
 "Sí, el informe de la marina mencionó específicamente este punto, y ella está muy interesada en nuestros productos."
-
-(Fin del capítulo).

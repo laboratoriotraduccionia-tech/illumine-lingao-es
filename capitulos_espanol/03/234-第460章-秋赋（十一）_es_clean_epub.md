@@ -3,7 +3,7 @@
 
 "¡Cómo no he deseado vengarme!", pensó Gou Chengyuan. Originalmente, tenía un gran temor a los "piratas", y al regresar al condado, solo quería ocultarse sigilosamente, aprovechando la situación para averiguar noticias de su padre y ver si había alguna oportunidad de recuperar el cofre de hierro que Gou Eris había arrojado al pozo. Con los tesoros de ese cofre, podría huir a un lugar lejano. Ahora, escuchando las palabras persuasivas de los hermanos Lai, el resentimiento en su corazón se intensificó. Antes, en el condado, era una persona poderosa e influyente, pero ahora no se atrevía a regresar a casa, y se había convertido en un mendigo que apenas sobrevivía. Al pensar en esto, sintió un profundo odio.
 
-<p>Para vengarse, uno debe confiar en su propia fuerza. Gou Chengyuan acompañó a su padre a Guangzhou en esta ocasión, y aunque las cosas no salieron como se esperaba, aprendió mucho. Se dio cuenta de que depender de la corte era una ilusión: los asuntos en Lingao eran demasiado complicados para que los funcionarios de la corte se molestaran en intervenir.</p>
+Para vengarse, uno debe confiar en su propia fuerza. Gou Chengyuan acompañó a su padre a Guangzhou en esta ocasión, y aunque las cosas no salieron como se esperaba, aprendió mucho. Se dio cuenta de que depender de la corte era una ilusión: los asuntos en Lingao eran demasiado complicados para que los funcionarios de la corte se molestaran en intervenir.
 
 Gou Chengyuan, desde pequeño, creció entre su padre y su tío, y la familia Gou había acogido a muchos forajidos del mundo. Conocía muchos aspectos del mundo, y sabía que intentar causar problemas bajo la vigilancia de los "kunzei" (invasores) era una locura. Solo podía esconderse y esperar una oportunidad. Para ello, él y los hermanos Lai se habían refugiado en este aislado templo de Fubo. Tenía algo de plata que había conseguido de su familia, y con sus habilidades, aunque limitadas, había sometido a los otros mendigos que se refugiaban allí, quienes ahora le obedecían completamente, aunque no sabían quién era. Inconscientemente, había creado una especie de "guangbang" (hermandad de mendigos) en la ciudad.
 
@@ -85,4 +85,3 @@ Justo cuando estaban hablando, apareció Lai Daya. Hoy, él había sido enviado 
 
 "Joven amo, no se enoje, la situación ya es así…", comenzó a decir Lai Dazheng, intentando calmar la situación. Gou Chengyuan, sin energía, respondió: "No digas más. Mi estado actual no tiene nada que ver con si tendré o no éxito en la vida".
 
-(Fin del capítulo)

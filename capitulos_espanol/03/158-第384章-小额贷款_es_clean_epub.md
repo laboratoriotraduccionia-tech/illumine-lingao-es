@@ -76,5 +76,3 @@ Yè Yǔmíng explicó su propuesta de una sola vez.
 "Si es así, no podremos aumentar los ingresos de los agricultores locales, lo cual nos permitiría ganarnos el favor del pueblo. El pueblo pobre no obtendría nada…"
 
 "Es necesario encontrar un equilibrio", dijo Wen Desi, después de una cuidadosa reflexión. "No se ofrecerán préstamos a los campesinos extremadamente pobres que apenas tienen para subsistir. Los préstamos se otorgarán a pequeños agricultores. Se establecerán estándares más bajos y se ampliará el alcance para beneficiar a la mayor cantidad de personas posible."
-
-(Fin del capítulo).

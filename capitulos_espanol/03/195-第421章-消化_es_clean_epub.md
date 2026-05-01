@@ -95,5 +95,3 @@ Es decir, se mantenía formalmente la estructura existente, pero se utilizaban m
 Es evidente que, incluso contando a mujeres, niños y ancianos, y descontando las pequeñas embarcaciones que solo necesitan a unas pocas personas, todavía les falta mucha gente.
 
 "Para que estos barcos vuelvan a funcionar, es necesario reponer la dotación de marineros", dijo Wu Dedu, mirando la lista de inspección de los barcos del comité de planificación. "Excluyendo las pequeñas embarcaciones, se necesitan al menos 1500 personas más para que estos barcos puedan operar plenamente."
-
-(Fin del capítulo).

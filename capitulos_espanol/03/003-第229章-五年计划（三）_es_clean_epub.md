@@ -101,5 +101,3 @@ El objetivo principal de la fábrica de ropa es el consumo interno. Los habitant
 Actualmente, en la comuna de Bairen, existe una fábrica de ropa que fue establecida por Wu De y que está compuesta por mujeres de la comuna. Unas pocas "viajeras temporales" que saben usar máquinas de coser actúan como instructoras técnicas, y la fábrica puede producir zapatos de tela, sandalias, uniformes, sombreros, ropa de trabajo, ropa interior, mantas y calcetines de algodón, aunque a pequeña escala. Además, hay un curtidor que se dedica a fabricar diversos artículos de cuero para el ejército.
 
 No se debe subestimar el plan de Mo Xiao'an, que contempla una expansión significativa de la fábrica de ropa. En el futuro, a medida que aumenten las fuerzas militares, los trabajadores y la afluencia de inmigrantes de otras regiones, cuyas prendas deberán ser renovadas, la demanda de ropa por parte del grupo de viajeros temporales experimentará un crecimiento exponencial.
-
-(Fin del capítulo).

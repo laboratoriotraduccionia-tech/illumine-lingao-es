@@ -112,5 +112,3 @@ Huang Bingkun dijo que había venido a buscar a alguien, pero después de hablar
 "El dinero no lo quiero", dijo Min Zhuang, empujando la mano de Huang Bingkun hacia atrás con fuerza. Huang Bingkun, que tenía cierta habilidad, apenas pudo mantener el equilibrio y evitar caer al suelo.
 
 "¡Qué falta de consideración!", pensó, maldiciendo en silencio, mientras recogía el dinero y se marchaba a regañadientes.
-
-(Fin del capítulo).

@@ -123,5 +123,3 @@ Debido a que el mar no era del todo tranquilo, aunque el barco de la compañía 
 "Aunque las muertes en la agencia de escoltas no son infrecuentes, estos dos eran ancianos que habían trabajado allí durante muchos años, y naturalmente, su situación era diferente a la de los empleados más nuevos."
 
 "Una vez que una persona muere, no puede revivir. Aquí, definitivamente les brindaremos una compensación generosa", dijo Guo Yi, apresurándose a afirmar. "Primero, enviaremos doscientos taels de plata a los familiares de cada fallecido como ofrenda. Tú puedes encargarte de los detalles de la compensación por ahora, y luego lo discutiremos juntos. ¡No tengan miedo de gastar dinero!"
-
-(Fin del capítulo).

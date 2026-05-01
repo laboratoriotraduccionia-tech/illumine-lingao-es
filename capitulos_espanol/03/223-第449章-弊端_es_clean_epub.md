@@ -91,5 +91,3 @@ Wu Dedu asintió. Estos datos eran diferentes a los obtenidos por el grupo de in
 
 "No, no, no es necesario", dijo Wang Zhaomin con mucha cortesía, pensando para sí mismo que no podía aceptar algo así tan fácilmente, porque eso podría convertirse en una prueba de que estaba aceptando un "puesto falso".
 Sin embargo, al ver que Wu Dek estaba decidido a dárselo, y temiendo enfadar a la otra persona si no lo aceptaba, finalmente lo tomó, pensando que lo quemaría y destruiría cuando regresara.
-
-(Fin del capítulo).

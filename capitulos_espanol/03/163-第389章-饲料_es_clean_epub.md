@@ -87,5 +87,3 @@ De esta manera, las fuentes de alimento son bastante amplias y, con la escala ac
 "Este tema generó una gran controversia durante la fase de preparación de suministros antes de los viajes temporales, e incluyó debates sobre especies como el pez lobo y los cangrejos de río, que finalmente fueron descartadas. Se decidió que todas las especies controvertidas no se llevarían, ya que todas existen en la Tierra, y se podrían criar localmente cuando fuera necesario."
 
 "Las gambas pequeñas son deliciosas, es una pena. A todos les gusta comerlas."
-
-(Fin del capítulo).

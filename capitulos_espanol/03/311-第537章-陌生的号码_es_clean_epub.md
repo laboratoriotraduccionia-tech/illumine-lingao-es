@@ -42,7 +42,7 @@ Así, Dugu Qihun repitió todo lo ocurrido ese día. Ji Xin escuchó con mucha a
 
 "La diferencia es enorme", dijo Ji Xin. Atacar la sede de la Ejecutiva y realizar manifestaciones frente a ella parecen ser dos cosas distintas, pero en ese momento, la sensación de urgencia era completamente diferente.
 
-<p>Bajo el recordatorio de Ji Xin, Dugu Qiuhun se esforzó por recordar el contenido de cada llamada telefónica. Habían pasado algunos días desde que ocurrieron los hechos, por lo que era difícil recordarlos, pero estaba seguro de una cosa: había recibido una llamada de un número desconocido.</p>
+Bajo el recordatorio de Ji Xin, Dugu Qiuhun se esforzó por recordar el contenido de cada llamada telefónica. Habían pasado algunos días desde que ocurrieron los hechos, por lo que era difícil recordarlos, pero estaba seguro de una cosa: había recibido una llamada de un número desconocido.
 
 "Definitivamente no es alguien que conozco", afirmó Dugu Qiuhun con total seguridad.
 
@@ -129,5 +129,3 @@ Los registros telefónicos coincidían con los registros del servidor, y la list
 La sala de recreo pública es un lugar dentro de la ciudad de Bairen que está reservado exclusivamente para los viajeros temporales. Su estructura interna es similar a la de un cibercafé y una biblioteca combinados. Además de libros y periódicos impresos localmente en Lingao, también hay computadoras conectadas a la red interna, computadoras para jugar, y diversas consolas de juegos como PS3, XBOX360 y PSP, así como televisores, reproductores de DVD, sistemas de sonido y equipos de karaoke. Este es el lugar al que los viajeros temporales acuden con mayor frecuencia en su vida diaria.
 
 El teléfono público estaba ubicado en una esquina. Allí había un teléfono de manivela, y un pequeño teléfono inalámbrico, sujeto a la pared con una cadena y encerrado en una funda de plástico, era claramente visible.
-
-(Fin del capítulo).

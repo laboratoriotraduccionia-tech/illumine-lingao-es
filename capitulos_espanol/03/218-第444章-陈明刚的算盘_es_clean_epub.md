@@ -99,5 +99,3 @@ Chen Minggang era una figura muy importante en el condado, alguien a quien se de
 "¡La señora Chang fue a donde Qiuhong hace un momento!"
 
 "¡Ah?!" Chen Minggang se había puesto de pie. Qiuhong era una prostituta que había llegado desde el continente hace unos años y que regentaba un pequeño negocio en la ciudad del condado. Chen Minggang se había fijado en ella y la convirtió en su concubina. Chen Minggang estaba muy enamorado de esta mujer, que era muy diferente a las mujeres locales. Debido a que temía que su esposa causara problemas, no se atrevió a mantener a Qiuhong en una casa lujosa en la ciudad, así que construyó una casa en las afueras y la instaló allí, además de comprarle varias sirvientas. También había asignado personas para vigilar los alrededores de la casa, tanto para evitar que su esposa causara problemas como para evitar que otras mujeres intentaran seducir a Qiuhong y le fueran infieles.
-
-(Fin del capítulo).

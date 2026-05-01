@@ -128,4 +128,3 @@ La elevación del terreno aumentaba gradualmente, aunque no de manera muy eviden
 "¿De verdad? ¿No te vas a resfriar?", dijo Guo Yi, y se sentó de golpe, sacando una *pistola* de su bolsillo. Estaba ansioso por revisar el estado del arma; que los asaltantes le devolvieran la pistola era algo inesperado. Independientemente de sus motivos, eso le ahorraba muchos problemas, ya que la pérdida de un arma es un problema muy grave.
 
 "No, no lo hará", pensó Xueziliang, justo cuando iba a decir algo. De repente, un sonido de tambores rápidos resonó desde la maleza. Los tres se sobresaltaron, y de inmediato, varias flechas comenzaron a salir disparadas de la maleza y los árboles.
-(Fin del capítulo)

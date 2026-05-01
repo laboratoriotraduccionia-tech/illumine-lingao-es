@@ -95,5 +95,3 @@ Yú Guotuan frunció el ceño. Estas personas no solo eran codiciosas, sino tamb
 "Señor, reporte…"
 
 "No los necesitan aquí; que vengan las personas que se van a quedar", añadió You Guotuan. "Asegúrense de que lleven sus herramientas. Además de los látigos, eh, que lleven los palos de madera".
-
-(Fin del capítulo).

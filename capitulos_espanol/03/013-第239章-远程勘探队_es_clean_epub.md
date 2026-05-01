@@ -70,5 +70,3 @@ Bai Guoshi dejó la mochila y caminó con cuidado hacia un bosque, seguido por H
 "Son hierbas", dijo Huang Zuozi, con cierta decepción. Parecía que este tipo de plantas era común en el bosque, y no tenía nada de especial.
 
 "No la subestimes", dijo Bais Guoshi. "Necesitamos vivir cómodamente aquí, y esto tendrá un gran uso". Yizhi zi es un medicamento esencial para preparar remedios tradicionales que se utilizan en los días calurosos, como Ren Dan, Qianjin Ding y Qingxin Dan. Históricamente, fue uno de los principales productos que se enviaban como tributo desde la isla de Hainan.
-
-(Fin del capítulo).

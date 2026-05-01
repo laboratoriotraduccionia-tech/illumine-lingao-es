@@ -121,5 +121,3 @@ Li Jinquan era el mayor y tenía más experiencia. Recordó haber visto algo sim
 "Esto es precisamente así: las personas con dinero siempre buscan formas infinitas de disfrutar de la vida. Si pueden crear inodoros de laca roja y oro, nosotros también podemos usar porcelana blanca, ¡porque en Australia, un buen inodoro de porcelana vale una fortuna!". Al decir esto, recordó la sensación de impotencia que sintió en una famosa tienda especializada en artículos sanitarios en el extranjero, donde un inodoro costaba veinte mil unidades de moneda, ¡mientras que su salario anual también era de veinte mil!".
 
 "Hemos entendido. Sin embargo…" Un joven trabajador de la fábrica preguntó: "Si esto es un inodoro, ¿por qué la parte inferior no está sellada? ¿Por qué hay tuberías extrañas y curvas? Si es así, ¿no saldrán los residuos? ¿Cómo se supone que se usa?"
-
-(Fin del capítulo).

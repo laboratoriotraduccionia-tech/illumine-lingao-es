@@ -116,5 +116,3 @@ Liu San pensó: "Este Yang, el encargado, es realmente honesto y considera a los
 "Cuando la conversación llegó a este punto, Yang Shixiang no pudo más que aceptar la propuesta y tomó el documento, echándole un vistazo a los ingredientes especificados."
 
 "Las tiendas de mùxiang (musgo), bingpian (tabletas de ámbar) y feijin (oro pulverizado) no tienen existencias, ni tampoco perlas, y hay muchas otras especias…", dijo Yang Shixiang. "Tendré que ir a la ciudad de Qionshan otra vez para comprar mercancías; incluso es posible que algunas de ellas no estén disponibles en Qionshan". Frunció el ceño y, con los dedos, calculó cuidadosamente antes de preguntar con cautela: "¿Cuántas dosis es mejor preparar la primera vez?".
-
-(Fin del capítulo).

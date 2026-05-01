@@ -132,5 +132,3 @@ Chang Shide comprendió completamente la situación de repente. La vida de un si
 "¡Por supuesto que se le debe atender!", dijo Chang Shide con firmeza, y con un gesto de la mano añadió: "Trátenle bien a este señor, ¡y háganlo con rapidez!".
 
 Varios miembros del equipo de operaciones especiales que Beǐ había traído ya estaban en el grupo. Al escuchar esto, se acercaron de inmediato. Uno de ellos pisó a la persona, mientras que otro le tapó la boca con tierra y hierba que había recogido. El hombre, que estaba gritando y vociferando, se quedó sin aliento y casi se asfixió, y su cuerpo se desplomó. Los dos miembros del equipo de operaciones especiales envolvieron rápidamente a la persona en una estera y la sacaron silenciosamente.
-
-(Fin del capítulo).

@@ -70,5 +70,3 @@ Xiao Zishan preguntó: "¿Qué está pasando?"
 "Ah, Wu Nanhai ha accedido a destinar algunos productos agrícolas adicionales del huerto a los estudiantes. Así que, podríamos decir que es un acto de reciprocidad". Hu Qingbai se apresuró a decir: "Jefe Wen ya lo ha aprobado".
 
 Según tengo entendido, Jefe Wen ya ha dado su aprobación, y Xiao Zishan no dijo nada más. Al ver el letrero del comité de educación, comentó: "El entorno aquí es bastante bueno, es un buen lugar para tener una oficina".
-
-(Fin del capítulo).

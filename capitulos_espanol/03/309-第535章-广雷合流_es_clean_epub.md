@@ -74,5 +74,3 @@ Guo Yi no expresó ninguna opinión durante toda la reunión. Simplemente, cuand
 "Este asunto hay que comentarlo con Dingding", propuso Meng Xian. "Que prepare algunos reportajes especiales sobre el trabajo de las estaciones en el extranjero, para que la gente vea que también nos esforzamos mucho, y que no es tan fácil como para que todo se solucione con fiestas, alcohol y comentarios inapropiados".
 
 "¿'El periódico de Lingao'?", preguntó Yan Maoda. "La gente no tiene una buena opinión de este periódico ni de él mismo, y creo que la principal razón es que tiene una novia muy atractiva, lo que ha generado envidia." La estación de Guangzhou ha recopilado muchos detalles sobre la revolución de las sirvientas a través de diversos canales.
-
-(Fin del capítulo).

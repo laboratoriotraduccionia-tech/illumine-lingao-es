@@ -75,5 +75,3 @@ El uso de pólvora genera más gases al expandirse, lo que exige mayores estánd
 La última cuestión es la munición de 13 mm. Tanto si se trata de balas de metal como de papel, su tamaño y peso son relativamente grandes, lo que también aumenta el tamaño de la pistola resultante. Para reducir el tamaño, es necesario disminuir la capacidad del cargador.
 
 "Según mi opinión, incluso las mini-escopetas de 13 mm actuales tienen un calibre demasiado grande y un poder de fuego excesivo. Sin embargo, esto es un hecho consumado y no se puede cambiar fácilmente en poco tiempo."
-
-(Fin del capítulo).

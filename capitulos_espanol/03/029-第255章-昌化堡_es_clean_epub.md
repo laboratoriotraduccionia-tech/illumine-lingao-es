@@ -84,5 +84,3 @@ Aquí, en la zona de arena costera, desde la orilla del mar hasta el interior, s
 "La leche de cabra de Changhua es deliciosa", pensó Xiong Buyou, recordando la comida.
 
 "¿Cordero?"
-
-(Fin del capítulo).

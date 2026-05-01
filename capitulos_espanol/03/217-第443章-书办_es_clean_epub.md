@@ -83,5 +83,3 @@ Nota:
 2. No he podido encontrar información sobre la cantidad exacta de la asignación adicional de impuestos de Lingao. Aquí se ha calculado directamente utilizando la superficie de tierras gravadas de Lingao, lo cual seguramente no es preciso. Encontré un dato: en el condado de Yancheng, perteneciente a la prefectura de Huaian, la asignación de impuestos de 1620 (año Tianqi tres) fue de 23000 tael. Yancheng no es una región económicamente desarrollada, pero obviamente es mucho mejor que Lingao.
 
 3. El impuesto de tres dou y cinco sheng era el nivel promedio durante la dinastía Ming. Se encontraron dieciocho estándares de impuestos para la provincia de Qiongzhou. De estos, tres dou y cinco sheng era el más común, por lo que se adoptó esa cifra.
-
-(Fin del capítulo).

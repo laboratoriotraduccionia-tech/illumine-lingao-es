@@ -49,7 +49,7 @@ Li Haiping fue nombrado comandante de la unidad de avanzada y capitán del desta
 
 "¡Es Lao Xi, no pasa nada!", dijo Li Haiping, visiblemente emocionado. "Yo y él siempre jugábamos juegos de estrategia."
 
-<p>Un día, Wang Luobin fue invitado a la oficina de Wen Desi.</p>
+Un día, Wang Luobin fue invitado a la oficina de Wen Desi.
 
 "Wang Zong, parece que está con buena salud últimamente", dijo Jefe Wen. Existía una relación muy cercana entre Jefe Wen y Wang Gong, una de las relaciones más importantes entre hombres, por lo que, cuando no había nadie más presente, su actitud era menos formal.
 
@@ -84,5 +84,3 @@ Así, durante la 23ª reunión de trabajo del plan de desarrollo de Sanya del Co
 La estructura organizativa de la Zona Económica Especial de Sanya también fue discutida y aprobada en la misma reunión, y se establecieron los planes específicos. El máximo responsable de la Zona Económica Especial de Sanya es el gobernador de la región, quien tiene la autoridad para supervisar todos los asuntos civiles de toda la región de Sanya, incluyendo asuntos civiles, judiciales, económicos, de seguridad y otros.
 
 Se prevé que las fuerzas de milicia que se formarán en la región de Sanya sean dirigidas y coordinadas por el jefe de distrito. Solo la marina y el ejército están bajo el mando directo del comité ejecutivo de Lingao. El gobierno especial de Sanya no tiene autoridad para dar órdenes a las tropas estacionadas. Para facilitar la coordinación entre el gobierno local y el ejército, el comité ejecutivo estableció un comité regional de Sanya, compuesto por cinco personas: el jefe de la delegación militar de la marina y el ejército, el jefe del distrito, el director de la empresa minera de Tianduo y el comandante general del departamento de construcción de ingeniería de Sanya. Este comité se encargará de coordinar y decidir todos los asuntos militares importantes.
-
-(Fin del capítulo).

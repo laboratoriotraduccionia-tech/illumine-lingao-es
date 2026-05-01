@@ -107,7 +107,7 @@ Después de avanzar y detenerse de esta manera durante casi una hora, el barco f
 
 Wu De ordenó que un barco de reconocimiento entrara en un estrecho canal, buscando una zona rocosa donde se pudiera fondear. Lanzaron el ancla sobre las rocas, asegurándola en las grietas para fijar el barco.
 
-<p>La isla de Zhuyihu, cuyo nombre significa "isla de crisantemos", tiene una forma similar a la de una flor de crisantemo y se extiende sobre la superficie del mar. Las pequeñas islas, los arrecifes y las rocas crean numerosos canales de corrientes extrañas y pequeñas calas. Durante la marea baja, los barcos grandes no pueden navegar en estas aguas. Solo la superficie del mar de la isla exterior es relativamente amplia.</p>
+La isla de Zhuyihu, cuyo nombre significa "isla de crisantemos", tiene una forma similar a la de una flor de crisantemo y se extiende sobre la superficie del mar. Las pequeñas islas, los arrecifes y las rocas crean numerosos canales de corrientes extrañas y pequeñas calas. Durante la marea baja, los barcos grandes no pueden navegar en estas aguas. Solo la superficie del mar de la isla exterior es relativamente amplia.
 
 Wu De, acompañado de Wang Dahuzi y un marinero, subió a esta pequeña isla sin nombre. Llevaba un par de binoculares colgados al cuello y una chaqueta impermeable de lona. Los tres subieron la montaña, a veces más rápido, a veces más lento, asustando a las aves marinas y a los lagartos, que corrían desordenadamente. Wu De se detuvo para observar la actividad en el mar circundante.
 
@@ -128,5 +128,3 @@ A lo lejos, se podían ver varios lugares en la orilla opuesta que podrían ser 
 Después de dar la orden, bajó al barco y, a través de la radio, informó a Lingao sobre este plan.
 
 "Por favor, que el gerente Ma coordine este asunto", añadió al final del telegrama.
-
-(Fin del capítulo).

@@ -57,8 +57,8 @@ Wu Nanhai no estaba en la oficina. Según su secretaria, Chu Qing, "El señor es
 
 Desde que la Comisión Agrícola de Wunanhai se trasladó a la ciudad de Bairen y estableció una granja, la batata fue uno de los primeros cultivos que se plantaron.
 
-<p> ⃰ El camote, como un cultivo de alto rendimiento y estable, tiene una amplia adaptabilidad, alta resistencia a la adversidad, resistencia a la sequía y a la pobreza, y pocas plagas y enfermedades. Además de poder utilizarse como alimento y pienso, y para la fabricación de almidón, incluso las hojas pueden utilizarse como alimento verde de alta calidad, lo que significa que casi no hay desperdicio.</p>
-<p> ⃰ En lugares con buenas condiciones de agua y fertilizantes, la producción promedio por "mu" (unidad de superficie china) puede alcanzar entre 3000 y 5000 kilogramos, y en algunos casos, hasta 7500 kilogramos. En comparación con el arroz híbrido, que solo puede cultivarse una vez antes de perder su eficacia, es un "viajero temporal" mucho más significativo.</p>
+ ⃰ El camote, como un cultivo de alto rendimiento y estable, tiene una amplia adaptabilidad, alta resistencia a la adversidad, resistencia a la sequía y a la pobreza, y pocas plagas y enfermedades. Además de poder utilizarse como alimento y pienso, y para la fabricación de almidón, incluso las hojas pueden utilizarse como alimento verde de alta calidad, lo que significa que casi no hay desperdicio.
+ ⃰ En lugares con buenas condiciones de agua y fertilizantes, la producción promedio por "mu" (unidad de superficie china) puede alcanzar entre 3000 y 5000 kilogramos, y en algunos casos, hasta 7500 kilogramos. En comparación con el arroz híbrido, que solo puede cultivarse una vez antes de perder su eficacia, es un "viajero temporal" mucho más significativo.
 
 Sin embargo, en esta época, la batata no es lo suficientemente "mágica" como para considerarse un objeto especial. La batata no es algo nuevo aquí. Fue introducida desde Filipinas a China durante la época de Wanli. Inicialmente, se cultivó en la provincia de Guangdong, y también en la cercana isla de Hainan. Los viajeros temporales, cuando visitan las zonas rurales, a menudo ven batatas.
 
@@ -111,5 +111,3 @@ El Ministerio de Industria Ligera también mostraba un gran interés en la abund
 "Creo que esto es arriesgado", dijo Wu Nanhai, quien no tenía mucha fe en el plan de los bocadillos de batata. "En esta línea de tiempo, los nativos rara vez comen bocadillos, solo algunas personas ricas y con tiempo libre".
 
 "No hay mercado local en Lingao, pero se puede exportar a Guangzhou."
-
-(Fin del capítulo).

@@ -112,5 +112,3 @@ Estos días, en todas las reuniones, Guo Yi solo bebía "Guóshìwúshuāng", pr
 En la Guangzhou de la dinastía Ming, también se vendía vino. Existían dos tipos: uno era vino importado, transportado en barriles de madera, y era prácticamente idéntico al vino del siglo XX. El otro era simplemente vino amarillo al que se le había añadido pasas. Lugares como Ziminlou, naturalmente, utilizaban el primero.
 
 Se sirvió vino en una copa de cristal, de un color rojo intenso, muy atractivo. Guo Yi levantó la copa y tomó un pequeño sorbo. El sabor no era amargo, sino que tenía un toque ácido y dulce, y definitivamente se percibía un aroma familiar a vino de uva. Involuntariamente, exclamó: "¡Qué buen vino!".
-
-(Fin del capítulo).

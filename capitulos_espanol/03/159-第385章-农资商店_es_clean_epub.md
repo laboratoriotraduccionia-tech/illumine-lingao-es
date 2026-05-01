@@ -100,5 +100,3 @@ Wu Nanhai entró en un almacén especializado y, al salir, llevaba una caja de m
 "También es necesario añadir algunos ingredientes de origen vegetal, harina de pescado y polvo de conchas, ya que estos son necesarios para las gallinas ponedoras."
 
 Wu Nanhai propuso una fórmula principal para el alimento que incluía: polvo de lombrices deshidratadas, harina de pescado y polvo de conchas. No tenía maíz, que es el alimento más común, por lo que solo podía ofrecer alimento formulado.
-
-(Fin del capítulo).

@@ -95,5 +95,3 @@ Ahora, los funcionarios corruptos que originalmente iban a exigir sobornos ya es
 La habitación, llamada así, no tenía ni siquiera un libro. Había un escritorio junto a la ventana, y además de bolígrafos y tinteros, había un ábaco y libros de contabilidad. Junto a él, había un armario de madera muy grueso y con llave. Él lo abrió, sacó una caja de ofrendas, y de la caja sacó un papel para entregárselo a Xiong Buyou.
 
 "He preparado todo para el señor Xiong, he puesto el nombre comercial "Delong", y luego encontraremos a un intermediario que actúe como garante, así podremos que Delong gestione la administración del condado."
-
-(Fin del capítulo).

@@ -71,5 +71,3 @@ Xi Yazhou asìyáng asintió con la cabeza y preguntó: "¿Es el transporte por 
 Como si para confirmar sus palabras, de repente se escucharon disparos afuera, esporádicos. Xi Yazhou se sobresaltó, Hong Huangnan se levantó y miró por la ventana: "Miren, ¡son de nuevo los bandidos acuáticos! ¡Son realmente muy audaces! Tan pronto como oscurece, navegan en pequeñas embarcaciones para acercarse sigilosamente a los barcos de transporte y robar cosas. No les importa cuántas personas maten".
 
  PS: Mañana se publicará el capítulo 264 del volumen 7, "Administración de Guangzhou".
-
-(Fin del capítulo).

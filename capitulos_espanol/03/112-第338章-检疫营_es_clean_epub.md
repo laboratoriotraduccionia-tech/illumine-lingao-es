@@ -88,5 +88,3 @@ Yanghe es un hombre que pertenece al grupo de "viajeros temporales", personas co
 "Es muy estable, un estándar de emoción azul."
 
 "Todos los días es azul, no creas que estoy haciendo esto por nada", dijo Wu De. Sabía que Yanghe era un recién graduado universitario y carecía de experiencia social, y eso era algo que le preocupaba.
-
-(Fin del capítulo).

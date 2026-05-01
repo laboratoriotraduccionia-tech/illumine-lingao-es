@@ -99,5 +99,3 @@ Bai Dalu regresó a la casa y vio que Lu Ruohua aún estaba trabajando diligente
 "Padre", dijo Bai Dalu con mucha humildad, "
 
 Lu Ruohua asintió con la cabeza: "Entiendo tu intención. Mi hijo". Después de decir esto, cerró los ojos, como si estuviera reflexionando sobre algo. Bai Dalu se escabulló silenciosamente.
-
-(Fin del capítulo).

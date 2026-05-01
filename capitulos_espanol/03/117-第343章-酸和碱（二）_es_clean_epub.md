@@ -90,5 +90,3 @@ El primer lote de ácido sulfúrico, con una concentración del 98%, fue cuidado
 Después de pegar las etiquetas que indicaban "98% de ácido sulfúrico", la fecha de producción y el lugar de producción en los envases, estos se colocaban cuidadosamente en cajas de madera especialmente diseñadas para la fábrica de carpintería, generalmente una o dos unidades por caja. Dentro de la caja, los envases se sujetaban con cuerda de pasto para proporcionar amortiguación. Luego, se cargaban en tren y se transportaban a un almacén de productos químicos peligrosos.
 
 Después de la primera victoria del ácido sulfúrico, Ji Si retiró a los trabajadores indígenas y, durante unos días, combinó la producción con la enseñanza. Esto continuó hasta que los trabajadores indígenas dominaron básicamente los procesos y técnicas de producción, y memorizaron todas las normas de seguridad.
-
-(Fin del capítulo).

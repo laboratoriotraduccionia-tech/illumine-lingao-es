@@ -90,5 +90,3 @@ Entonces, alguien inyectó un anestésico sin preguntar a nadie. Claramente, el 
 "En la línea de tiempo original, esto habría sido un claro caso de negligencia médica", comentó Hemà, aún con cierto temor. Independientemente de lo que ocurriera, él, como supervisor, debía asumir al menos la responsabilidad principal por no haber supervisado adecuadamente a esos jóvenes médicos en prácticas.
 
 "Está bien, registremos esto como una infección postoperatoria con un resultado fatal", dijo Shi Niaoren con tono preocupado. "También debemos educar adecuadamente a los estudiantes que están en prácticas; ¡no deberían administrar anestesia si ni siquiera han tomado la clase de anestesia! Además, ¿cómo se gestionan los medicamentos anestésicos? ¿Cómo pudieron obtenerlos tan fácilmente?".
-
-(Fin del capítulo).

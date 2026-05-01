@@ -84,9 +84,7 @@ La mujer, que estaba de pie a un lado, se levantó, sacudió su larga falda y fi
 
 El hombre de mediana edad resopló con desprecio, se agachó para mover el farol y dijo en voz baja: "El ladrón está en 'Pòchéng'. Vaciar este pozo no es algo que se pueda hacer de la noche a la mañana; es extremadamente profundo, y sin este sistema de cuerdas, solo un ser divino podría sacar algo de aquí".
 
-Dejando de lado las estrictas reglas, aquí está la traducción:
-
-"Pensó por un momento y guardó las piezas de metal que sujetaban la ropa bajo un árbol de algodón, enrollando la cuerda de nuevo. Le dijo a la mujer: 'Mañana temprano, llévalos a todos de vuelta a tu casa, yo y Chen Xuan nos quedaremos en la ciudad'."
+Pensó por un momento y guardó las piezas de metal que sujetaban la ropa bajo un árbol de algodón, enrollando la cuerda de nuevo. Le dijo a la mujer: "Mañana temprano, llévalos a todos de vuelta a tu casa, yo y Chen Xuan nos quedaremos en la ciudad".
 
 "¿Y tú?"
 

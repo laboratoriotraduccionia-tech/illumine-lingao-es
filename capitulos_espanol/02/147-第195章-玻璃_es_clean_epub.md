@@ -79,4 +79,3 @@ Después de completar esta versión mejorada del horno de vidrio, los grupos de 
 "Está bien, en realidad no es necesario el dióxido de manganeso", dijo Ji Situi. "Su función es la de un agente oxidante, y no es necesario que sea dióxido de manganeso; el nitrato de potasio también es un agente oxidante, y se puede usar este último".
 
 Lo que se conoce como nitrato de potasio, o nitrato, es algo de lo que aún disponían en abundancia. Después de varios intentos, el grupo de pruebas con vidrio finalmente logró producir un vidrio incoloro el día anterior a la víspera de Año Nuevo. Este logro provocó celebraciones en muchos miembros del departamento industrial: ¡el "objeto mágico" para los viajeros temporales, el vidrio, había nacido!
-(Fin del capítulo)

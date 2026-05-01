@@ -106,5 +106,3 @@ Finalmente, se decidió que Wang Jinxǐ, junto con otros dos marineros que se ha
 "¿Quieres cavar un pozo? Pero no tienes el equipo necesario."
 
 "El agua que sale del pozo probablemente es salobre. Quiero construir un canal subterráneo y, además, traer agua del río. De esta manera, el enemigo no podrá detectarlo fácilmente."
-
-(Fin del capítulo).

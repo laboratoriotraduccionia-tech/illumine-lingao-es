@@ -72,5 +72,3 @@ Es poco probable que ocurra lo que dijo Li Chiqi, pero si se encuentra con una f
 Wen Desi estuvo medio hora en una ardua lucha interna en su oficina, y luego llamó por teléfono a los miembros del comité ejecutivo y a los representantes de los comités de trabajo.
 
 "Venga a mi oficina, tengo algo que discutir."
-
-(Fin del capítulo).

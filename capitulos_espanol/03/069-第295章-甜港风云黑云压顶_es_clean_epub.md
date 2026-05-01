@@ -129,5 +129,3 @@ Estas palabras a nadie le gustan, y terminan generando una situación en la que 
 "Es mejor que alguien ayude que que nadie ayude", dijo Wen Tong, instando a Chen Tianxiong, "¿y qué hay de lo siguiente?".
 
 "Es importante organizar a la milicia para que esté preparada para defenderse y tener un plan de contingencia en caso de que la situación se complique", dijo Chen Tianxiong. "Si la milicia no puede resistir y se retira, mi opinión es que lo más importante es proteger la vida. Mientras haya esperanza, siempre habrá oportunidades".
-
-(Fin del capítulo).

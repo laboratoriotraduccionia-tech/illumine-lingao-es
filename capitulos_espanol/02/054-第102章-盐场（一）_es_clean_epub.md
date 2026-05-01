@@ -13,9 +13,7 @@ En cuanto a los cereales diversos, descubrió el "suli". 法石禄 nunca había 
 
 Además de los granos, también encontró grandes extensiones de ortiga silvestre. Parece que el pueblo Li no se preocupa mucho por la agricultura, y su sistema es básicamente de abandono, sin ningún tipo de gestión en el campo. Las frutas, la ortiga y el algodón están en estado silvestre; simplemente los recolectan y utilizan, sin ningún tipo de cultivo o plantación planificada.
 
-Aquí está la traducción del fragmento:
-
-"Los cerdos, las vacas y las aves de corral se crían libremente en las laderas de la montaña, sin corrales ni alimentación suplementaria. Por lo tanto, no parecen estar en muy buena forma. La cantidad de vacas, sin embargo, es sorprendente, y hay tanto búfalos como vacas. Él no es experto en ganadería y no conoce los detalles de las razas; más adelante enviará a profesionales para que lo evalúen."
+Los cerdos, las vacas y las aves de corral se crían libremente en las laderas de la montaña, sin corrales ni alimentación suplementaria. Por lo tanto, no parecen estar en muy buena forma. La cantidad de vacas, sin embargo, es sorprendente, y hay tanto búfalos como vacas. Él no es experto en ganadería y no conoce los detalles de las razas; más adelante enviará a profesionales para que lo evalúen.
 
 "Realmente es un desperdicio", lamentó Falishi Lu. "Las condiciones agrícolas aquí son bastante buenas, pero el nivel de la agricultura apenas es un poco mejor que el de la sociedad primitiva".
 

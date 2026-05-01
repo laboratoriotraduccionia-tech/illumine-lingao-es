@@ -85,5 +85,3 @@ Wu Nanhai dijo: "Tanto los patos como los gansos necesitan agua, y las condicion
 "Las aves de corral se reproducen rápidamente. Ojalá que la cría de cerdos también pudiera tener una eficiencia reproductiva tan alta."
 
 "La tasa de reproducción de los cerdos tampoco es mala; una cerda puede tener dos camadas al año, con veinte lechones en cada una, y la tasa de supervivencia, si se crían adecuadamente, es muy alta", dijo Yang Bao贵. "El mayor problema es la falta de cerdas."
-
-(Fin del capítulo).

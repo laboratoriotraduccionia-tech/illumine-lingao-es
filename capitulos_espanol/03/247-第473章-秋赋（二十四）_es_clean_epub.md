@@ -84,5 +84,3 @@ Wu De planeaba reemplazar por completo al personal del "kuai ban" (equipo rápid
 El plan estaba definido, y su implementación se llevó a cabo de manera ordenada. Cuando el cielo se oscureció, los guardias comenzaron a tocar la campana y a gritar "toque de queda" en las calles. No había mercados nocturnos aquí, y normalmente nadie caminaba por la noche, así que en poco tiempo, las calles quedaron desiertas. Los batallones de la guarnición, esperando afuera de la ciudad, comenzaron a entrar en formación y avanzar hacia la ciudad, comenzando por los civiles que trabajaban en las puertas de la ciudad y luego dirigiéndose hacia la oficina del condado.
 
 Los funcionarios del tercer grupo fueron reunidos uno tras otro, según la lista. Algunas personas se dieron cuenta de que algo andaba mal desde la tarde, pero una vez que las puertas de la ciudad y la oficina del condado fueron controladas, no tenían a dónde escapar y solo podían rendirse.
-
-(Fin del capítulo).

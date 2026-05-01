@@ -12,7 +12,7 @@ Sin embargo, la civilización industrial del grupo de viajeros temporales es dem
 
 Lo que se ha perdido es la esencia de la civilización industrial moderna. Esas piezas desechadas, la gasolina quemada, las horas perdidas de vehículos y motocicletas, la vida útil de las máquinas, el caucho y los plásticos envejecidos… Cada vez que Ma Qianzhu veía los informes del comité, sentía una sensación de urgencia.
 
-<p>Si no se puede establecer un sistema básico de autosuficiencia antes de que se agote la vida útil de estos dispositivos, el plan de los *viajeros temporales* para controlar el este de Asia y colonizar Australia durante la vida de una generación fracasará por completo.</p>
+Si no se puede establecer un sistema básico de autosuficiencia antes de que se agote la vida útil de estos dispositivos, el plan de los *viajeros temporales* para controlar el este de Asia y colonizar Australia durante la vida de una generación fracasará por completo.
 
 Lo crucial es que, incluso la persona más experta en sistemas industriales entre ellos, no puede saber: ¿cuándo el agotamiento de un determinado recurso provocará que la modernización industrial del grupo de viajeros temporales llegue a un punto muerto? Por lo tanto, es imprescindible iniciar el proceso de industrialización mientras haya una gran abundancia de diversos recursos y equipos.
 
@@ -70,5 +70,3 @@ Ma Qianzhu tenía un gran interés en los canales, y en su tiempo libre había e
 En segundo lugar, esto favorece la regulación de la cantidad de agua almacenada, lo que beneficia la producción agrícola e industrial. Actualmente, los beneficios del riego del río Wenlan aún no se han aprovechado al máximo. En las grandes áreas de cultivo a lo largo del río, básicamente no se han construido canales, y el riego depende del trabajo manual y de los carros de agua, lo que resulta en una eficiencia extremadamente baja. La agricultura y la industria modernas que los viajeros temporales están a punto de promover consumirán grandes cantidades de agua. Con las compuertas, el suministro de agua para la agricultura e industria durante la estación seca puede estar garantizado.
 
 Todos los presentes en la reunión quedaron cautivados por las perspectivas prometedoras que Ma Qian presentaba. Wu Nanhai visualizaba intrincados sistemas de canales de riego; Wen Desi veía una flota de barcazas en los canales; Zhan Wuyuan imaginaba innumerables turbinas y plantas de energía; Xiao Zishan veía familias de viajeros temporales disfrutando de paseos fluviales los fines de semana…
-
-(Fin del capítulo).

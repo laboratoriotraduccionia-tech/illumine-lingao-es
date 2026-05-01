@@ -90,5 +90,3 @@ Aumentar los impuestos sobre el arroz, aunque no es un asunto grave, ya está ca
 "Xiaohu" de la tienda de paraguas dijo: "Es imprescindible encontrar una excusa adecuada para poder hablar con los grandes comerciantes y hacer que acepten sin objeciones. De esta manera, tendremos margen de maniobra en el futuro."
 
 Chen Minggang asintió con la cabeza. Xiao Hu es una persona con una buena capacidad de comprensión, mucho más inteligente que algunos de sus discípulos. Lamentablemente, este hombre es cojo y no puede mostrarse en público. Pensando en esto, miró a Zhou Qi y, sin querer, sintió una sensación de desagrado hacia él.
-
-(Fin del capítulo).

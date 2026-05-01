@@ -95,5 +95,3 @@ Liu San y Yang Shixiang comenzaron su relación de hermandad principalmente con 
 "Esto es gracias a ti, estimado hermano", dijo Yang Shixiang con entusiasmo. "Ahora mismo hablaré con el gerente Liu para que traiga más trabajadores desde Foshan…"
 
 Liu Bianshan es actualmente el encargado de Runshi Tang en Foshan, y supervisa todas las operaciones de Runshi Tang en la provincia de Guangdong.
-
-(Fin del capítulo).

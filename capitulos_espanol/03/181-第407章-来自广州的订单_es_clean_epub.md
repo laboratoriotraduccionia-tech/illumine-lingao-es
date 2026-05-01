@@ -156,5 +156,3 @@ La idea principal de esta renovación es transformar Zǐmínglóu en un modelo d
 "De acuerdo, de acuerdo, escucharé atentamente."
 
 "La primera tarea es desarrollar una línea completa de artículos de higiene y limpieza", dijo Zhang Xin, entregándole una lista. "Estos artículos deben estar disponibles en dos meses, mientras que el resto puede esperar un poco."
-
-(Fin del capítulo).

@@ -182,5 +182,3 @@ Běi Wěi preguntó: "¿El fuego se ha extendido hacia la parte de atrás?".
 Esta es una medida para evitar que el fuego se extienda. El hecho de que no salieran a la calle alivió a Bei Wei; él no quería causar muertes innecesarias.
 
 "Al ver que el fuego se había extendido considerablemente y que ya no se escuchaban ruidos provenientes del interior, él levantó la mano y dijo: '¡Retirada!'"
-
-(Fin del capítulo).

@@ -115,5 +115,3 @@ Wang Luobin llegó al salón principal y vio al magistrado de Wuxian vestido con
 "Tomen esto", dijo Wu Mingjin asintiendo. "Digan a la cocina que traigan algo de hielo picado."
 
 "No me atrevo a molestarlos."
-
-(Fin del capítulo).

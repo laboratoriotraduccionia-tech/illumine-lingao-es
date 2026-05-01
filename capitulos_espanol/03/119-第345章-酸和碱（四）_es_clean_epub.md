@@ -107,4 +107,3 @@ Shi Niaoren regresó de la visita a la fábrica de productos químicos de Bopu, 
 Shi Niaoren tarareaba la canción "Dieciocho movimientos" mientras llevaba varias bolsas de excremento y entró en el Hospital General Bairen. Ye Yuming, que pasaba por allí, murmuró sorprendido: "¿Este tipo estará loco por mirar excremento todo el día?".
 
 La verdadera razón, por supuesto, era otra! Shi Niaoren, sentado en su "primer centro de pruebas médicas de esta línea temporal", cruzó las piernas con confianza, rodeado de una pila de muestras fecales, y esbozó una sonrisa de satisfacción. El éxito de esta producción en el departamento de química reavivó su entusiasmo, que había disminuido gradualmente hacia la fábrica de productos farmacéuticos, dándole una nueva energía y haciéndole pensar en qué otros medicamentos podría crear. Esto era mejor que diez años de arduo entrenamiento. ¡Hay personas del grupo de viajeros temporales!
-(Fin del capítulo)

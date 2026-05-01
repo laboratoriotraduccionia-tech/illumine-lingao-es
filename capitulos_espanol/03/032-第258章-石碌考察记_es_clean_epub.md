@@ -106,5 +106,3 @@ Cui Yunhong, emocionada, sentía que le daba vueltas la cabeza y estuvo a punto 
 Se estableció un campamento a orillas del arroyo para pasar la noche. La noche transcurrió sin incidentes, y al día siguiente, Cui Yunhong lideró un pequeño grupo de 5 personas que ascendió a la montaña. El resto de las personas permanecieron en el campamento.
 
 Yayu Ling no es una montaña muy alta, y no presenta pendientes pronunciadas. La vegetación predominante en las laderas es un paisaje de praderas con árboles dispersos, con grandes extensiones de hierba alta, de aproximadamente un metro y medio. Aunque es mejor que una selva tropical, la escalada es bastante exigente. Afortunadamente, teníamos a Li Benqing, un viejo cazador, que nos guió, eligiendo rutas donde la vegetación era más escasa.
-
-(Fin del capítulo).

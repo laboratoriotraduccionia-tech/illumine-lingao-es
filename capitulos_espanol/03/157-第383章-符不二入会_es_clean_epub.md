@@ -78,5 +78,3 @@ A partir de entonces, estos clientes deberán pagar una cuota anual. La organiza
 "No pasa nada", explicó Wu Nan海. "En el primer año, aprovechando la organización Tiandi Hui, se distribuirían fertilizantes y pesticidas a las zonas rurales, no solo para los clientes que forman parte de Tiandi Hui, sino que también se podrían ofrecer gratuitamente a los pueblos de las zonas verde y azul. En el segundo año, se podría vender en todo el condado. El transporte lo realizarían los propios agricultores. El volumen y el peso no son un problema, ya que estos productos tienen un costo muy bajo; el costo de los pesticidas caseros es básicamente solo el costo de la mano de obra, y las materias primas son cosas que no valen mucho".
 
 "Sin embargo, señor Wu, no entiendo por qué los estatutos mencionan específicamente solo a los 'terratenientes con negocios', ¿no son todos los terratenientes terratenientes?" Wanhui no lo entendía.
-
-(Fin del capítulo).

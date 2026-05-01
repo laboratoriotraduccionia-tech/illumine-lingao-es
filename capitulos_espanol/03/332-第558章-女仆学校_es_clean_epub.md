@@ -96,5 +96,3 @@ Ella parpadeó: "¿Deberíamos usar el subsidio para empleadas domésticas para 
 "Por supuesto que no. Ya tengo suficiente con uno en casa", respondió inmediatamente Gao Xiaosong, con un tono firme, para demostrar su postura.
 
 "Estás mintiendo", dijo Dong Weiwu, rodeando con sus brazos el cuello de su esposo y sonriendo. "Pero lo consideraré".
-
-(Fin del capítulo).

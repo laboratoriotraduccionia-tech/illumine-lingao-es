@@ -116,5 +116,3 @@ Rùshìtáng había visto cómo sus negocios empeoraban día tras día desde que
 Liu San tomó un sorbo de té. El té de hierbas de esta casa estaba preparado de manera auténtica y había sido infusionado con agua de pozo, lo que lo hacía refrescante y agradable para combatir el calor.
 
 "¿El gerente Yang no está?" Cada vez que Liu San venía, el gerente Yang siempre aparecía rápidamente para recibirlo; tenía mucho interés en la medicina utilizada por los australianos, especialmente en la forma en que inyectaban medicamentos en el cuerpo con agujas para tratar enfermedades, y a menudo preguntaba sobre los principios detrás de ello. Liu San también le explicaba algunos principios básicos de la medicina moderna, como las inyecciones intramusculares, las venas, las arterias, las infecciones microbianas y los antibióticos, lo que fascinaba al gerente Yang. En las tiendas tradicionales de medicina china, a menudo la medicina y la práctica médica estaban entrelazadas, y los dueños y empleados tenían cierto conocimiento de medicina. Por lo tanto, era natural que sintiera un gran interés por esta nueva forma de medicina.
-
-(Fin del capítulo).

@@ -123,5 +123,3 @@ La dirección de la fuga no es algo que deba preocuparse. A lo largo de estos a�
 La familia Gu, con sus tres barcos, fue la primera en cambiar de dirección y, impulsados por las velas y los remos, se dirigieron hacia la isla de Zhuyihua para escapar. Inmediatamente después, los barcos restantes también siguieron el ejemplo y se dieron la vuelta para huir.
 
 En la superficie del mar, quedaron dos barcos a la deriva, apenas flotando, y un barco envuelto en llamas. La mayoría de las personas a bordo ya habían sido asesinadas o heridas, y tanto las velas como los timones estaban destruidos; incluso si quedaban algunos supervivientes, no podrían mover esos barcos. El viento traía los gritos y las maldiciones de los piratas que habían sido arrojados desde los barcos destrozados.
-
-(Fin del capítulo).

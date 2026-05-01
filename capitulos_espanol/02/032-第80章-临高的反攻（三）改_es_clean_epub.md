@@ -1,4 +1,4 @@
-## Capítulo 76: La contraofensiva de Lingao (III) – Modificado
+## Capítulo 76: La contraofensiva de Lingao (III)
 
 "¡Me he quedado sin munición!"
 

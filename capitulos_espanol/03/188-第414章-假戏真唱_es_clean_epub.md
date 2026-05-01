@@ -202,5 +202,3 @@ Sin embargo, Lin Baiguang pensó en lo que los piratas que custodiaban la puerta
 "¿Cómo te llamas?", preguntó Lin Baiguang, sirviéndose una copa y dirigiéndose a la mujer que seguía sentada en el suelo, aparentemente distraída.
 
 "Me llamo Xiaoshu," dijo la joven.
-
-(Fin del capítulo).

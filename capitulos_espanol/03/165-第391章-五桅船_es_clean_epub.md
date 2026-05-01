@@ -133,5 +133,3 @@ Mientras Lèlín supervisaba la limpieza del campo de batalla y la organización
 Ruǎn Xiǎowǔ, con un machete al hombro y un arma de fuego de Délínjié en la cintura, escupió en la palma de su mano, se impulsó y, agarrándose a una cuerda gruesa que colgaba del costado de la embarcación, fue el primero en subir. "Ser el primero en todo" es un principio básico de educación para los oficiales del grupo de viajeros temporales. Sus subordinados le siguieron, uno tras otro.
 
 En la amplia cubierta del barco "Daguang", se podían ver los rastros de una intensa batalla: manchas de sangre, cadáveres y mercancías esparcidas debido a la confusión durante el transporte.
-
-(Fin del capítulo).

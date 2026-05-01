@@ -89,4 +89,3 @@ Cualquier tipo de arte marcial o técnica de combate requiere, como requisito fu
 
 Chen Sigēn es experto en artes marciales mixtas y se encarga de parte de los cursos de entrenamiento de combate. Sin embargo, los cursos principales de combate son impartidos por Xue Ziliang, quien enseña el arte de combate Kray Maga, ampliamente utilizado por las fuerzas del orden de Estados Unidos.
 
-(Fin del capítulo)

@@ -126,5 +126,3 @@ Todos los presentes estaban mirando a Zhu Sanye, sabiendo que él tenía un plan
 "No debe ser muy diferente", dijo Zhu Sanye, con voz vaga. "¿Conoces a tus amigos y a tus enemigos?".
 
 "Algunos, impacientes, ya estaban gritando: '¡Señor, díganos qué debemos hacer!'".
-
-(Fin del capítulo).

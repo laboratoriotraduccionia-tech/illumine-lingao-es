@@ -143,5 +143,3 @@ En el camino, se encontró con Zhao Dachong, quien estaba esperando en la calle 
 "¡Vamos, no es necesario hablar de eso!", Xinnanri simplemente no podía ocuparse de Liu Si y Liu Wu, los dejó atrás y comenzó a correr a toda velocidad.
 
 La batalla terminó rápidamente. Zhao Haigui, Zhao Haixie y Zhao Dachong fueron todos abatidos. Xin Nara chun, que originalmente lideraba a una docena de miembros de la banda en la calle para proporcionar apoyo, rodó por el suelo y fingió estar muerta después de que los soldados que aparecieron repentinamente comenzaron a disparar indiscriminadamente, alcanzando a algunas personas. Fue pateada con fuerza durante la limpieza del campo de batalla antes de que se levantara a regañadientes, y fue atada con una cuerda junto con otros prisioneros. De los aproximadamente cincuenta hombres que Xin Nara trajo, y los más de treinta miembros de la banda que Zhao Dachong movilizó en el pueblo, todos fueron asesinados o capturados, y ninguno escapó.
-
-(Fin del capítulo).

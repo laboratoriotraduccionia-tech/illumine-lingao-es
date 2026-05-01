@@ -88,5 +88,3 @@ Xun Suji no sabía que una buena noticia le esperaba. Tampoco interpretó la fre
 "Liu Meilan vio cómo él bebía leche de vaca y no pudo evitar soltar una risita. Este hombre era muy diferente de cómo ella imaginaba al líder de Australia. No tenía una apariencia llamativa; aunque su piel era clara, sus movimientos y gestos no se parecían en nada a la imagen de un joven elegante que se describe en las novelas. Parecía bastante tosco, ¡y además, estaba trabajando en el campo él mismo! Siempre había pensado que los jóvenes de buena posición no harían trabajos agrícolas. Solo los terratenientes como su familia irían personalmente a los campos junto con los trabajadores y los arrendatarios."
 
 "Chang" quería casarse con este hombre australiano, pero Liu Meilan no estaba muy dispuesta. Ella estaba enamorada del joven de una familia de pequeños terratenientes en Ling庄. Era muy educado y apenas había comenzado sus estudios. Liu Meilan lo había visto varias veces en las ferias del pueblo y siempre había tenido una fantasía sobre él.
-
-(Fin del capítulo).

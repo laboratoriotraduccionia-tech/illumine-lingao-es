@@ -78,5 +78,3 @@ Lin Baiguang ya había adquirido un terreno en una zona desolada dentro del puer
 Nota: No existe un lugar llamado "mina de carbón Jiazi" en Haikou, ni tampoco está ubicada a orillas del río Nan'du. Es completamente inventado, no profundicen demasiado en ello. El nombre se eligió por el distrito administrativo donde se encuentra la mina de carbón Changchang de Haikou: la ciudad de Jiazi.
 
 En toda la provincia de Hainan, solo hay dos lugares donde se extrae carbón: la mina Changchang en Haikou y la mina Changpo en Danzhou. Ninguno de estos lugares está cerca de un río.
-
-(Fin del capítulo).

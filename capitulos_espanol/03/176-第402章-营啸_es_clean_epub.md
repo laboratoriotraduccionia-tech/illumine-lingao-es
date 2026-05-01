@@ -174,5 +174,3 @@ Tan pronto como llegó, llamó a Chen Zhonghuan, Huang Ande y a otras personas p
 "¿Mucha presión psicológica? Desde que llegaron a la costa, les hemos dado de comer y beber lo mejor."
 
 "Es cierto que la comida y la bebida son buenas, pero incluso en un entorno desconocido, es fácil acumular estrés. Además, el alojamiento es un poco apretado", dijo Jiang Qiuyan. "Les he dado un poco de extracto de opio para que duerman bien y se recuperen".
-
-(Fin del capítulo).

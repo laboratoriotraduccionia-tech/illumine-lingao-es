@@ -187,5 +187,3 @@ Además de ellos, también había algunos pequeños y medianos propietarios de t
 "Nadie se imaginó que el anciano profesor, Lao Donghong, del condado, haría algo tan audaz. En realidad, él también estaba en una situación en la que no tenía otra opción."
 
 El maestro Wang Ci, que trabajaba en el condado, era un erudito experimentado y ya llevaba muchos años desempeñando este "puesto de poca importancia" en el condado. Durante la dinastía Ming, la educación en Lingao era relativamente avanzada en Hainan. Además de la escuela del condado, existían dos "academias" privadas, y entre ellas, la famosa Academia Moli Xuan, ubicada a orillas del río Wenlan, se remontaba a la dinastía Song. Las escuelas privadas en las zonas rurales tampoco eran infrecuentes. Sin embargo, la situación de la escuela del condado era bastante precaria.
-
-(Fin del capítulo).

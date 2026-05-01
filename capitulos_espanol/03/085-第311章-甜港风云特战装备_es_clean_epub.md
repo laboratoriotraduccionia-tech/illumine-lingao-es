@@ -169,5 +169,3 @@ Finalmente, sacó un objeto con forma de botella de una caja y dijo: "Esto es un
 "Xú Yíngjié asintió y dijo: "Puedes estar seguro de eso. Todavía es posible alcanzar la intensidad necesaria para un disparo."
 
 Además, hay una docena de dispositivos de señalización y cohetes de iluminación. Aunque son pequeños, son muy útiles. Al ver estos objetos, Chen Tianxiong, además de admirar la creatividad de todos, pudo ver que la capacidad industrial de Lingao había dado un nuevo paso adelante. Muchos de estos objetos requieren productos químicos. Parece que la comisión de trabajo industrial ha estado muy activa; los ingenieros siempre priorizan la acción.
-
-(Fin del capítulo).

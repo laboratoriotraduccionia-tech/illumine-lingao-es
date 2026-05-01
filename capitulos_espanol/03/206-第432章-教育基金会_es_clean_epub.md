@@ -67,5 +67,3 @@ Este tipo de carruaje no solo era utilizado por los viajeros temporales, sino ta
 El sistema de transporte público con carreteras y carruajes de bueyes permitió que los habitantes de Lingao comprendieran gradualmente qué es un servicio público, un tipo de servicio proporcionado por el gobierno que beneficia a toda la población, algo prácticamente inexistente en la sociedad china tradicional. Es evidente cuál es superior: los servicios públicos ofrecidos por el grupo de viajeros temporales o las acciones del condado de Lingao. Además, la puntualidad de los carruajes de bueyes comenzó a introducir gradualmente el concepto de tiempo preciso en la mente de la gente.
 
 Lamentablemente, el grupo de viajeros temporales aún no ha podido crear relojes, lo que impide transmitir aún más el concepto moderno del tiempo a los nativos. El doctor Zhong Lishi ha dedicado toda su energía al desarrollo de la radio, que es algo más importante que los relojes.
-
-(Fin del capítulo).

@@ -119,5 +119,3 @@ Independientemente de si se puede encontrar a alguien. En esta situación, es ne
 Inmediatamente se ordenó detener la extracción de guano, y todo el barco entró en estado de alerta máxima. Se establecieron puestos de guardia en cada rincón del "Zhenhaihao", y luego comenzó una búsqueda exhaustiva de toda la isla.
 
 "Si se encuentran personas, intenten capturarlas con vida", ordenó Gao Xiaosong.
-
-(Fin del capítulo).

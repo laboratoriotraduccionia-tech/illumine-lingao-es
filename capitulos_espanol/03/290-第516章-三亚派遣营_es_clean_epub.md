@@ -88,5 +88,3 @@ Xi Yazhou regresó al cuartel general del ejército y discutió los detalles del
 Desde Lingao hasta Sanya, el velero necesita siete días para el viaje. En una situación donde el número de embarcaciones motorizadas es limitado, las tropas de Yulinbao, una vez que enfrentan un ataque a gran escala y envían un telegrama de emergencia, necesitan al menos diez días para recibir refuerzos. Además, el área que debe ser protegida es considerable, por lo que He Ming considera que desplegar tres batallones de infantería es una medida adecuada.
 
 Nota: El viaje en velero de Lingao a Sanya, que dura siete días, se basa en los registros de "Zhengde Qiongtai Zhi".
-
-(Fin del capítulo).

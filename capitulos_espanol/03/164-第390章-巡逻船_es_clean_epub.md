@@ -87,5 +87,3 @@ Su bandera de mando ondeaba en el mástil. La patrullera número 101, recién co
 En la parte trasera del puente del barco, se instalaron armas de verificación, es decir, las "ametralladoras" que Li Yunxing había desarrollado. Ya se habían fabricado varias "máquinas de escribir", y se estaban cargando en el barco para pruebas. La patrullera 101 tuvo el honor de ser una de las primeras embarcaciones en equiparse con este tipo de arma.
 
 "Finalmente, parece un buque de guerra", dijo Lèlín con satisfacción. Su mirada se movió desde los cañones hacia los barcos que estaban alineados a ambos lados. Aunque eran barcos de pesca un poco viejos, con velas reparadas, la formación de los tres barcos, alineados en el mar, recordaba a una formación naval. En su imaginación, se veía a sí mismo vestido con un uniforme de almirante de la marina, con medallas coreanas en el pecho, de pie en el puente de un acorazado, mientras en el mar a su lado, un grupo de acorazados se alineaban en formación, surcando las olas bajo la luz del sol naciente…
-
-(Fin del capítulo).

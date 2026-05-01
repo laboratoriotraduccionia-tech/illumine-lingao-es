@@ -142,4 +142,3 @@ Sin embargo, "Qigou" es una propiedad privada suya, y construir una pequeña má
 De vuelta en la oficina, apretó los dientes y sacó un paquete de "Dahongying" de alta calidad del cajón. Abrió el paquete y tomó dos bolsas, pero pensándolo bien, volvió a guardar una bolsa y solo tomó una para buscar a Ma Qianzhu.
 
 Nota: Los derechos de autor de esta máquina de hielo pertenecen a Zhan Zanshi de Wūyā; no se sabe si se puede utilizar. El texto original indica que funcionaba con un sistema de transmisión conectado a una bicicleta, y él mismo ha explicado que la potencia de salida de una bicicleta es insuficiente para accionar el compresor.
-(Fin del capítulo)

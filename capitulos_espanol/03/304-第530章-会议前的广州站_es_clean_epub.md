@@ -82,5 +82,3 @@ En la agencia de transporte "Qiwai", la mayoría de los transportistas eran disc
 "¿Quieres que Qiwai establezca una presencia a nivel nacional? ¡"
 
 "No, tienes razón", asintió Yan Maoda. "En realidad, no se trata de todo el país, ni es necesario que lo sea. Primero, debemos establecer una base en las regiones de Jiangzhe y en la capital, y cuando la situación se haga más grande, es inevitable que la gente se disperse. El señor Sun, probablemente, querría que sus discípulos y herederos fueran independientes, y en ese momento, nosotros podemos sembrar discordia en las regiones locales."
-
-(Fin del capítulo).

@@ -46,7 +46,7 @@ La provincia de Qiongzhou es, sin duda, un lugar mucho más próspero y lleno de
 
 Claro que ambos tenían la suficiente paciencia para esperar a que él regresara y diera sus órdenes. Lin Baiguang los llamó a su casa.
 
-<p>La primera tarea es establecer una sede para la estación de inteligencia. Esta estación de inteligencia de la prefectura de Qiongzhou debe existir al menos durante tres o cuatro años, y no puede depender de alquilar casas en templos para operar. Es necesario tener un punto de apoyo seguro.</p>
+La primera tarea es establecer una sede para la estación de inteligencia. Esta estación de inteligencia de la prefectura de Qiongzhou debe existir al menos durante tres o cuatro años, y no puede depender de alquilar casas en templos para operar. Es necesario tener un punto de apoyo seguro.
 
 Qiwēi ya establecido una posada en este lugar, pero Lin Baiguang decidió no incluir la sucursal de Qiwēi en la red de inteligencia. Si una estación de inteligencia fuera destruida, el impacto negativo en Qiwēi sería demasiado grande y afectaría sus operaciones en otras áreas. Además, el grupo de viajeros temporales aún no tiene el control total de Qiwēi, y hay muchas cosas que no pueden saber.
 
@@ -81,5 +81,3 @@ Después de asignar las tareas relacionadas con la compra de la casa, le indicó
 海述祖 es un miembro destacado de una familia local, y la familia Hai tiene mucha influencia en esta zona. Para averiguar información sobre él, no es necesario gastar mucho dinero. Sin embargo, la información puede ser de diferentes calidades, desde información básica hasta información privilegiada y valiosa. Todo depende de la habilidad de Chen Tong para recopilar información.
 
 "Te doy diez días."
-
-(Fin del capítulo).

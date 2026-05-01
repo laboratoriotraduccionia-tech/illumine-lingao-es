@@ -87,5 +87,3 @@ Ji An es una persona que recientemente fue ascendida desde entre los viajeros te
 "El valor de la mercancía es considerable", dijo Ji An mientras revisaba el albarán. "Los impuestos sobre los productos farmacéuticos se dividen en tres categorías, siendo la más alta para productos como el ginseng y el ciervo veludo, con una tasa impositiva del 50%…"
 
 "¡Esto no puede ser!", pensó Liu San. El negocio del Ministerio de Salud apenas había comenzado, y ahora la aduana quería cobrar impuestos. Él definitivamente no estaba de acuerdo con esto.
-
-(Fin del capítulo).

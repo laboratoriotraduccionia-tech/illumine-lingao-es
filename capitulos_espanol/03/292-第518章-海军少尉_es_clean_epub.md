@@ -24,7 +24,7 @@ Después de la inspección, los marineros del equipo de artilleros cubrieron y a
 
 Él miró el reloj de arena y la escala que colgaban junto a la rueda de timón en la popa. En media hora, el capitán vendría a la cubierta para inspeccionar. Luego, sería hora de desayunar.
 
-<p>Sin embargo, anoche, todos los capitanes de los barcos de esta zona fueron convocados a la sede de la Marina en el puerto para una reunión. Ruán Xiaowu sabía que la Marina estaba a punto de llevar a cabo una importante misión, y es muy probable que hoy se anuncien los detalles específicos.</p>
+Sin embargo, anoche, todos los capitanes de los barcos de esta zona fueron convocados a la sede de la Marina en el puerto para una reunión. Ruán Xiaowu sabía que la Marina estaba a punto de llevar a cabo una importante misión, y es muy probable que hoy se anuncien los detalles específicos.
 
 En cuanto a qué órdenes específicas se trataban, Ruian Xiaowu no tenía ni idea, ni siquiera el capitán lo sabía. El capitán del "Lin Yun 7", Qian Changshui, fue uno de los primeros piratas en unirse a los australianos; fue capturado durante el ataque nocturno de Liu Xiang a Bopu y, después de ser evaluado, se consideró que "podía ser reformado" y se convirtió en marinero. Posteriormente, debido a su buen desempeño y dedicación al estudio, fue admitido en la escuela militar y naval de la primera promoción. Se convirtió en uno de los primeros nativos en ascender al rango de oficial de la marina, y también fue uno de los primeros en convertirse en capitán de la marina. Antes, solo comandaba una embarcación vieja y destartalada, pero ahora es el capitán de un barco grande de 200 toneladas. Todos los días, viste un uniforme con distintivos de oficial, pasea con porte y autoridad por la cubierta, dando órdenes, lo que hace que Ruian Xiaowu sienta mucha envidia: "Ojalá yo también pudiera ser capitán algún día".
 
@@ -75,5 +75,3 @@ A continuación, Wen Desi entregó la espada de oficial a un joven militar. Al v
 "¡Gracias, presidente Wen!", exclamó Ruǎn Xiaowǔ, conmovido hasta las lágrimas al ver al presidente Wen, una figura casi divina para él, ofrecerle sus felicitaciones.
 
 Wen Desi, en toda su vida, fue la primera vez que veía a alguien emocionarse hasta las lágrimas por una de sus palabras, lo que le brindó una gran satisfacción como líder.
-
-(Fin del capítulo).

@@ -91,5 +91,3 @@ El plan de operaciones es una trampa, pero para atrapar el pez de manera rápida
 Los viajeros temporales están a la vista, mientras que el enemigo se encuentra en la oscuridad. La marina no conoce bien las condiciones marítimas de la costa de Xuwu, y es muy probable que el ataque enemigo se realice en aguas costeras. Esta zona tiene una costa con numerosas islas y arrecifes, y el conocimiento del enemigo sobre las condiciones marítimas es mucho mayor que el de nuestra parte. Pueden aprovechar el entorno natural para ocultarse, observar los movimientos de los viajeros temporales y elegir el momento más oportuno para atacar al "Gran Ballena".
 
 La iniciativa. Él estaba profundamente preocupado por este problema.
-
-(Fin del capítulo).

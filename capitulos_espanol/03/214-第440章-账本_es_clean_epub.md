@@ -108,5 +108,3 @@ Lin Baiguang notó que la última vez que se ofreció un soborno fue en abril de
 "Es una lástima no saber quién es, porque si tuviéramos acceso a estos documentos, ellos tendrían que obedecernos."
 
 "Jaja, las cosas no son tan simples", dijo Lin Baiguang. Con muchos años de experiencia en la burocracia, sabía que algo así podía ser útil o inútil, dependiendo de las circunstancias. "Pero podemos aprovecharlo, lo importante es saber quién es quién".
-
-(Fin del capítulo).

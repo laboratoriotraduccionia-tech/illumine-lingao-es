@@ -101,5 +101,3 @@ Wang Luobin regresó torpemente a la escuela del condado. En esta línea tempora
 Aunque estaba en decadencia, la estructura original aún se conservaba. Al entrar por la puerta Lingxing, pasando por la puerta Ji, se llegaba al salón Minglun. A ambos lados se encontraban los pabellones Jinde y Xiuye, que eran las aulas de la escuela del condado. Detrás había muchas otras construcciones, así como las salas de examen. En términos de tamaño, estaba entre las más grandes de toda la isla de Hainan.
 
 La estructura del condado de estudios era bastante extensa. Solo los asistentes tenían seis personas: seis encargados de limpieza, dos cocineros, tres porteros y tres encargados del almacén. Sin embargo, esto era solo lo que se establecía en los documentos. Estos asistentes eran considerados personal remunerado, pero en esta época de la dinastía Ming, el dinero para contratar a estos asistentes se recaudaba de los hogares designados, pero a menudo no se utilizaba para contratar a las personas. Por lo tanto, en el prestigioso condado de estudios, solo quedaban tres asistentes en la actualidad.
-
-(Fin del capítulo).

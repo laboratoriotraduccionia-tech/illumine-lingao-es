@@ -149,4 +149,3 @@ Estos objetos se conservaron, siguiendo las regulaciones del comité de planific
 "Hay otro requisito", dijo Zhao Yanmei, probablemente sintiendo que su petición era un poco excesiva, "¿podrían darnos una máquina de rayos X?".
 
 Shi Nao Ren se sobresaltó. ¡Una máquina de rayos X! Esto es un equipo de control especial. Debido a los problemas relacionados con las fuentes de radiación, los viajeros temporales, a pesar de sus esfuerzos, solo lograron obtener tres de estas máquinas, y al menos podrían mantenerlas funcionando durante décadas. ¿Para qué necesita la farmacéutica este tipo de equipo?
-(Fin del capítulo)

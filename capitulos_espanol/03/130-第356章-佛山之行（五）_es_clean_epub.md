@@ -109,5 +109,3 @@ Huang Tianyu, que en ese momento sentía una especie de entumecimiento, se acerc
 "Huang Tianyu, nervioso, preguntó en voz baja: "¿Liu San, qué hacemos? ¡Esto se ha complicado!"
 
 "Mmm," Liu San asintió. Esta placa estaba hecha con gran cuidado, por lo que era poco probable que fuera falsa, aunque ellos tampoco habían visto una original. Si fuera verdadera, podrían ofender al personal de Jin Yi Wei, lo que tendría consecuencias graves, no solo para ellos mismos y para la misión, sino también para el grupo de viajeros temporales… Liu San sintió un impulso violento: quizás sería mejor matarla para que no hablara.
-
-(Fin del capítulo).

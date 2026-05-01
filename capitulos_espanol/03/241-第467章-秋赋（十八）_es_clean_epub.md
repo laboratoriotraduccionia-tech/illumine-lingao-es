@@ -105,5 +105,3 @@ Los habitantes del condado, al escuchar que un gran grupo de personas de "Dà du
 "Señor Zhao, si usted también estuviera en una situación en la que no tuviera suficiente comida para el día siguiente, y apenas pudiera comer, seguramente tendría más valor que ellos."
 
 ……
-
-(Fin del capítulo).

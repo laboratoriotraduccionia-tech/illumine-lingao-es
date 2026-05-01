@@ -66,5 +66,3 @@ Las personas presentes quedaron en silencio. Los lujos de vida en la estación d
 "Exactamente eso," Zhang Xin dijo con un gesto descuidado, "incluso si somos viajeros temporales, ¿puede considerarse que hay un vínculo emocional entre dos personas si, después de cierto punto, no tienen relaciones sexuales?".
 
 "Chang, como nosotros, tiene mujeres a su alrededor, y eso no es sorprendente; lo extraño sería que no las tuviera", dijo Yan Maoda. "En este punto, creo que deberíamos advertir a la nueva dirección: no deben ser demasiado exigentes en este aspecto."
-
-(Fin del capítulo).

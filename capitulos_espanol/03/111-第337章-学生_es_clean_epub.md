@@ -95,4 +95,3 @@ Después de dar una vuelta por los dormitorios, Hu Qingbai lo invitó a sentarse
 
 En ese momento, se decidió reclutar para la primera promoción de la Escuela Normal Simplificada a quinientos estudiantes: trescientos cincuenta mujeres y ciento cincuenta hombres. Se reclutaría a jóvenes de ambos sexos, de entre quince y veinte años, que hubieran completado la educación básica y obtenido el certificado de nivel C. El Ministerio de Educación concentraría la mayor parte de su personal docente para impartir un programa de capacitación intensiva de tres meses a los estudiantes de la Escuela Normal Simplificada, con el objetivo de que alcanzaran el nivel cultural equivalente al certificado de nivel A.
 
-(Fin del capítulo)

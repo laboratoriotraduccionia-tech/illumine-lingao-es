@@ -88,5 +88,3 @@ Durante el proceso de colada, la placa de vidrio está en contacto con los rodil
 El trabajo de pulido se realizaba en una plataforma de piedra. Según los requisitos de Wang Luobin, la cantera extrajo específicamente una gran losa de piedra caliza, un material de textura fina y baja dureza, que era ideal como plataforma de pulido.
 
 El proceso de pulido es el siguiente: se aplica una capa de cal debajo de la placa de vidrio que se va a pulir para evitar que se mueva durante el proceso. Luego, se coloca otra placa de vidrio, de menor tamaño, sobre la placa de vidrio que se va a pulir. En la placa de vidrio superior, se adhiere una tabla de madera, y en esta tabla se fija una rueda horizontal hecha de madera ligera. Esta rueda permite mover la placa de vidrio superior hacia adelante y hacia atrás, creando una fricción estable entre las dos placas de vidrio. Para aumentar el efecto de fricción, se inyecta agua y arena fina entre las dos placas de vidrio. Alrededor de la mesa de pulido, se instalan bordes elevados para evitar que el agua y la arena se derramen.
-
-(Fin del capítulo).

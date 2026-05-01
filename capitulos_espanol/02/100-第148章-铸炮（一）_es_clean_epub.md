@@ -69,4 +69,3 @@ La fabricación de cañones lisos es sencilla y no exige materiales de alta cali
 "Sugiero que el departamento comercial incluya los cañones de avancarga en el catálogo de productos para la exportación. Los portugueses ya son proveedores de armas para la dinastía Ming, y no podemos permitir que se beneficien de esto".
 
 Nota: Los comentarios y la trama relacionados con la fabricación de cañones de ánima lisa en el siglo XVII en este capítulo, provienen completamente del foro SB, de SANJYSAN. Las explicaciones sobre el cañón Armstrong fueron proporcionadas por Wang Luobin.
-(Fin del capítulo)

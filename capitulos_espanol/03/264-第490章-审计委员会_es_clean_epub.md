@@ -93,5 +93,3 @@ Yì Fán asintió con la cabeza. El sistema financiero formal, después de todo,
 "Por supuesto, la estación de Guangzhou. Esta estación tiene una larga trayectoria, un gran volumen de ingresos y gastos, y también implica muchos gastos, incluyendo sobornos", dijo Yi Fan. "Sin duda, sus cuentas son un completo desastre. Es la más difícil de descifrar, y una vez que se logra, el resto será más fácil de manejar."
 
 "No necesariamente", dijo Cheng Dong, negando con la cabeza. "El puesto de Guo Yi es muy estable; tiene problemas de origen, y no se dejará atrapar fácilmente. Además, desde que abrimos la sucursal de Delong en Guangzhou a principios de este año, el sistema financiero de la estación de Guangzhou está completamente en orden; aunque hay muchas cuentas en Guangzhou, no son necesariamente difíciles de manejar."
-
-(Fin del capítulo).

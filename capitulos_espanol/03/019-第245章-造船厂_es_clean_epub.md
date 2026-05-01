@@ -36,15 +36,10 @@ Bai Guoshi de repente sintió que era increíblemente afortunado, ¿podría ser 
 "Muy bien, iré de inmediato", dijo Bais Guoshi, ansioso por ofrecerse.
 
 Al día siguiente, todos los miembros, incluyendo a los recién llegados, fueron reasignados a nuevos grupos, buscando equilibrar la fuerza de ambos equipos. Se adoptó un modelo de "aprendizaje entre generaciones" para el entrenamiento. Debido a que la misión reciente consistió en acompañar a un gran grupo en una expedición alrededor de la isla, los requisitos directos de cualificación de los miembros no eran tan altos, lo que permitió al equipo de exploración obtener un valioso tiempo para el entrenamiento. El contenido establecido por Liu Zheng incluía:
-
-<p>1. Entrenamiento de supervivencia en la naturaleza: este entrenamiento básico de supervivencia en la naturaleza se basa en la experiencia y las lecciones aprendidas de misiones prácticas.</p>
-
-II. Tácticas básicas individuales, incluyendo técnicas de captura, son principalmente impartidas por el personal del destacamento especial.
-
+1. Entrenamiento de supervivencia en la naturaleza: este entrenamiento básico de supervivencia en la naturaleza se basa en la experiencia y las lecciones aprendidas de misiones prácticas.
+2. Tácticas básicas individuales, incluyendo técnicas de captura, son principalmente impartidas por el personal del destacamento especial.
 3. Tácticas básicas de coordinación de grupos, incluyendo la cobertura cruzada, con un énfasis especial en el entrenamiento combinado de armas de fuego y arcos.
-
-四. Conocimientos especializados en áreas como la flora y fauna, los minerales y la meteorología.
-
+4. Conocimientos especializados en áreas como la flora y fauna, los minerales y la meteorología.
 5. Entrenamiento de adaptación a la navegación. Todos los grupos deben ir a Bopu para realizar entrenamiento de remo y natación.
 
 Después de varios días de entrenamiento, el nivel de todos mejoró significativamente. Esto se debe, en gran parte, al arduo trabajo realizado después del "Día D"; incluso los hombres más sedentarios ahora tienen una buena condición física. Lo que falta ahora son las habilidades y la coordinación, aspectos en los que el profesor se enfoca.
@@ -78,5 +73,3 @@ En comparación, los jóvenes de las familias Lin y Lu estaban algo asustados e 
 Lin Gonglao estaba de pie frente a la puerta de la oficina del campamento de cuarentena. El rostro joven estaba distorsionado, y parecía mostrar resentimiento. Alrededor, más de una docena de primos también tenían expresiones sombrías; acababan de conocer los resultados de la evaluación y la asignación de sus destinos.
 
 Durante estos días, todos los hombres mayores de 16 años de los inmigrantes del pueblo Baitu recibieron una evaluación de habilidades. Debido a que la familia Lin es de constructores navales, la evaluación se centró en diversas habilidades relacionadas con la construcción naval: incluyendo carpintería, trabajo con doble hilo, trabajo con hierro, trabajo con estaño, torneado, trabajo con conchas, trabajos de decoración, talla de adornos, construcción de castillos de proa, construcción de cubiertas, fabricación de cuerdas, manejo de cables, pintura, trabajos con pigmentos, entre otros, cubriendo prácticamente todo el contenido de la antigua artesanía naval. El contenido de la evaluación y la puntuación específica fueron elaborados por Zhang Jicheng, aunque él no apareció en persona para evitar problemas. Wen Desi sabía, por sus contactos habituales, que Zhang Jicheng tenía algunas críticas sobre cómo la familia Lin había controlado el gobierno del pueblo en el pasado y había absorbido la mayor parte de los beneficios de la construcción naval, y que, siempre que no tuviera preocupaciones, no mostraría clemencia hacia la familia Lin.
-
-(Fin del capítulo).

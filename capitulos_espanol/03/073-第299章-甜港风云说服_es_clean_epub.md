@@ -148,5 +148,3 @@ Lin Zhuang fue obligado a entrar en el salón cálido. Chen Tianxiong, preocupad
 "Chen Tianxiong fue directo al grano y dijo: "He sido enviado por personas influyentes de la región sur de China para hablar con usted. Los asuntos de Hai Yitang y la fábrica de Huannan son asuntos separados, y no deberían afectar a los trabajadores de la fábrica de azúcar. Le aconsejo que evite acciones innecesarias que puedan dañar la armonía".
 
 "No, no me atrevo", dijo Lin Zhuang al escuchar que era de la región de Huánán. Inmediatamente, sus piernas se debilitaron y se arrodilló en el suelo, golpeando repetidamente la cabeza. Todos en Xúwén sabían que él se había involucrado en los asuntos de Zhù Sān yé. Quizás nadie se atreviera a hacerle daño a Zhù Sān yé, pero aplastar a este pequeño trabajador era algo muy fácil. ¿Cómo iba a saber él si ellos lo estaban usando como un "pollo" para asustar a otros?
-
-(Fin del capítulo).

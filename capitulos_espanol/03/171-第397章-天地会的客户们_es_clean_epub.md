@@ -79,7 +79,7 @@ El equipo de construcción trabajaba arduamente, mientras que, al mismo tiempo, 
 
 A continuación, llegó un gran grupo de vacas. Estas vacas tiraban de enormes máquinas agrícolas de estructura de hierro: antes de la aparición de los motores diésel y las máquinas de vapor, ya existían en América grandes máquinas agrícolas tiradas por animales, cada una de las cuales requería desde cuatro hasta quince caballos. Ludai nunca había visto máquinas agrícolas tan grandes tiradas por animales; aquí se habían adaptado para ser tiradas por vacas. La imagen de quince vacas alineadas, tirando de la enorme máquina mientras realizaba una labranza profunda, hizo que muchos de los transeúntes se detuvieran para observar, permaneciendo allí durante mucho tiempo.
 
-<p>Todo el sitio de construcción estaba lleno de ruido, como una colmena. Esta acción a gran escala que concentraba mano de obra y recursos para la producción agrícola, causó una profunda impresión en Luda:</p>
+Todo el sitio de construcción estaba lleno de ruido, como una colmena. Esta acción a gran escala que concentraba mano de obra y recursos para la producción agrícola, causó una profunda impresión en Luda:
 
 "¡Esta tierra todavía se puede cultivar!", murmuró. Vio a su hijo mayor, con una expresión animada, de pie en el borde del campo, sosteniendo algo extraño y gesticulando. El hijo menor sostenía una tablilla de madera, sobre la cual había escrito algo. Se acercó para mirar y vio que la tablilla tenía un clip grande sujetando un papel, cubierto de letras y símbolos extraños: había oído que esto se llamaba "dàshí shùzì", un sistema numérico utilizado en Australia. Lú Dalian, que no reconocía los sistemas numéricos chinos, se sorprendió al ver a sus hijos escribirlos con tanta habilidad, e incluso discutir con los trabajadores. Sintió una mezcla de orgullo: ¡sus hijos estaban creciendo! Pero también un poco de amargura, porque él mismo no había progresado en nada…
 
@@ -142,5 +142,3 @@ Wu Nanhai ahora entendía un poco de dialecto de Lingao, así que miró con más
 Lo siguiente corresponde a un contenido que supera las 5000 palabras y no se cobrará.
 
 Nota: Mòlìxuān es el monumento más famoso de Lingao, fundado en el segundo año de la era Shaoxing de la dinastía Song del Sur. En el año dieciocho de la era Shaoxing, Hu Quán, entonces académico de la Academia Hanlin, fue degradado a funcionario en el ejército de Jiyang, que es la actual Sanya, y pasó por Lingao, donde fue invitado por el magistrado Xie Wozeng para impartir clases en la academia durante más de un año. Varios años después, el estudiante local Dài Dìngshí obtuvo el título de "jū rén". Este fue el primer "jū rén" en la historia de Lingao. Mòlìxuān tiene un estatus muy alto entre los estudiantes locales.
-
-(Fin del capítulo).

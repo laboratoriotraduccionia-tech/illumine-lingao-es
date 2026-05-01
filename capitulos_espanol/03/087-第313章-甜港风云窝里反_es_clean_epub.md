@@ -13,7 +13,7 @@ Los alguaciles arrestaron al sacerdote y al experto en fuegos artificiales del p
 
 Tras unos días en que los rumores sobre el incidente se extendieron por las calles, la noticia comenzó a desvanecerse. Los actos de incendio en el sur de China desaparecieron por completo, y los comerciantes de azúcar que inicialmente se negaron a asistir a la reunión, contactaron secretamente con Feng Guangfeng.
 
-<p>Originalmente, la mayoría de las personas no estaban muy interesadas en la formación de la nueva asociación de la industria azucarera del sur de China. Sin embargo, ahora ha habido un cambio radical de actitud. Los comerciantes de azúcar han comenzado a mostrarse más receptivos, y Chang Shide ha notado que ahora es posible tener conversaciones más profundas. Chen Tianxiong, por su parte, ha aprovechado al máximo el tiempo para hablar en privado con los comerciantes de azúcar.</p>
+Originalmente, la mayoría de las personas no estaban muy interesadas en la formación de la nueva asociación de la industria azucarera del sur de China. Sin embargo, ahora ha habido un cambio radical de actitud. Los comerciantes de azúcar han comenzado a mostrarse más receptivos, y Chang Shide ha notado que ahora es posible tener conversaciones más profundas. Chen Tianxiong, por su parte, ha aprovechado al máximo el tiempo para hablar en privado con los comerciantes de azúcar.
 
 "Zhuan An" estaba con el rostro sombrío, sentado en el salón de reuniones de Hai Yitang, como de costumbre, ocupando el asiento principal. Las veinte sillas a ambos lados del salón estaban llenas, y los principales administradores de cada empresa azucarera estaban sentados, erguidos y atentos.
 
@@ -134,5 +134,3 @@ El dueño de la tienda Rìshèng, Liu Yulin, fue el primero en levantarse y hace
 "¡Cuando se quiere acusar a alguien, siempre hay una excusa!", pensó Zhuzhisan, sintiendo que sus extremidades se entumecían. El oponente no solo tenía dinero y "poder", sino que también era un maestro en las artes de la manipulación.
 
 Wen Tong habló con entusiasmo: "…¡Le ruego a Zhuzhisan que se retire con valentía! Dejemos un espacio para encontrarnos en el futuro, para evitar vergüenzas al revisar los registros!".
-
-(Fin del capítulo).

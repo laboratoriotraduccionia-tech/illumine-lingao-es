@@ -89,5 +89,3 @@ Lin Baiguang, siguiendo las indicaciones, observó cuidadosamente y, efectivamen
 Ella lanzó una piedra al agua y observó, a la luz de la linterna, las ondas que se formaban: "Es muy profundo; un anzuelo normal probablemente no servirá; hay que usar uno más largo y pesado."
 
 "¡Definitivamente son objetos de valor!", exclamó Lin Baiguang, sus ojos brillando. "No usen las ganchos, simplemente bombeen agua directamente."
-
-(Fin del capítulo).

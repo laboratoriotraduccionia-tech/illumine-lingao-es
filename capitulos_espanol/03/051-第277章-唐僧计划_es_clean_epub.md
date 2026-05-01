@@ -121,5 +121,3 @@ Después de escuchar la presentación de Chen Tianxiong, Wen Tong y Chang Shide 
 "Está bien. El gerente de 'Qiwu', Liao Dahua, es una buena opción; conoce bien la gente y las costumbres de la región. Sin embargo, no sabe artes marciales…"
 
 "No importa, hemos venido a explorar y planeamos disfrazarnos de pequeños comerciantes para movernos por todas partes y observar."
-
-(Fin del capítulo).

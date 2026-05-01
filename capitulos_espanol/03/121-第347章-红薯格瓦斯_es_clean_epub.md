@@ -17,7 +17,7 @@ Todos, de forma instintiva, se alejaron un poco de esa figura misteriosa. Parec�
 
 "Por supuesto que también se puede hacer con arroz", dijo Huang Dushan. "En realidad, lo que importa es el almidón. Por lo tanto, cualquier cosa con un alto contenido de almidón, como batatas o papas, sirve. No es nada sorprendente". "El vino de arroz, el vinagre, la salsa de soja y la salsa, estos condimentos originalmente se podían hacer con arroz. La razón por la que la fábrica de alimentos no los producía en gran medida antes era principalmente para ahorrar grano. Ahora, con la batata como una fuente barata y abundante de almidón, simplemente podemos aumentar la escala de producción".
 
-<p>Shi Niaoren habló sobre su plan para la solución de glucosa, y Wu Nanhai expresó su firme apoyo, diciendo que producirían la cantidad necesaria. Sin embargo, Shi Niaoren dijo que no necesitarían grandes cantidades por el momento, que unos pocos kilogramos serían suficientes.</p>
+Shi Niaoren habló sobre su plan para la solución de glucosa, y Wu Nanhai expresó su firme apoyo, diciendo que producirían la cantidad necesaria. Sin embargo, Shi Niaoren dijo que no necesitarían grandes cantidades por el momento, que unos pocos kilogramos serían suficientes.
 
 "Preparar una solución de glucosa inyectable no requiere muchos recursos."
 
@@ -136,5 +136,3 @@ El carbón no les faltaría; incluso si no tuvieran carbón, podrían encontrar 
 El generador de gas puede afectar la potencia de salida del motor, aunque a finales de la Segunda Guerra Mundial, Alemania instaló este dispositivo en sus vehículos blindados semiorugas. Se dice que incluso se realizó una prueba experimental con un generador de gas en el tanque "Panther", que pesaba casi 50 toneladas, por lo que es probable que el impacto en la potencia no sea demasiado diferente.
 
 Wang Luobin diseñó varios modelos diferentes de generadores de gas, uno de ellos, de tamaño pequeño, estaba especialmente diseñado para vehículos, y otro era un sistema completo de generadores de gas de tamaño mediano, destinado a empresas, que utilizaba el principio de succión plana. La estructura de este tipo de horno es bastante compleja, pero puede adaptarse a combustibles de baja calidad.
-
-(Fin del capítulo).

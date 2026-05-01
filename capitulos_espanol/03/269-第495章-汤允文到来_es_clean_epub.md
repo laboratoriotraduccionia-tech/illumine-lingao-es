@@ -76,5 +76,3 @@ Ante la situación desesperada, Zhong solo pudo recurrir a sus asesores para bus
 En cuanto a los incidentes de desembarco y saqueo por parte de piratas, estos ocurren casi a diario en las zonas costeras de Guangdong y Fujian, y no se consideran algo importante. Mientras la ciudad del condado de Lingao no caiga, independientemente de si hay grandes barcos de hierro o no, los ataques y saqueos por parte de piratas comunes son un evento habitual.
 
 De todas formas, este método de actuar a medias, engañando a unos y no a otros, se ha utilizado durante mucho tiempo. Todos, después de discutirlo, consideraron que esta estrategia era la más adecuada, así que Tang Yunwen simplemente hizo como si no estuviera pasando nada, ignorándolo por completo.
-
-(Fin del capítulo).

@@ -1,10 +1,4 @@
-## Capítulo 77: 第三十四-战后I
-
-# Capítulo 81, Parte 34: La posguerra (I)
-
-Capítulo 81, Parte 34: La posguerra (I)
-
- Capítulo 81, Parte 34: Después de la batalla (I)
+## Capítulo 77: Después de la batalla (I)
 
 Wang Luobin salió del área administrativa con el corazón latiendo con fuerza. Para mantener la calma, siempre llevaba consigo su fusil. ¡Hoy ha sido por poco! Debido a la intensa actividad de construcción y al agotamiento físico, los enemigos atacaron tan rápidamente.
 
